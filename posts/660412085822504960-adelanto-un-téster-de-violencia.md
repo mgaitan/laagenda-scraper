@@ -1,0 +1,70 @@
+# Un téster de violencia
+
+**Este es el quinto capítulo de “Hay cosas peores que estar solo. Fito Páez y Ciudad de pobres corazones”, que recorre el proceso creativo de aquel disco desgarrador de 1987.**
+
+25 de agosto de 2021 - Adelanto
+
+_por Federico Anzardi_
+
+Link original: https://laagenda.tumblr.com/post/660412085822504960/adelanto-un-t%C3%A9ster-de-violencia
+
+![](https://64.media.tumblr.com/d2cc99300e4673567e27bd394f7a6609/1e5b59a11546f706-b9/s500x750/773e667cc239378ffd56c2bb4850aa5a91e84f6f.jpg)Estuvo una hora sin hacer demasiado. No surgían ideas, no lograba tocar algo concreto, pero por alguna razón no se levantaba del piano. Dos horas después, cuando el divague parecía interminable, notó algo de progreso. Empezó a ver con nitidez todo lo que había pasado en las últimas semanas. Se acordó de Río de Janeiro. *Lo que te voy a decir es una noticia muy difícil. Tomátela lo mejor que puedas.* Vio a la Policía que lo quería involucrar en el caso. Recordó las declaraciones ante el juez. A la prensa que lo había rodeado. *Fito, ¿sos adicto a los alucinógenos?* Revivió el encierro en la casa de Liliana. Se acordó de las caminatas solitarias y de las borracheras nocturnas. Tocaba el piano y recordaba. Recordaba y empezaba a enojarse de nuevo. Se enojaba y tocaba más fuerte. Tocaba más fuerte y eludía las sutilezas. *Lo único que tengo ahora es mi música*. Sus dedos encontraron un riff elemental y directo que tenía la densidad de Black Sabbath y la urgencia de la angustia. Era una música sin curvas, en línea recta. Las manos caían pesadas sobre el teclado y generaban un clima violento, el reflejo de un compositor perturbado.
+
+Ese fue el momento en el que Fito pudo salir de la inacción en la que había caído. Aprovechó el envión y recordó las frases que tenía en la cabeza desde el viaje a Rosario. Era el desahogo de un resentido. Empezó a cantar: “En esta puta ciudad todo se incendia y se va”. Esa primera línea derivaba en una sentencia que también era un lamento: “Matan a pobres corazones”. 
+
+Como el riff, los versos de ese tema nuevo funcionaban como una caída que se retroalimentaba y mostraban a Rosario como el eje de un crimen impiadoso que no se justificaba. Fito lo reflejaba con una crudeza atravesada por la impotencia. El lugar donde había nacido le parecía inhabitable. No valía la pena ir ni de paso. Fito lograba conectar con la música y las palabras. 
+
+En la cocina, Alejandro Avalis y Lucho Garuti escuchaban lo que llegaba desde la sala y se miraban impactados mientras Fito tocaba y probaba, a los gritos, variantes de la letra que iba creando.
+
+—Uy, está re loco.
+
+En esa letra se podían reconocer las consecuencias directas de los últimos días. La paranoia, la jugada policial, las pastillas, los abogados y los jueces: “No quiero salir a fumar, no quiero salir a la calle con vos. No quiero empezar a pensar quién puso la yerba en el viejo cajón”. También apuntaba a lo más alto, a la idea de un Dios moralista que regía las conciencias a partir del miedo y la jactancia del sufrimiento. “Maldito sea tu amor, tu inmenso reino y tu ansiado dolor”, cantaba Fito. Era el equivalente musical a romper una habitación de hotel, a mandar a la mierda a los periodistas, a desconfiar de la Policía y de cualquiera que se acercara.
+
+—No me verás arrodillado, no me verán arrodillado. 
+
+Esa violencia no llegaba muy lejos. Los vecinos no se quejaron. Nunca lo hacían. El pasaje La Mar era bastante tranquilo. Ni el flete del viejo Valentín, con su ruido insoportable entre carga y descarga de equipos, lograba molestar demasiado. Los ensayos solían ser ruidosos pero la habitación donde tocaban no daba hacia la calle. Todo quedaba puertas adentro. Los sonidos no escapaban. De todas maneras, si los vecinos hubieran escuchado a Fito probablemente no se hubiesen quejado. Se habrían quedado quietos, asustados y sorprendidos, como Alejandro y Lucho. Como un par de días después, allí mismo, en la sala, lo hicieron los casi veinte músicos que se habían reunido para comenzar a preparar los Obras de *La la la*. Ese día estaban todos: Fabiana, Spinetta, Tweety, Fabián Gallardo, el Tuerto Wirzt, Fabián Llonch, Machi Rufino, Ricardo Mollo, Mono Fontana, Pino Marrone, Osvaldo Fattoruso, Ulises Butrón, Andrés Calamaro, entre otros que habían participado de la grabación y habían sido invitados a tocar en vivo. Ese día Fito estaba más preparado, ya no divagaba. Tenía lista la canción nueva. Su cara estaba rígida, tapada a medias por los lentes de sol de borde blanco y sus rulos de orejas de cocker rabioso. 
+
+“Les quiero mostrar un tema que compuse”, les había dicho mientras se sentaba frente al CP 70 en el primer día de ensayos. Faltaban tres semanas para los conciertos. Los músicos estaban muy dolidos por lo que había pasado, no sabían qué hacer ni qué decir. Spinetta estaba destrozado y hasta sentía algo de culpa por lo que había ocurrido. Fito empezó a tocar *Ciudad de pobres corazones* y todos se quedaron en silencio. Cantaba como arrasado por una ola imaginaria. Fabiana, que seguía confundida, sin saber cómo reaccionar mientras lo escuchaba, no alcanzaba a comprender lo que había logrado. Desde la tarde en que lo tiró en un taxi, Fito tuvo, otra vez, motivos para levantarse. 
+
+Esa semana, además del estreno de la nueva canción, hubo ensayos fuertes de cara al Montevideo Rock. Fito y su grupo tenían que viajar ese viernes a Uruguay. El show iba a marcar su vuelta a los escenarios solo quince días después de los asesinatos. 
+
+![Julieta Venegas](https://64.media.tumblr.com/33b078f23c1994b457152b3c9cd11eee/1e5b59a11546f706-de/s250x400/e50a98ff8d693e08fe834d39902705df865039bd.jpg)*Tango que me hiciste mal**La ley es otra* *Montevideo agoniza*  
+El boom se había dado gracias a la aparición del compilado Graffiti, en diciembre de 1985. El Montevideo Rock fue una consecuencia de aquel impulso. Una producción privada con apoyo municipal que se realizó el 21, 22 y 23 de noviembre de 1986 en el predio de la Rural del Prado. Los afiches prometían “72 horas de rock” con más de treinta bandas, la mayoría locales. De Brasil viajaron los Paralamas y Legião Urbana. De Chile, Los Prisioneros. El afiche oficial también anunciaba a Siouxsie & The Banshees, que no participó. De la Argentina los convocados fueron Fito, Fabiana, La Torre, GIT y Sumo. 
+
+El festival se realizó tras un intenso debate mediático y político. El Ministerio del Interior desplegó 300 agentes con perros y camionetas listas para levantar a los que quisieran provocar disturbios. Fue un éxito que pasó a la historia con audiencias de entre quince y veinte mil personas por jornada. Fito, Fabi, GIT y los Sumo viajaron desde Buenos Aires hacia Montevideo el viernes 21 por la tarde. Cruzaron el Río de la Plata en ferry, en el preámbulo de una tormenta inolvidable que sacudió el barco y asustó a todos los pasajeros. 
+
+El temporal también provocó demoras y destrozos en el predio de la Rural. El techo de uno de los escenarios casi se vuela y la primera jornada terminó de manera abrupta durante el set de La Torre, cerca de las diez de la noche, cuando el agua que caía hacía imposible la continuidad de los conciertos. Los organizadores estuvieron todo el viernes a las corridas. Uno de ellos era el propio Fernando Moya, que se maldecía por haber aceptado participar de la producción. “¿Para qué carajo me metí en este quilombo?”, pensaba el mánager de Fito, que era el nexo entre los uruguayos y Daniel Grinbank, que aportó el paquete de artistas argentinos y, decían en Montevideo, también le bajó el pulgar a la presentación de Siouxsie. A pesar de que ya había trabajado en festivales como el Chateau Rock y La Falda, Moya no tenía demasiada experiencia al frente de eventos tan complejos. Esa carencia provocó que viajara a Uruguay sin personal ni infraestructura. Se encontró con un grupo de trabajo más inexperto que él. 
+
+En Montevideo todo estaba encabezado por Miguel Olivencia, de 21 años, mánager de Los Tontos. El joven empresario tuvo que soportar la queja de los Paralamas ante el estado de las habitaciones del Parque Hotel. Los músicos brasileños exigieron “a las patadas” que los llevaran a mejores aposentos bajo amenaza de no tocar esa noche, algo que se cumplió de manera involuntaria ya que el grupo de Herbert Vianna debió suspender su show por las pésimas condiciones climáticas. 
+
+Parque Hotel era uno de los dos hoteles municipales que el intendente Jorge Luis Elizalde había facilitado para la organización. El otro era el Carrasco, un majestuoso y fantasmagórico edificio que estaba muy venido a menos. Los dos estaban en condiciones precarias para las exigencias de ciertos rockeros, como los Paralamas y los GIT, que también reclamaron un cambio de habitación. Al enterarse de la protesta del trío argentino, Luca Prodan no salía de su indignación. “¡¿Quiénes son?!”, exclamaba ante el periodista uruguayo Leonardo Haberkorn, que lo entrevistó el sábado 22. 
+
+La nota entre Haberkorn y Prodan fue en el bar del Hotel Carrasco a las 9 de la mañana, temprano para los estándares rockeros. La tormenta ya había pasado, el sol brillaba en el cielo y presagiaba una jornada muy calurosa. Luca bajó de la habitación vestido con una túnica blanca de algodón. Enseguida pidió ginebra. El periodista se sintió obligado a desayunar un fondo blanco para estar a la altura del cantante. Durante la nota se acercó Roberto Pettinato (“El rock está lleno de boludos, acá viene un boludo”) pero no habló, se limitó a tocar el piano del lugar y a molestar lo suficiente como para no pasar desapercibido. 
+
+Prodan argumentaba en la entrevista que Sumo “pegaba” en Buenos Aires porque tenía una propuesta distinta al resto de los artistas argentinos. Aseguraba que la fuerza de la banda impactaba en el público. Contrastaba esa condición con la actitud de otros referentes locales y mencionaba a Fito, a quien describió como “más o menos un melódico”. “No es un aguerrido”, decía. 
+
+—Me parece que también tiene que ver con la edad. Yo empecé a cantar a los 27 años, no a los 19. Fito, que tiene 22, es un imberbe. A esa edad se la creen, piensan que son estrellas porque no saben, no vivieron. Yo estuve en la cárcel tres veces, aunque nunca le hice mal a nadie. También viajé en un yate por el Mediterráneo cada verano desde que era chico. Hice de todo. Estuve en todos lados. Yo viví, viví. Ahora no voy a creer que soy una “estrella de rock”. 
+
+Unas horas más tarde, Luca iba a cambiar de opinión sobre Fito, que en realidad tenía 23.  
+
+                                                                                    \*\*\*
+
+Fito no protestó por las condiciones de su habitación. La mayor parte de la estadía la pasó ahí, encerrado y poco amigable. El sábado, poco antes de las nueve de la noche, la organización lo trasladó hasta el predio. Recorrió los quince kilómetros que separaban el hotel de la cancha de Montevideo Wanderers, donde estaban los improvisados camarines para todos los músicos. Se quedó allí hasta el momento de subir a tocar. Abajo del escenario no tuvo contacto con demasiada gente. Se mantuvo retraído y tranquilo, sin hacer nada por sobresalir, algo que iba a cambiar de manera drástica una vez que comenzara a tocar. Esa noche iba a inaugurar una forma de actuar que iba a confundir a más de uno: la violencia para el escenario, la incertidumbre para la vida. 
+
+El show fue a las once en el Escenario A, destinado a los artistas principales. El B albergaba a grupos under que participaban de un concurso. Antes pasaron Legião Urbana, Sumo, Los Tontos y todos los de la noche anterior que pudieron dar el presente. El concierto de Fito iba a ser el anteúltimo de una jornada que debían cerrar Los Estómagos. 
+
+Era la primera vez que Fito tocaba en Uruguay. Hasta ese momento en Montevideo se lo conocía por algunas canciones que sonaban en la radio, como la versión de *La rumba del piano* con Caetano Veloso. Esa noche hubo un resumen actualizado y un anticipo de lo que se venía. Apareció vestido con lentes negros y ropa clara. Parecía indiferente, frío. Tomó el micrófono y lanzó una frase que se grabó en el recuerdo de varios de los presentes. “Me siento medio raro”, dijo ante una audiencia que no esperaba ese impacto. Fue una performance conceptual de rabia y amargura. Fito dio el primer concierto de su vida después de empezar a pensar que nada tenía demasiado sentido. Un show caótico, encendido, que funcionó como una descarga, a tono con lo que había mostrado unos días antes en la sala. La efervescencia escénica quebró toda distancia. La gente comprendió y se encendió. Una vez que todo estuvo claro no hubo vuelta atrás. Fabián Llonch cortó las cuerdas del bajo, algo que jamás le sucedía. Fabiana recibía gritos de “¡Loba, loba!” mientras Fito se entregaba tanto que dejaba asombrado a Luca Prodan, que había pasado la noche tranquilo, recorriendo el predio y mezclándose entre el público. En ese momento no podía fijarse en otra cosa. Miraba todo desde el backstage y decía “cómo está este pibe”, quizá pensando en que aquello que había declarado a la mañana ya no tenía sentido. Parecía la descripción de otra persona. 
+
+El estreno en público de *Ciudad de pobres corazones* no necesitó demasiadas explicaciones. “Esta semana pasaron muchas cosas y escribí esta canción”, dijo Fito. Alejandro Avalis y Lucho Garuti estaban al costado, alertas. Tenían miedo de que diera vuelta el piano, que dejara todo desparramado. Fue probablemente el momento más alto de un concierto que estuvo siempre arriba, como Fito, que se puso a saltar sobre el CP 70 para tocar las teclas con los talones de sus Topper blancas. Era una imagen elocuente: Fito estaba sostenido por la música, apoyado en las notas. Era alguien que se desbordaba a sí mismo.
+
+Cuando el show terminó, Fito salió casi arrastrándose, agotado, sujetándose de los hombros de sus compañeros. No le quedaba nada. Había ofrecido todo lo que tenía.
+
+
+
+---
+
+Federico Anzardi
+----------------
+
+ Federico Anzardi es periodista. Escribe en Rock Salta. En Twitter es [@federicoanzardi](https://twitter.com/federicoanzardi) 
+

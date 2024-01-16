@@ -1,0 +1,1 @@
+../../143379905595-sensatez-y-pensamiento.md

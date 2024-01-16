@@ -1,0 +1,1 @@
+../../187220241085-resonancias-magnéticas.md

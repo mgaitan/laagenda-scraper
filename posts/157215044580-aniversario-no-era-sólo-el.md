@@ -1,0 +1,52 @@
+# No era sólo el viento
+
+**Se cumple otro aniversario de**
+
+14 de febrero de 2017 - Aniversario
+
+_por Luciano Lahiteau_
+
+Link original: https://laagenda.tumblr.com/post/157215044580/aniversario-no-era-s%C3%B3lo-el
+
+![](https://64.media.tumblr.com/643d25e13c2ef9efd5f0281f0d92e43a/tumblr_inline_pjzzy3Roup1t6q87u_500.jpg)
+Unos 54 años atrás, una mañana de febrero de 1963, el fotógrafo Don Hunstein y el publicista Billy James golpearon en el 161° de West Fourth Street. Era uno de esos días que congelan las cañerías de Nueva York. Bob Dylan abrió la puerta y saludó con entusiasmo a los hombres: un año atrás habían trabajado juntos para su primer disco. Hunstein, que ya había retratado a Johnny Cash, Miles Davis e Igor Stravinsky, no logró disimular el rostro aniñado de Dylan, pero lo hizo sentir suficientemente relajado como para lograr un primer plano que dejaba ver los ojos grises y el gesto de inocente arrogancia. 
+
+![Katie Ledecky](https://64.media.tumblr.com/9d276a5a9c878fc5bb17d554b65a4b56/tumblr_inline_pjzzy4jBSy1t6q87u_400.jpg)Esta vez Dylan no llevaba boina ni campera. Su cabello estaba revuelto y largo. En el transcurso de un año muchas cosas habían cambiado. Hunstein y James entraron al departamento del tercer piso; un lugar “desolado”, pensó el primero. En una de las dos habitaciones había un sillón que Dylan había recolectado de la calle. Hunstein le indicó que se sentara en él y le diera una de sus miradas conscientes, profundas. Luego le sugirió que tomara su guitarra y se apoyara en uno de los brazos del sillón. En el otro puso su harmónica y, ahora sí, la boina negra del año anterior. 
+
+El modelo tenía aspecto moderno. Vestía una remera rayada y una camisa azul; se notaban la cabellera rebelde y los ojos todavía hinchados por el sueño. Pero Hunstein decidió que algo no cuadraba, y en un gesto insospechado y justiciero, invitó a la escena a Susan Rotolo, la chica que había estado mirando todo desde el inicio. Ella también tenía los ojos aletargados y el pelo sin peinar. Se ubicó detrás de su novio, con su suéter negro, y trató de sonreír. Pero el que sonrió fue Dylan, que empezó a cantarle olvidándose de Hunstein, que disparaba en el frenesí predador de ese momento luminoso.
+
+Pero aquello era un espasmo de algo que moría. La pareja se había conocido en julio de 1961, cuando ella tenía diecisiete años y él veinte. Fue en una maratón folk en la catedral de Riverside, al norte de Manhattan. Dylan y Suze -que había tomado su apodo del collage cubista de Picasso- fueron presentados por Carla, hermana mayor de la jovencita y asistente del músico y archivista Alan Lomax. Ella huía de su casa en un arrojo adolescente y él era un desconocido que pretendía emular a Woody Guthrie y Pete Seeger. En *Crónicas: Volumen 1*, Dylan escribió: “La flecha de Cupido había pasado silbando mis oídos antes, pero esta vez acertó en el corazón y su impacto me volteó. Conocerla fue como ingresar en los cuentos de *Las mil y una noches*”. Pronto se convenció de que Suze era lo más erótico que había visto en su vida y empezaron a salir. “Su sonrisa podía encender una multitud y era extremadamente vivaz; tenía un particular tipo de voluptuosidad, como una escultura de Rodin que cobró vida”. A la mañana siguiente, el *New York Mirror* consignaba su nombre por primera vez: “Bob Dylan, de Gallup, N. M., tocó la guitarra y la harmónica simultáneamente, y con rural *gusto*”.
+
+![Taekwondo](https://64.media.tumblr.com/1537e37463b360ab91c8ebcfe39cde31/tumblr_inline_pjzzy49WuY1t6q87u_400.jpg)Dylan y Suze en la clásica portada.Pocas semanas después, Suze tomó el subterráneo hacia Greenwich Village “sin mirar atrás”, según escribió en *A Freewheelin’ Time: A Memoir of Greenwich Village in the Sixties*. Era hora de hablar ese “lenguaje de indagación y curiosidad y rebelión contra la sofocante y represiva cultura política y social de la década que nos precedía”, y que Suze había comenzado a decodificar a través del prisma marxista de sus padres comunistas. Mamá Mary era editora de *L’unitá del popolo*. Su padre Joachim, muerto en 1958, había combinado arte y gremialismo junto a Charles Flato, escritor y respetado vecino de Cape Cod que resultó ser espía soviético, según se reveló una vez caída la URSS. 
+
+La vibración social que Suze percibía en la calle fue rápidamente sintonizada por Dylan, que la acompañó a marchas pacifistas y al Congreso por la Igualdad Racial. Ella lo instruyó en literatura de izquierda y derechos civiles. Aparecieron la poesía encendida de Rimbaud y el teatro crítico de Brecht. También la crónica policial de Emmet Till, el joven negro que fue asesinado a golpes por cortejar a una mujer blanca. Dylan hizo la canción y la estrenó en 1962. En ella, acusaba a la justicia y advertía que se llenarían de polvo las almas de quienes no denunciaran el crimen.
+
+Era demasiado cándido, pero era un avance. “Creo que es lo mejor que he escrito nunca”, dijo Dylan en aquel momento. “Cuántas noches me he levantado y he escrito canciones para mostrárselas a Suze y preguntarle, ‘¿está bien esto?’. Porque sabía que ella y su madre estaban en el tema de la igualdad y la libertad mucho antes que yo. Chequeé las canciones con ella. Le gustaron todas”. Esas canciones eran “Blowin’ In The Wind”, “Masters Of War” y “A Hard Rain’s a-Gonna Fall”, elegida por Patti Smith para la ceremonia del Nobel en 2016. 
+
+![Katie Ledecky](https://64.media.tumblr.com/872dae391029a0158f6318bb1f32115c/tumblr_inline_pjzzy5yPz51t6q87u_400.jpg)“Él tenía un aspecto anticuado, era encantador pero de un modo disperso”, escribió Suze. “Le di un panorama de cómo vivía la otra mitad de la gente, cosas de izquierda que él no conocía”. “Era excéntrico –recordó la cantante folk Sylvia Tyson–. Pero excéntrico en esa forma sobreactuada en la que la gente muy joven lo es, para hacerse los interesantes”. Con todo, Suze se instaló en el departamento del Village que Dylan alquilaba gracias al contrato con Columbia. Ella era menor, lo que los obligó a un concubinato clandestino. El trovador ahora producía como una rotativa, un furor creativo que tomó nuevo rumbo el 9 de junio de 1962, cuando Suze viajó a Perugia para estudiar arte.
+
+Al registrarse en su hotel, la joven descubrió que le esperaba correspondencia de su doliente novio. Era una serie de cartas que mezclaba enamoramiento juvenil, poemas de Byron y un malhumor supurante. “Traté de figurarme a este muchacho que me llamaba para volver a casa con él, escribiendo cartas de amor, mientras que cuando estaba allí parecía tomar mi presencia como algo supuesto”, escribió Suze, que no regresaría hasta enero de 1963. En ese lapso, en el que ella conoció a Enzo Bartoccioli, el productor de cine que sería su esposo, las canciones de Dylan dejaron de lado la cuestión social y se fundieron por primera vez con su vida íntima. Brotaron como yuyos “Down the Highway”, “Honey, Just Allow Me One More Chance”, “Bob Dylan’s Blues” y la melodramática “Don’t Think Twice, It’s All Right”, que irán a *The Freewhelin’ Bob Dylan* (1963) e hilarán una saga de ruptura doce años antes de *Blood On The Tracks* (1975).
+
+“Don’t Think Twice, It’s All Right” cargaba las culpas sobre Suze y preanunciaba el final: “Cuando tu gallo cante al alba / mirá por la ventana / y yo me habré ido”. Su autor la definió como “una afirmación que podés hacer quizá para sentirte mejor; es como si te estuvieras hablando a vos mismo”. Pero la suerte parecía estar echada: “Es inútil que enciendas tu luz, muñeca. / Yo estoy en el lado oscuro de la calle”. Dylan se ponía intensamente siniestro. “Había algo como cadavérico” en él, notó Suze a su regreso. No solo estaban esas canciones llenas de rencor, sino también sus “11 Outlined Epitaphs”, donde parecía acariciar a su amada desde la muerte: “ella es la verdadera adivina de mi alma / quizás la única”. 
+
+![ganchos](https://64.media.tumblr.com/643d25e13c2ef9efd5f0281f0d92e43a/tumblr_inline_pjzzy3Roup1t6q87u_500.jpg) Dylan, Rotolo y su madre Mary Pezzati, cuando los tiempos estaban cambiando.
+La luz se acaba, pensó Hunstein. Tomen sus abrigos y vamos hacer unas fotos a la calle, indicó. Afuera había un cielo blanco y una brisa helada que provenía del Hudson, distante ocho cuadras en dirección este. Dylan eligió una campera delgada e inútil, que era su preferida. Suze se puso un suéter más y un saco gris, que la hicieron sentir una salchicha. “Siempre que miro esas fotos pienso que me veo gorda”, dijo al *New York Times* en 2008, tres años antes de su muerte. Hunstein hizo tomas en la bajada del edificio y propuso que caminaran por Jones Street, donde capturó la icónica imagen: Dylan muerto de frío y Suze radiante, mostrando la dentadura y mirando a cámara.
+
+Es el último tiempo de felicidad de la pareja. Y quizás la primera vez que un músico comparte la portada de su álbum con alguien que no estaba directamente involucrada en él. En marzo, Dylan tocó con Joan Baez por primera vez, y cuando volvieron a hacerlo en julio todos sabían que eran amantes. Suze abortó un hijo de Dylan y marchó a la casa de Carla. “No podía lidiar con tanta presión, chisme, verdad y mentira que vivir con Bob Dylan implicaba”, escribió luego en sus memorias. Dylan acompañó el trance médico, intentó recuperarla y ya fracasado lanzó la agria “Ballad in Plain D”, de la que se arrepentiría en 1985.
+
+“Yo sabía que era artista, pero me gustaban la poesía y el teatro, me encantaban muchas cosas, mientras él sabía qué quería y fue a buscarlo”, resumió Suze cuando volvió a hablar de Dylan, quien había sido “un elefante en la sala” de su vida durante décadas. “Eventualmente, el destino dio sus señales y llegamos a un final. Tuvo que terminar. Ella tomó un una dirección en el camino y yo otro”, esbozó Dylan en *Crónicas*.
+
+Antes de que el turbulento 1963 terminara, Suze se recompuso y viajó a Cuba pese al cerrojo establecido por Kennedy. Conoció a Castro y a Guevara y continuó sus estudios de arte. “Ella es el remordimiento más grande de su vida –sostuvo Tyson, que fue buena amiga de los dos–. Y fue toda su maldita culpa”.
+
+  
+
+
+
+
+---
+
+ Luciano Lahiteau
+-----------------
+
+ Luciano Lahiteau es periodista y vive en La Plata. Publicó en De Garage, Rolling Stone, Brando, Radar y Pequeña Babilonia, entre otros medios. Desde 2013 conduce el programa Larga Duración, en Radionauta FM 106.3. En Twitter es [@LucianoLahiteau](https://twitter.com/lucianolahiteau%E2%80%9D%20target=) 
+

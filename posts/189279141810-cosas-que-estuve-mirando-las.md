@@ -1,0 +1,42 @@
+# Las armas secretas
+
+**En la quinta temporada de**
+
+25 de noviembre de 2019 - Cosas que estuve mirando
+
+_por Juan Andrade_
+
+Link original: https://laagenda.tumblr.com/post/189279141810/cosas-que-estuve-mirando-las
+
+![](https://64.media.tumblr.com/41eed15f19a32ae7877710825c4be7e4/9881ced55ee1124a-39/s500x750/9b530dda09ffb3afe2a2426a1d0f66923e102dc8.jpg)### *Peaky Blinders* (Netflix)
+
+La quinta temporada de *Peaky Blinders* no tiene un comienzo precisamente auspicioso. Tommy Shelby (Cillian Murphy), nuestro antihéroe de los bajos fondos, ahora es representante de Birmingham en la Cámara de los Comunes de Londres. Sus pensamientos y sus modales parecen ceñirse a las formas de la diplomacia parlamentaria y las preocupaciones de un nuevo rico. Pero justo cuando esa sensación amenaza con estabilizarse, la historia vuelve a su cauce natural, arrastrada por el río turbulento en el que navega la familia Shelby, entre pactos mafiosos, negocios ilegales y ambiciones desmedidas. Estamos en pleno Crack del 1929 y el clan está al borde la bancarrota por culpa de una mala decisión de Michael en la Bolsa de Nueva York. Aunque se codeen con las altas esferas de la política y la economía británica, para volver a salir a flote deben reagrupar fuerzas y diversificar sus actividades al margen de la ley. Si, como decía Balzac, “el secreto de las grandes fortunas es un crimen olvidado efectuado con limpieza”, los Shelby no tienen ningún apuro por dejar atrás su fuente de ingresos original.
+
+Las referencias históricas concretas nunca estuvieron tan marcadas en el desarrollo de la serie de la BBC como en esta nueva entrega. Y no solo porque el mismísimo Winston Churchill (Neil Maskell) interviene en uno de los capítulos, sino también porque gran parte de la trama está centrada en el ascenso de la Unión Británica de Fascistas liderada por Oswald Mosley (Sam Claflin), que busca en Tommy a un aliado, pero acaba por erigirse en su principal antagonista. Mientras el país y el mundo entero se encaminan hacia su noche más oscura, los Shelby atraviesan una crisis profunda que remueve los cimientos sobre los que se asienta la familia. Cada miembro es empujado por los acontecimientos a traspasar límites que creía infranqueables, pero Tommy directamente pisa el borde de su propio abismo perseguido por sus fantasmas. La banda de sonido, como siempre, está a la altura de las circunstancias: Black Sabbath, Joy Division, Nick Cave, Radiohead y Anna Calvi, entre otros, alimentan un crescendo que en su punto culminante deja clavado un anzuelo grande como el Big Ben.
+
+### *Juansebastián*, de Diego Levy (Se proyecta los domingos a las 20 en el Malba)
+
+El contraste que marca *Juansebastián* queda claro de movida. En la apertura del documental de Diego Levy (*All inclusive, Masterplan*), los títulos desfilan sobre un registro crudo de un recital de los Ratones Paranoicos en Cemento allá por 1989. Juanse y sus compinches hacen una versión salvaje, casi punk de “Enlace”. Y la imagen de la espalda del cantante retirándose del escenario del mítico antro hace ya tres décadas se funde, edición mediante, con su entrada al templo de la iglesia de la rama carismática a la que asiste todas las semanas. ¿Qué pasó con el animal rockero que unos minutos atrás surfeaba sobre las cabezas de su público? ¿Es la misma persona que ahora lee un pasaje de la Biblia en la misa de Pascua y entona a la par de los demás fieles canciones de fe y devoción? El director no ensaya respuestas sino que se aproxima al misterio de semejante conversión como nadie lo había hecho antes, con una mezcla de curiosidad y respeto que toma distancia del chiste fácil que suele despertar el tema. 
+
+Obviamente, el trabajo de Levy no se encuadra en el típico documental de rock. Cámara en mano, sigue a Juanse en su peregrinación por salas de ensayo, camarines y escenarios. Pero también lo acompaña al Vaticano para registrar su soñado encuentro con el Papa Francisco. *Juansebastián* se centra en la doble vida que parece llevar esta curiosa especie de Jekyll y Hyde del palo. El músico no baja línea ni predica la fe de los conversos. Además del protagonista, los que hablan en la película y dan cuenta de su fervor religioso son sus afectos más cercanos. Y lo hacen sin solemnidad, con dosis de humor. Su hijo Daland dice que no cree en Jesús, pero que gracias a él su padre sigue con vida. Su mujer cuenta que su primer acercamiento a la iglesia fue para pedir por la salud de su adorado amigo Spinetta. Su madre le enrostra que la institución a la que tanto defiende también tiene su vertiente oligárquica y conservadora y, en ese duelo verbal lleno de afecto, se iluminan pasajes enteros de la biografía de este hombre que, sin renunciar a su evangelio rockero, encontró un nuevo camino cerca de dios. 
+
+### *Máquinas como yo*, Ian McEwan (Anagrama)
+
+¿Sueñan los androides con ovejas eléctricas? Por lo que puede leerse en *Máquinas como yo*, la respuesta es negativa. Durante la madrugada, los robots recargan sus baterías y aprovechan el tiempo muerto para navegar Internet en busca de saciar su infinita sed de información. El propio Ian McEwan confesó que una de las fuentes de inspiración para su última novela fue *Blade Runner* y, por extensión, el libro de Philip K. Dick en la que se basó parcialmente. Incluso contó que una de las escenas culminantes de la novela enmascara una cita de la película de Ridley Scott. Pero el autor de *Expiación* y *Sábado* no sitúa a la acción en un futuro más o menos lejano, sino en la Londres de 1982. Inglaterra perdió la guerra de Malvinas, la sociedad es un hervidero y el thatcherismo atraviesa una crisis terminal cuando, en distintos países, un exclusivo grupo de compradores accede a la reducida partida de humanoides que acaba de lanzarse al mercado.
+
+![Katie Ledecky](https://64.media.tumblr.com/1642a43b62fbdd7b073646295f9ecbe2/9881ced55ee1124a-f2/s400x600/c57bd494d1aa603becf6132116f1147cc7a8eecc.jpg)Entre ellos se anota Charlie Friend, el protagonista de esta ucronía que reescribe la historia política y bélica de Gran Bretaña, pero también la de la tecnología y la inteligencia artificial. Vive en un departamento londinense, se gana la vida apostando pequeñas cantidades en la bolsa de valores desde su computadora hogareña y, cuando recibe una considerable herencia, decide gastar 86 mil libras en un “Adán” (ya no quedan “Evas” disponibles). La curiosidad de descubrir cómo piensan estos prodigios de la ciencia, capaces de plantear dilemas filosóficos, es tan fuerte como la fantasía de que su nueva adquisición puede ayudarlo a despertar en su vecina Miranda un interés que vaya más allá del trato amistoso. Sobre esta base, el autor construye un triángulo amoroso impensado, porque Adán también es capaz de “enamorarse”. McEwan lleva su maestría para narrar el flujo de conciencia de sus personajes a un nuevo nivel, porque en este caso se trata de entender cómo funcionan los circuitos mentales de un robot.
+
+Esta incursión de McEwan en la ciencia ficción dialoga menos con la línea dura del género que con obras como *Nunca me abandones*, de Kazuo Ishiguro, otro integrante del denominado *dream team* de la literatura británica. El hecho de ambientar a la novela en ese escenario histórico y no en, pongamos, 2032, quizás termina debilitándola en términos de verosimilitud, pero la idea de plantear un desarrollo tan temprano de la inteligencia artificial parece responder a un acto de justicia poética: en la ficción, el científico Alan Turing no se suicidó en 1954, atormentado por la condena a la que fue sometido por su homosexualidad, sino que es un lúcido anciano que disfruta de su condición de pionero del mundo digital. Y cuando emerge como personaje secundario en la trama, subraya una diferencia sustancial. “Hay una forma particular de inteligencia que todos los Adanes y las Evas saben que es superior a la suya”, dice. “Hablo de la mente de un niño antes de que se le hayan asignado tareas en forma de hechos y cuestiones prácticas y metas. Los Adanes y las Evas tienen poca comprensión de la idea del juego, la forma capital de exploración del niño”.
+
+  
+
+
+
+
+---
+
+Juan Andrade
+------------
+
+ Juan Andrade es periodista musical. Trabaja en la revista *Acción* y colaboró y colabora en el suplemento *Radar* y las revistas *Rolling Stone* y *Tres Puntos*, entre otras. Es autor de la novela *Canción familiar*. En Twitter es [@andradecholo](https://twitter.com/andradecholo?lang=es) 
+

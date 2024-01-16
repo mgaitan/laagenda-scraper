@@ -1,0 +1,47 @@
+# El libro de la naturaleza
+
+**La cantante y actriz Rosario Bléfari indaga la intimidad y el encanto de lo primitivo en**
+
+9 de marzo de 2017 - Libros
+
+_por Osvaldo Aguirre_
+
+Link original: https://laagenda.tumblr.com/post/158189396985/libros-el-libro-de-la-naturaleza
+
+![](https://64.media.tumblr.com/5fe9b8b778e70eb660fdfe673a16bb95/tumblr_inline_pjzrfyVNx61t6q87u_500.jpg)
+ “Siempre escribo”, dice Rosario Bléfari en una nota biográfica. Sin embargo, ese aspecto de su producción suele aparecer en segundo plano detrás de su trabajo como cantante y actriz. Parece obligatorio recordar que formó parte de la banda de rock Suárez, que protagonizó la película *Silvia Prieto*, siguió su carrera solista y después armó otra banda, Sue Mon Mont. Leídos en ese marco, sus poemas y textos narrativos provocan un efecto extraño, introducen puntos de fuga hacia cuestiones específicas, notas y observaciones que sería inútil rastrear en sus canciones, como si la imagen de la artista no pudiera capturarse en una definición estable y la dirección de sus movimientos comportara un amplio margen imprevisible.
+
+
+
+*Antes del río*, el libro que Bléfari publica en Mansalva, se propone como un conjunto de poemas en prosa. Pero los textos se ajustan al género de la misma manera que los de *Mis ejemplos* (2016), publicado en Chile, corresponden al relato, o *El cuerpo mártir* (2014) a la novela corta: de una manera libre, intervenida por otras formas; un cruce que en el caso de los poemas pasa por el diario de viaje, las cartas, el cuaderno de apuntes y el muro de Facebook.
+
+El río como imagen del cambio es una de las metáforas más antiguas de la literatura. También un motivo particular de la poesía, con hitos como “Fui al río”, el poema de Juan L. Ortiz que relata el pasaje de ser un simple observador a compenetrarse en el misterio y los dramas desconocidos del paisaje. “Me gustó que el río apareciera en el título del libro como tiempo y lugar –dice Bléfari–. Antes y después de ese río está lo que fuimos y lo que seremos, un río que nos inunda y se lleva cosas pero también deja, un río que se cruza para irse y volver, del otro lado lo que nos espera o lo que ignoramos. Antes está también el cómo nos disponemos a sumergirnos, atravesarlo, remontarlo, si vamos a dejarnos llevar o cómo vamos a cruzarlo. Antes existe el momento previo a lo vivido”.
+
+![Katie Ledecky](https://64.media.tumblr.com/64797e0413e8f2eb36b70986eed7fc22/tumblr_inline_pjzrfyDJrD1t6q87u_250.jpg)El primer poema, “La gruta”, cuenta el descubrimiento de una especie de lugar secreto. El narrador tiene las instrucciones para llegar anotadas en un cuaderno al que arroja al río, como si quisiera resguardar el secreto. El río va y viene en lo sucesivo. Bléfari puntualiza algunas de sus apariciones: en “Bicicletas”, una carta dirigida a la hija desde una ciudad en la que deambula hasta sentarse cerca de un río, cuya cercanía parece tener un efecto tranquilizador; en “Bandada” se menciona al Paraná, un dios tutelar; en “Todos somos todos”, escena en un bar donde la televisión informa sobre una crecida, “se habla del río que se desborda, y de forma indirecta aparece como camino de agua”.
+
+La presencia del río significa también la de un espacio contrapuesto al de la vida cotidiana que transcurre en la ciudad. La escritura de Bléfari tiene un sensor particularmente atento a las mínimas apariciones del entorno, las estaciones y los estados del tiempo: las tormentas, el viento –“yo siempre tengo el viento en la punta de la lengua y sopla o se aquieta pero trabaja conmigo a toda hora”, escribe–, los jazmines que se adelantaron, el vuelo de una avispa, un rosal entre los pastos, ingresan en sus textos como señales propicias del exterior. La naturaleza proporciona una especie de modelo: “¿Está usted dispuesto a hacer algo único que a lo largo del tiempo se mantenga casi exacto como las peras o el canto del zorzal?”, se pregunta en “Alfajores”. Y también una salida hacia un orden desconocido y por eso más estimulante.
+
+¿Qué busca a través de la escritura? “Quisiera mil cosas con mi escritura, cosas que me propongo buscar y trabajar –contesta–. Por ejemplo quisiera escribir perdiendo cada vez más la ropa del lenguaje, el ademán excedente, la referencia innecesaria, ser cada vez menos acicalada, menos solemne. Admito que me encanta también un aspecto del juego de las palabras donde se demuestra alguna pirueta, me gusta la danza, pero aspiro a perder todo artificio pomposo; quisiera en todo caso hacerlo de manera más sutil y que cada vez parezca más simple, más fluido, pero a la vez no por eso evitar lo complejo, ni lo ambiguo, ni la construcción caprichosa o detallada, si lo requieren los asuntos que se tratan”. 
+
+En uno de los poemas del libro, “Las partes íntimas”, la intimidad aparece como un espacio inaccesible para el mundo –“no hay libre acceso para nadie”– y a la vez imposible de retratar. “No hay formas de exponer la intimidad, es un poco lo que habla el poema –plantea Bléfari–. Si se expone no es íntimo. Y además la pregunta es ¿qué es lo íntimo en relación a lo textual? Así como es una ilusión la exposición, lo es la intimidad, por lo menos desde la construcción de la palabra. La lengua teje hacia afuera, expone, suena, esa es la única exposición posible, la de sí misma, y está hecha de un material externo que compartimos aunque procesado y realineado por cada uno”. 
+
+![ganchos](https://64.media.tumblr.com/5fe9b8b778e70eb660fdfe673a16bb95/tumblr_inline_pjzrfyVNx61t6q87u_500.jpg) Los poemas de Bléfari dan cuenta de una búsqueda por desaprender lo recibido. Escribir no funciona en el sentido de mostrarse, como sugiere “Fragmento autobiográfico”, una irónica enumeración de anécdotas sin mayor importancia. Pero a primera vista la portada del libro es un gesto extremo de exposición: un desnudo de Bléfari, fotografiado por Nora Lezano. “Le comenté al editor, Francisco Garamona, que había estado pensando en algunas de las fotos de hace más de quince años de una sesión con Nora Lezano –cuenta–. Primero, porque me gustaban mucho y me gustan los retratos de Lezano en general, y porque dialogaban con el título en relación a un tiempo anterior. También, estar en la tapa sin ropa es un intento de despojarse de otras connotaciones que la vestimenta impone. Y en ese despojo de las señales conocidas estar desnudo es el misterio mayor, como la capa de la invisibilidad”.
+
+De joven posaba para la pintora Diana Aisenberg y para su taller. “Desde entonces guardo una relación desinhibida con el cuerpo desnudo -dice-. Ya no soy la de la foto y eso también me interesaba: ya no ser exactamente esa, siendo la misma que escribe y que también es un cuerpo que se altera, aunque ya no esté presente cuando se lee su producto”. El juego de la misma y la otra y las alteraciones del cuerpo también pueden seguirse en su actuación en *La idea de un lago*. La película de Milagros Mumenthaler, que se estrenó el 2 de febrero, cuenta la historia de Inés (Carla Crespo), hija de un desaparecido, en dos tiempos, el de la infancia y el de la juventud, cuando prepara un libro de fotografías y espera un hijo. Bléfari interpreta a la madre, y su imagen con el gesto adusto, la actitud reconcentrada y el pelo encanecido en principio parece irreconocible. “Tuvimos muchos ensayos de actuación, construyendo la relación de madre e hija, trabajando sobre las distintas edades de mi personaje, charlando con personas que atravesaron experiencias similares, leyendo memorias de esposas de desaparecidos”, recuerda.
+
+La experiencia previa cuenta hasta cierto punto. Los poemas de Antes del río dan cuenta de una búsqueda por desaprender lo recibido, para reencontrar el misterio original de las cosas, la emoción del descubrimiento. “Es que la experiencia, en el sentido de lo que se ha vivido, es el cómo se ha vivido, de qué manera eso nos afecta y cómo nos lleva hacia el paso siguiente –dice–. Los hechos vividos no son de por sí relevantes para la práctica artística. Pero la práctica artística es parte de nuestras experiencias y como tales nos afectan. A veces la percepción del mundo se altera después de ver una película o leer una novela”.
+
+Bléfari podría suscribir lo que dice uno de los personajes de su nouvelle *El cuerpo mártir*: “Que las historias que escribimos hablen por nosotros”. Es decir, sin necesidad de recurrir a otras referencias. “No hace falta haber recorrido el mundo o haber vivido un gran drama para ser un artista –agrega–, alguien puede vivir su vida entera en una casa y su jardín como la poeta Emily Dickinson. Finalmente, la experiencia es lo que hacemos con lo que nos pasa, o es lo que nos pasa con lo que pasa. A partir de este razonamiento, la experiencia es materia del arte como lo es el mismo arte. El arte es una experiencia y la importancia que le damos al contacto con el mundo y sus habitantes es indispensable para enriquecer esa experiencia, sea desde la sencillez de una vida rutinaria como desde quien vive aventuras asombrosas. No van por carriles diferentes, ni arte, ni experiencia, ni vida”. *Antes del río* es el paso hacia ese punto de encuentro. Como escribe en “Inercia”, el poema final: “Ahora el movimiento depende de nosotros”.
+
+  
+
+
+
+
+---
+
+Osvaldo Aguirre
+---------------
+
+ Osvaldo Aguirre es periodista, poeta y escritor. Trabajó en la sección Cultura del diario La Capital de Rosario. En Twitter es [@campoalbornoz](https://twitter.com/campoalbornoz) 
+

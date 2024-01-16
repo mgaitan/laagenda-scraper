@@ -1,0 +1,45 @@
+# El héroe en la reserva
+
+**Colaborador habitual de Scorsese y ex líder de The Band, Robbie Robertson sigue híperactivo a los 76, escribiendo sobre los derechos indígenas.**
+
+22 de octubre de 2019 - Vidas
+
+_por Juan Carlos Diez_
+
+Link original: https://laagenda.tumblr.com/post/188499050275/vidas-el-h%C3%A9roe-en-la-reserva
+
+![](https://64.media.tumblr.com/8f79dc0faa1e1e15cd49c131ca013c86/5958442eace812ac-75/s500x750/5b1ef2e7e6945e8a65585b2efb786185775c809c.jpg)
+Tenía unos ocho años y estaba sentado en la cocina de su casa en la carretera Second Line, en Toronto, Canadá. Sus tíos y primos estaban tan absortos tocando y cantando que él sintió como nunca antes el llamado de la música. Robbie Robertson vivía en la reserva india Seis Naciones junto a su madre Dolly, india mohicana. “Fue una revelación, la primera vez que sentí el poder de la música. Las voces fundiéndose en una sola, las guitarras, a veces una mandolina o un violín se unían a los tambores de madera o a los que fabricábamos con bidones de plástico. Era el único entretenimiento en la reserva y todo lo hacíamos nosotros a mano; nadie tenía dinero para comprarse un instrumento. Siempre habían bailes y cánticos en el Gran River, un lugar de una belleza extraordinaria”, relata en su autobiografía de 600 páginas *Testimonio*, editada en 2017 y escrita durante cinco años. 
+
+Su madre Rose Marie Chrysler, con gran esfuerzo le compró una guitarra con un cowboy pintado. “Fue muy irónico que los indios me enseñaran a tocar con una guitarra con la imagen de un cowboy”, sonríe ahora, a los 76 años y después de haber trajinado todas las rutas del rock & roll imaginables. Hiperactivo, más que nunca, Robertson compuso la música de *[Irishman](https://www.youtube.com/watch?v=1Expe7hf6MU)*, la nueva y esperada película de su amigo Martín Scorsese; realizó el documental –ayudado por Scorsese y estrenado en septiembre en el Festival de Toronto, con auspiciosas críticas– *Once Were Brothers: Robbie Robertson and The Band*, mientras festeja los 50 años del álbum *The Band*, ícono que contiene temas históricos de Robbie como “The Weight” y “The Night They Drove Old Dixie Down”. Por si fuera poco, hace un mes salió su nuevo disco, el sexto de su carrera solista, *Sinematic*, con una pintura suya en la tapa, canciones confesionales y acentuadas bases rítmicas.
+
+Su relación con Scorsese se remonta a la producción sonora y musicalización de películas del director como *l toro salvaje*, *El color del dinero*, *El rey de la comedia*, *Pandillas de Nueva York* y *Casino*, entre otras. La última fue *Silencio*, en 2016. Scorsese, que en su juventud fue uno de los camarógrafos del Festival de Woodstock, es un apasionado de la música que realizó varios documentales como *Shine A Light*, con The Rolling Stones, *No Direction Home* y el reciente *Rolling Thunder Revue*, ambos con Bob Dylan, y *Living In The Material World*, sobre la vida de George Harrison. Pero quizás *The Last Waltz*, el concierto despedida de The Band, grabado el 26 de noviembre de 1976, sea su más emotivo documento musical. Allí participaron Bob Dylan, Joni Mitchell, Van Morrison, Muddy Waters, Neil Diamond, Neil Young, Ronnie Hawkins, Dr John y tantos otros. Además, incluía entrevistas a los músicos. “El cine es otra de mis grandes pasiones, siempre leí guiones de películas clásicas y muchas de mis canciones se inspiraron en ellas. Me interesa contar historias. ‘The Weith’ está influenciada por *Viridiana* y *Nazarín*, de Luis Buñuel”, contó el músico que llegó a actuar en la película *Carny* junto a Jodie Foster.
+
+Pero, ¿quiénes eran The Band? Un grupo muy particular que comenzó siendo The Hawks, acompañando a Ronnie Hawkins y tocando el rock & roll más salvaje del mundo, al que luego abandonaron para ser Levon and The Hawks. En 1965, Robbie Robertson fue convocado por Dylan para realizar un radical cambio en su carrera y dejar de ser el cantante folk clásico para tocar una guitarra eléctrica y acompañarse por un grupo. Robbie arrastró con él a sus amigos que terminarían llamándose The Band. El grupo se fue a vivir a Woodstock y transformó el sótano de la casa rural en un taller de experimentación del que surgieron discos emblemáticos como el álbum debut *Music From Big Pink*, de 1968, que ejerció una gran influencia en artistas como George Harrison, Eric Clapton, Bruce Springsteen y Van Morrison. Antes recorrieron Estados Unidos y Europa con Bob Dylan, siendo sistemáticamente insultados en todo lugar en el que se presentaban por meterle electricidad a la música de Dylan. “Llegó un punto en que, alentados por Bob, ya no nos importaba”, supo declarar.
+
+The Band, desde su imagen, su rechazo a la exposición, la particularidad de que el principal cantante, Levon Helm, era su baterista, sin olvidarse de Rick Danko, bajista y dueño de una voz con influencias souleras y el personaje medieval, el tecladista Richard Manuel y el multiinstrumentista Garth Hudson, con influencias de la música clásica, sumados a la guitarra y las composiciones de Robertson, dejaron su impronta en el estilo musical llamado “Americana” y el rock & roll.
+
+Después de escribir cientos de canciones no autobiográficas, inevitablemente la muerte de tres de los integrantes de The Band lo llevó a rememorar a sus “hermanos”, tanto en su flamante disco como en el documental en donde Robertson es el único músico del grupo que habla. Además de Robertson, el otro integrante vivo es Hudson, de 82 años, que aún vive en Woodstock y es un ermitaño con problemas de salud.
+
+Rick Danko siempre tuvo problemas con el alcohol y la adicción. Se suicidó a los 42 años. Levon Helm y Richard Manuel, además, eran adictos a la heroína. “Yo también probé pero no era para mí. Si fumas porro o tomaste ácido no estás en condiciones de juzgar a nadie. En aquellos años no conocí a ninguna persona que no tomara drogas. Era lo normal. Yo descubrí que se interpuso en nuestro camino perjudicándonos. Entonces me refugié en el trabajo y todavía sigue siendo así”, declaró recientemente, este artista multipremiado en su país y en los Estados Unidos.
+
+![ganchos](https://64.media.tumblr.com/74cbef12542e2fdea288920d682a0716/5958442eace812ac-8b/s500x750/ad4d785df3e86f60eae0ab98eab2196509497abb.jpg)Robbie junto a Scorsese, en 1978, antes de la presentación de The Last Waltz.Su relación actual con Bob Dylan es más distante, aunque aún lo considera parte de aquella “hermandad”. “Cuando la gente te abuchea noche tras noche puede afectar tu confianza, pero nosotros no cambiábamos; al contrario, tocábamos cada vez más fuerte. Era como ir a la guerra juntos. Él hoy sigue girando todo el tiempo y yo no salgo nunca de gira. Éramos como hermanos y aún lo recuerdo, en 1965, tecleando su máquina de escribir sin parar, en medio de una habitación de hotel llena de gente. Nunca volví a ver a nadie concentrarse así en su mundo”.
+
+La carrera solista de Robbie Robertson marcó un punto de inflexión en su carrera, con composiciones y producciones diferentes. La realización del documental para la televisión *Native Americans*, del que hizo la música con su banda The Rod Road Ensamble, en 1994, y su disco posterior *Contact From The Underworld Of Red Boy*, en 1998, fueron dos experiencias trascendentales. En ellas, parte de sus raíces indias y su marcado apoyo a sus causas se mixturaron con su propia música de una manera magistral. La llamada fusión no fue, como ocurre en muchos casos, un híbrido; aquí, el músico puso en juego no sólo su creatividad como guitarrista y compositor sino que su veta de productor artístico se desplegó en toda su potencial. Los diferentes planos sonoros, la variedad tímbrica, la amalgama perfectamente ensamblada de las voces y tambores indígenas con instrumentos eléctricos, lograron un resultado sorprendente. 
+
+El disco *Native Americans* es el relato del exterminio de una raza y la apropiación de sus tierras. Su último tema es paradojal: un canto colectivo improvisado de indios e indias y tambores que llega a un verdadero trance. Fue grabado de noche en un estudio en Manhattan, en un rascacielos desde donde se veía, imponente, toda la isla. Un canto ancestral elevado no sólo a las alturas de un edificio. Ese concepto de creatividad y libertad continuó en *Contact From The Underworld Of Red Boy*, con la voz desde prisión del activista lakota Leonard Peltier como fondo del tema “Sacrifice”, en medio de una envolvente base rítmica. O la canción chamánica de los Peyote Healers, y sus voces curativas grabadas bajo los efectos del peyote. 
+
+Hoy Robbie Robertson, imparable, está escribiendo la segunda parte de sus encantadoras memorias. Y advierte, a sus 76: “No voy a ponerme quejoso, sentimentaloide o pegajoso. No estoy hecho de ese material”. Como si la sangre india que corre por sus venas siguiera en esa cocina de la reserva Seis Naciones, soñando con tener por primera vez una guitarra entre las manos. 
+
+  
+
+
+
+
+---
+
+Juan Carlos Diez
+----------------
+
+ Juan Carlos Diez es periodista y escritor. Autor del libro *Martropía: Conversaciones con Spinetta*. 
+

@@ -1,0 +1,1 @@
+../../626972851908575232-casa-de-empeños-tiempos.md

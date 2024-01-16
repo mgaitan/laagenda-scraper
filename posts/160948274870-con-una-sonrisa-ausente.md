@@ -1,0 +1,55 @@
+# Con una sonrisa ausente
+
+**“Vos sos de la B” parecía una marca indeleble. Pero nos levantamos, más grandes. Desde entonces nos sentimos felizmente plebeyos, como nunca.**
+
+22 de mayo de 2017 - Fútbol
+
+_por Damián Huergo_
+
+Link original: https://laagenda.tumblr.com/post/160948274870/con-una-sonrisa-ausente
+
+![El artista más grande del mundo](https://64.media.tumblr.com/79b1ee3b658c45e832d589ba176b1b7f/tumblr_inline_pk12a4fRk11t6q87u_500.jpg)Leí poco y mal a Spinoza. Lo que conozco de su obra, lo que cito de memoria, me llegó de la forma más spinoziana posible: por amigos. En especial por un amigo bostero. Y de él aprendí o tomé o copié, que tenemos que sacar la mejor versión posible de las personas que realmente queremos. Al fin y al cabo, esa es una de las caras más nobles del amor. Por eso, en la semana previa al superclásico no contesté ni uno solo de los mil mensajes de whatsapp que me enviaron. Apelando a una sabiduría que desconocía en mí, no entré en la jerga del folclore ni de las cargadas en loop. El día del partido, el domingo pasado, apague el celular. Y, en un marco costumbrista de asado, vino, pategras y harinas que estremecería a los guionistas de Pol-Ka, me dispuse a ver el partido con todas las gallinas de mi familia. Esa era la fiesta prometida, la fiesta que me llenaba, nuestra fiesta. Y hoy, días después, con una sonrisa eterna clavada en la boca, pienso que a ese estado de calma no hubiese podido llegar si no hubiesen ocurrido, en los últimos años, dos situaciones trascendentales: el descenso a la B y la aparición del Muñeco Gallardo como técnico de River.
+
+
+![El artista más grande del mundo](https://64.media.tumblr.com/79b1ee3b658c45e832d589ba176b1b7f/tumblr_inline_pk12a4fRk11t6q87u_500.jpg)Los primeros años de amorMi escolarización informal fue en canchas de fútbol. Jugué en clubes de baby barrial, en las inferiores de Los Andes (mejor dicho, ocupe sistemáticamente un lugar en el banco de suplentes: un modo de mirar el mundo), en la calle y baldíos. Ahora, con treinta y algo encima, juego en canchitas urbanas, sintéticas, de césped almidonado, que funcionan como una especie de laboratorio de producción serial de futbolistas amateurs. No sólo como jugador, el fútbol fue mi primer vocabulario. También lo fue como hincha. Soy de River igual que el puzzle de hermanos y medio hermanos que tengo. En tanto hijo de padre divorciados, la cancha fue nuestro hogar compartido. Luego me independicé y corté el cordón umbilical: pasé de la platea con mi viejo y hermanos a la popular con amigos, de local y visitante.
+
+
+La cuestión es que en cierto momento el lazo sentimental que me unía al club se quebró. El modelo agroexportador de jugadores; la subjetividad exitista de números y cálculos; la escasez de jugadores símbolos; el juego nefasto que promueven ciertos técnicos; los periodistas deportivos y otro largo etcétera (que bien desarrolla la dupla canalla Sodo-Hudson, en el libro *De pies a cabeza*) contribuyeron a la ruptura. Trascartón, la hinchada, esa burocracia sindical llamada barra brava, también había hecho lo suyo.
+
+
+Una noche, un viernes de invierno a disposición del fútbol televisado más que del hinchismo, en la tribuna Brown alta, mientras cantaba “soooy de River, soooy de River, yoo sooy”, sentí la punta de una faca en la garganta. De golpe, la voz de la masa riverplatense que saltaba y cantaba se redujo a una sola: en mi oído decía “dame todo, dame todo, dale, dale”. Todo lo que tenía para dar alcanzaba para un pancho, una coca y el pasaje de vuelta al conurbano. Cuando le di el botín, el Hombre de la Faca punzó más fuerte, deteniendo la punta antes que mi cuello empezara a sangrar. Un pibe con un gorro de lana rojo, que estaba en mi mismo escalón, vio la situación. Sacó un billete del bolsillo del jean y, a la par que decía “soltalo, soltalo”, se lo pasó. El Hombre de la Faca agarró el billete sin ver de dónde venía y, en segundos, desapareció debajo de una bandera roja y blanca que llegaba hasta la tribuna de abajo. 
+
+
+Desde esa noche empecé a enterarme de River sólo por resúmenes de goles y por algún comentario suelto del que nunca me prendía. Como si estuviesen hablando de una ex, cada vez que escuchaba su nombre, decía que al fútbol sólo me interesaba jugarlo. Lo doloroso es que en estas rupturas es diferente al amor sexual, romántico o como les guste llamarlo. La máxima un clavo saca a otro clavo no funciona. Como alguna vez escuché por ahí, el hincha de un club, del que sea, sigue siendo fiel aún en ausencia. Pasó un tiempo en donde fui más espectador que hincha, hasta que un día me di cuenta que River estaba jodido: jodido en serio. La suma de los elementos que nombré arriba nos había dejado a una campaña del descenso. Ahí fue cuando escuché un llamado, como la sirena de bomberos o algo así. No importaba cuánto tiempo había estado ausente, ni los motivos. Debía estar, seguir la campaña, intentar conseguir entradas, discutir con quién sea, ver todos los partidos, ponerme otra vez la camiseta. River me esperaba. No sólo a mí, a todos los hinchas, como veteranos de guerra que vuelven a la batalla.
+
+
+Pero no alcanzó. El 26 de junio del 2011 descendimos y lloramos y puteamos y tuvimos que ser más creativos para bancarnos el sellito “vos sos de la B”: esa muletilla que, como dice Martín Zariello, cerraba toda discusión, incluso con hinchas de equipos que estaban en la B o en la C. Como no podía ser de otro modo, pronto volvieron al club ídolos de segunda categoría, como Almeyda, Chori Dominguez, Cavenaghi, Trezeguet (?). Durante todo ese año jugamos contra equipos que no sabíamos que existían; le ganamos al Instituto de la joya Dybala; y, como si fuese una campaña del desierto a la inversa, poblamos las canchas de todo el país. El torneo Nacional lo ganamos de punta a punta. Y se festejó, claro. Y nos levantamos, más grandes. Y nos sentimos desde entonces felizmente plebeyos, como nunca. 
+
+
+La siguiente etapa empezó en el 2014, con la llegada del Muñeco Gallardo a la dirección técnica de River. Luego del ascenso, pese a haber ganado el campeonato local de la mano de Ramón Díaz, y de silenciar la bombonera con un golazo de Funes Mori, aún seguía pesando, como una espada en la nuca, el estigma “sos de la B”. Un estigma que amenazaba con ser indeleble. Sin embargo, en cuestión de meses, impulsados por el envión de la etapa anterior (el periodo descenso-ascenso) el estigma empezó a revertirse. Y en un continuum de acontecimientos River ganó seis copas, eliminó dos veces a Boca en torneos internacionales, jugó muy bien al fútbol, mostró carácter cuando no se jugó bien y, en particular, llevó a que su archirrival, de local, le tirara gas pimienta a los jugadores de River, como hace la policía ante manifestantes, y abortaran el juego ante un resultado que les era adverso.
+
+
+De golpe, de la nada, River tenía bajo la manga una carta, una importante. Y desde esa noche larga no hay día que en algún bar, pasillo, aula, taxi, tribuna no se escuche chillar el duelo de espadas entre “vos sos de la B” y “tiraste gas, abandonaste”. Un duelo que, al igual que esos maratones que terminan sólo cuando el rival cae desvanecido, puede durar horas, días, semanas, meses, alejando al resto de amigos y familiares que los presencian como testigos involuntarios.
+
+
+Lo dicho sucedió en menos de tres años, el tiempo que el Muñeco Gallardo fue el técnico de River. El año pasado, cuando ganó la Copa Argentina en una final hermosa contra Rosario Central, Gallardo, también conocido como Napoleón, se quedó parado en el medio de la cancha contemplando su futuro. En los días siguientes se especuló que no iba a continuar. Se tomó una semana para decidir. La conferencia de prensa en que iba a comentar su decisión me enganchó manejando. Iba por una avenida que llaman La colorada, en zona sur, que conecta la Avenida Hipólito Yrigoyen con Camino de Cintura. En la radio tenía puesto el dial en AM, en uno de esos programas donde cuatro gordos hablan de fútbol. Cuando anuncian que Gallardo iba a hablar, estacioné en la banquina. Roto el aire acondicionado, tenía la ventanilla baja para torear el calor de diciembre. Entre el murmullo de los bondis que me pasaban cerca y el dial mal sintonizado, llegué a escuchar “Me quedo un año más”. Y, como si hubiese escuchado los goles que están y continuarán llegando durante el 2017, empecé a tocar bocina hasta dejarla sin voz.
+
+
+Toda ética necesita autocontrol, estrategias y cierta disciplina para lidiar con nuestros demonios. En la semana previa al clásico, en los medios circuló la noticia que el DT de Boca, Guillermo Barros Schelotto, había almorzado junto al Presidente Mauricio Macri. Esa imagen, a mi entender, era la síntesis perfecta del devenir de Boca como institución, el pasaje de equipo popular a la marca Boca, de los obreros inmigrantes a los hijos ricos de inmigrantes, del Tévez de Fuerte Apache al Tévez que huye ante la primera oferta china. La imagen me la enviaron varios amigos hinchas de River y tenía ganas de reenviarla, de volea, a los bosteros de mis contactos; sobre todo a los del ala populista, anarquista, peronista, autonomista o de izquierda sin más. A esos amigos que sabía que la imagen los iba a molestar. Sin embargo, como un adicto en recuperación que tira un papel de merca por el inodoro, apenas me llegaban fotos o memes los borraba. Me había prometido no entrar de nuevo en ese juego que, a la larga en algunos casos y a la corta en otros, mostraba nuestras peores versiones. Como veterano de mil superclásicos, opte por variar la estrategia. Simulando el método Gandhi, de frente, cada vez que venía alguna provocación respondía con silencio o con un gesto de desinterés. Por lo general, mi postura, insólita hasta el momento, inflamó aún más la verba de amigos bosteros, hasta que veían que no picaba y abandonaban.
+
+
+![El artista más grande del mundo](https://64.media.tumblr.com/c1d5a1f5b492eb9862b56c385f30989f/tumblr_inline_pk12a4oFpI1t6q87u_500.jpg)Elijo como hincha una ética del autocontrolJavier, un pibe que jugaba conmigo al fútbol de chico y cada tanto lo cruzo en cumpleaños de amigos en común, fue de los más intensos. Estuvo toda la semana mandandome audios, videos, fotos, repitiendo la leyenda “vos sos de la B”. Cada vez que me llegaba un mensaje suyo, me lo imaginaba encerrado en un altillo, encorvado, levantando los brazos por sobre su cabeza, repitiendo mil veces “vos sos de la B, vos de la B”, con el mismo tono que Gargamel usaba para decir “Odio a los pitufos, odio a los pitufos”.
+
+
+Luego del partido, de que River le ganara a Boca jugando muy bien a la pelota, Javier no me volvió a escribir. Yo tampoco lo hice y dudo que llegue a hacerlo. Si tengo la oportunidad de verlo, de compartir una cerveza con él en algún cumpleaños o bar, supongo que lo dejaré hablar. Y lo escucharé con atención, intentando disimular la sonrisa en la boca, sabiendo que lo mejor aún está por venir.
+
+
+
+
+---
+
+ Damián Huergo
+--------------
+
+ Damián Huergo estudió sociología, es docente y escritor. En Twitter es [@damianhuergo](https://twitter.com/damianhuergo/). 
+

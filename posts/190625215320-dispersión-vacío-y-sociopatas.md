@@ -1,0 +1,88 @@
+# Dispersión, vacío y sociópatas
+
+**Una serie que viaja a lo profundo de la mente de los criminales, una revista sobre psicoanálisis y un libro que recrea una época fasciannte.**
+
+3 de febrero de 2019 - Cosas que estuve mirando
+
+_por Leticia Martin_
+
+Link original: https://laagenda.tumblr.com/post/190625215320/dispersi%C3%B3n-vac%C3%ADo-y-sociopatas
+
+![](https://64.media.tumblr.com/315d60dce00d48e18a812fa233608a79/b169145eb94fc938-65/s500x750/3129580f7a68508fca3395803e28dccf40622ce1.jpg)### *Mindhunter* (Netflix)
+
+En 2017, la plataforma de series y películas Netflix, estrenó Mindhunter, una saga que recrea cierto momento en la historia de la criminología desde la perspectiva —justamente— del FBI. Siguiendo a Wiki, y para ahondar en lo que una ciencia humana e interdisciplinaria como la criminología nos ofrece, digamos que “la criminología tiene como objetivo el estudio del delincuente, el lugar de los hechos, el delito, las conductas desviadas y el control social”.  Y eso es exactamente lo que, a partir de casos reales, va enhebrando Mindhunter. Una serie que, sin descuidar datos históricos ni mobiliarios y tecnologías de época, va narrando el surgimiento de aquella osada idea de ir clasificando patologías y móviles de crímenes aberrantes. Es a través de entrevistas a los asesinos presos en cárceles de extrema seguridad que esta dupla de agentes va diseñando patrones de conducta criminal que anticiparán futuros hechos delictivos.
+
+
+El director David Fincher ya se había destacado sobradamente en films como ‘El club de la pelea’ y 'Seven’, aunque nunca tanto en un éxito por entregas como son las series. Pero el universo carcelario ya estaba presente —y de modo muy logrado— en aquellos míticos films. Al terminar la saga, uno descubre que aquellas viejas estéticas del universo del terror y los asesinatos está presente de algún modo en esta serie. Basada en la novela de John E. Douglas, —Mindhunter. The first American Serial Killers hunter— (escritor y ex agente del FBI) Mindhunter, hace referencia desde el título a esos agentes del FBI que operan como 'cazadores de mentes’, o 'cazadores de psiquismos’, en su afán de prevenir nuevas depredaciones humanas. Es interesante observar que la terminología de la criminalística no había llegado a determinar el concepto de 'asesino serial’ cuando el FBI decide invertir en estas investigaciones y descubrir, casi en tiempo real, cómo la praxis de esta 'Unidad de Crímenes en Serie’, del FBI, va desvelando conductas que derivan en la empuñadura de ese término, hoy tan común. 
+
+Forzando una breve síntesis, podríamos decir que esta ficción cuenta la historia de Holden Ford (Jonathan Groff), agente novato en la materia, quien toma entrevistas a asesinos seriales y violadores de los Estados Unidos, junto a su compañero Bill Tench (Hold McCallany), un oficial con más experiencia. Esta dupla cuenta con la colaboración externa que se encuentra recluida en un sótano del FBI, experimentando con estos materiales. Algo interesante que plantea esta serie es que el cerebro de este equipo de trabajo es Deborah “Debbie” Mitford (Hannah Gross), una bellísima e inteligente mujer que no necesariamente será el personaje más reconocido por sus logros e intervenciones en la saga.
+
+Cada capítulo además es la excusa perfecta para mostrarnos el interior de una David Fincher recrea los perfiles psicológicos de famosos asesinos como Manson, entre otros.
+
+Por último señalar que lo que parece una ficción histórica gana en trama y acción cuando, con el correr de los capítulos, la historia personal de los agentes va cruzándose con el experimento criminológico. Todos y cada uno de los participantes de este equipo interdisciplinario del FBI deberán enfrentarse no solo al lado oscuro de la mente humana, sino también a sus propios fantasmas y paranoias. ¿Hasta dónde yo no soy capaz de matar?, parece preguntarse Holden días antes de decidir terminar con su novia. ¿Hasta dónde no estoy amparando a un asesino en potencia?, se preguntará su fiel compañero de dupla Bill Tench, luego del asesinato de un niño del pueblo del que participara su hijo. Las presiones irán desde el desvelamiento del acoso sufrido por la cabeza femenina del equipo,  hasta las implicancias de cada caso particular en la psiquis de los protagonistas.
+
+Una serie intrigante, para curiosos y amantes del terror, con una excelente construcción del suspenso, y muy buena recreación temporal y dirección de arte. Una de las mejores series disponibles para ver en esta plataforma.
+
+  
+
+
+### *Dispersos Descabalados*, Nueva revista digital de psicoanálisis.
+
+Jorge Rivera, el mítico historiador de los medios de nuestro país, escribió sobre las revistas literarias que “unas compensan la rápida deserción de otras que, aunque esporádicas y a veces fantasmales, dejaron su marca y su contribución”. Me interesa remitir a ese pensamiento para hablarles acerca de la nueva revista digital *[Dispersos Descabalados](https://dispersosdescabalados.com.ar)*, porque siempre es celebrable el surgimiento de un colectivo que pretende intervenir el espacio de la discusión y la crítica.
+
+Durante el siglo XX las revistas culturales tuvieron dos momentos de desarrollo. El del surgimiento de las primeras revistas de vanguardia cultural (década del ´20) y el de desarrollo, o también llamado momento de oro (década del 60´). Aquellas míticas publicaciones hicieron historia y abrieron camino a cantidad de escritores, ilustradores, dibujantes, periodistas, poetas y críticos. Esto, sumado a su rol difusor de la cultura, legitimador del arte, e iniciador de agendas temáticas en el campo cultural, fue cambiando con el correr de las décadas y sobre todo con la aparición de internet y sus plataformas digitales diseñadas especialmente para la realización de magazines, fanzines y revistas electrónicas en todos los formatos. Ya adentrados en el siglo XXI, estamos frente a un tercer momento de expansión de este fenómeno, el de la propalación digital, (se me ocurre ese nombre), y allí hay que anclar el nacimiento de *Dispersos Descabalados*.
+
+Según Jorge Rivera el surgimiento de las revistas culturales en la Argentina debe pensarse como un proceso en continuidad con el desarrollo que se inicia a partir de la invención de la imprenta de Gutenberg a mediados del Siglo XV y que nunca desacelera su crecimiento y 
+
+![Julieta Venegas](https://64.media.tumblr.com/8d9b378f388bcf6a0272ed45e9efff5e/b169145eb94fc938-6b/s250x400/26b8cde7ca8611574c2a9dc9f3cf2df1899cd294.png)El periodismo cultural fue, es, y suponemos que será, una de las principales fuentes de creación de capital simbólico. Y Ribera señala que, desde sus inicios, la revista de pequeño formato se mantendrá al margen de los compromisos comerciales, algo que también podemos observar como rasgo distintivo de muchas de las revistas digitales de este tercer momento de la “propalación digital”.
+
+Llamadas a explorar las “verdades literarias o artísticas”, (así lo decían los idearios de aquellas viejas revistas culturales que nos antecedieron) las nuevas revistas culturales digitales se erigen como constructoras de legitimidad y lugar de conformación de identidades colectivas e idearios de trabajo para la intervención cultural.  
+
+El campo cultural viene atravesado hace años una serie de cambios y transformaciones que son consecuencia, entre otras cosas, del “Capitalismo de plataformas” que la gran red mundial habilitó. El término es del economista canadiense Nick Srnicek, y con él señala el ingreso de nuestras sociedades a una especie de cuarta revolución industrial donde toman relevancia fenómenos como: la big data,  fabricación aditiva, robótica avanzada, aprendizaje automático, internet para todas las cosas. (Traten de ir sin celulares a un lugar en colectivo, o de recordar un número de teléfono). La nueva “economía digital”, surge tras el retroceso de la economía tradicional, que es la economía de producción de bienes y servicios. Lo que sostiene Srnicek es que la prolongada caída de la rentabilidad de las manufacturas, volcaron al capitalismo hacia los datos, en un intento por mantener el crecimiento económico. La pregunta que él se hace, y que todos podríamos hacernos hoy, es la pregunta por la economía real. Es claro que este crecimiento ficcional, virtual y cómodo –tanto que necesita una amplia variedad de sistemas de entrega de compras a domicilio, y deliverys de distintos colores–, destruye el mercado laboral. Súmenle a este “cambio” el hecho de que esté sucediendo en economías emergentes –o dependientes– como las Latinoamericanas. Muchos de nuestros países están en situación de riesgo, o al borde de la quiebra. No estoy diciendo nada que pueda sorprendernos. Pero. Aún hoy, no se ha terminado de entender el sentido total de estos cambios en los que ya estamos metidos. Dice Srnicek: “Los datos se han vuelto cada vez más centrales para las empresas”. Y esto lo vemos a diario. Mientras los medios y las plataformas nos hablan de “compras inteligentes”, “practicidad” y “futuro” lo único que parece ofrecernos el avance  tecnológico en la web, es la compra-venta cada vez más eficiente de bienes y servicios. No quieren nuestros datos para comunicarnos más o socializar transversalmente la información, como se dice, sino para vendernos mejor. 
+
+Los productos culturales que creamos y consumimos no escapan a esta lógica. ¿Cómo hacemos para preservarlos de ese monstruo desbocado que, en nombre de la inteligencia artificial y el progreso tecnológico, ha quedado librado a su propio devenir? Si seguimos a Pierre Bourdieu, quien precede a Srnicek temporalmente, claro, pero que ya venía pensando el campo cultural, podemos entender un poco mejor qué tipo de bienes culturales se nos presentan en este momento de la historia. *Dispersos Descabalados* no escapa a esta clasificación. Los bienes culturales del siglo XXI son, sobre todo, bienes simbólicos, digitales, intangibles, volátiles, y efímeros. Sin embargo, si suspendemos un minuto al sentido común, podríamos hablar de un nuevo tipo de materialidad digital. Suena contradictorio, pero me gusta el término. ¿Puede volverse material lo digital? ¿De qué modo? Me interesa pensar a lo digital como un nuevo tipo de materialidad que incluye: lecturas, libros, reuniones, choque de los cuerpos, excusas para intervenir en el debate público y, al mismo tiempo, resistencia a los modos de producción eficientista y ansiosa de la web. Resuena todavía la cita de Ribera que ubica a las revistas culturales “al margen de los compromisos comerciales”. Y es oportuno pensar, entonces, la posibilidad de un producto cultural digital por fuera de las lógicas del Capitalismo de Plataformas que solo degrada los objetivos de la gran red, volviéndolos solo mercado o tienda virtual. Ese es el desafío de nuestra época. No tenemos que negar la digitalización sino crear y hacer circular conceptos, ideas y valores resistentes, dispersos y –por qué no– descabalados.
+
+La dicotomía no es entre revistas culturales en papel o revistas culturales digitales. Esa división es obsoleta. Igual que la discusión entre gratis y pago. Lo que hay que discutir son los modos de producción de esos contenidos y cómo va a redundar ese valor agregado en círculo de lectores y contagio de la práctica de la escritura. Hoy importa más: pensar la disponibilidad de contenidos, la implicancia alfabetizadora de este fenómeno, y el modo en que este fenómeno colabora en la conformación de subjetividades críticas, resilientes y menos neurotizadas. Las revista digitales en las que participé, todas, Polvo, No Retornable, Tónica, Nadie Quiere Morir, Paco, La Mascarada, El cielo del mes, por nombrar solo algunas, me han llevado a pensar más en mi deseo de producción de pensamiento que en la falsa dicotomía entre el papel y lo digital.
+
+Quizá lo que necesitemos, más que respuestas, se formularnos nuevas preguntas. ¿Con qué velocidad pierde vigencia un posteo? ¿De qué modo cambian los hábitos de consumo, lectura y expectación de los mensajes cuando son digitales? ¿Cómo avanza el conocimiento si producimos más ideas, más crítica y más ensayo entre más personas? ¿Cómo podemos estimular la lectura sin derivar en acciones promocionales al peor estilo del márketing?
+
+“Somos nosotros y no ellos, los grandes medios masivos tradicionales, los que movemos esta nueva rueda de producción, circulación y consumo”, escribió Paula Sibilia en 2008, un poco entusiasmada por la aparición de ciertos blogs. Y cuando dice “nosotros”, habla de cada uno de los que conformamos ese colectivo informe mal llamado “gente común”. “Nosotros”, los nuevos narcisistas del siglo XXI, dotados de nuestras tablets, y computadoras, teléfonos inteligentes y otros soportes conectados a la matrix: internet, esa nueva ciudad digital en la que nadie escapa a su protagonismo y donde todos disponemos de nuestro pequeño espacio para mostrarnos. 
+
+Ojalá esta agrupación de dispersos (lindo oxímoron) que han perdido un poco la cabeza, el orden, las certezas, y todo eso que tiene la gente logre regalarnos largas horas de lectura, nuevas dudas y espacios de pensamiento para, lejos de volverse una volátil, esporádica o fantasmal revista,  conseguir “dejar su marca, su impronta y su contribución”, como decía Jorge Ribera, en nuestra época.
+
+  
+
+
+  
+
+
+### *Lo que ya no existe*, de C. Castagna (Caleta Olivia)
+
+
+Lo que ya no existe, de C. Castagna, reúne una serie de cuentos de algo que parece estar, pero ya se fue, algo así como una generación, un momento de la historia personal, un florecer de las relaciones humanas siempre teñidas de inquietud, dudas y temores. Esas intensas vacaciones en la costa con la que te gustaba, esas disquerías, el consumo de vinilos, pastas, cds; esos lugares a los que salir de noche (algunos de los cuales ya no existen o nunca existirán en la memoria colectiva de las nuevas generaciones): Ave Porco, Eldorado, Morocco; esa difícil de pronunciar Bond Street, con sus máquinas de tatuar, los piercings,  los escenarios del centro de la Ciudad, la calle Florida, la avenida Alem, o Callao, el depar de un amigo en Marcelo T. de Alvear o aquellas expresiones pintadas en las paredes, como: “puto el que lee”, o similares. ¿Cómo es la noche en esos años de amigos rotos, “minitas” y rock and roll? El mundo era entonces, definitivamente, otro.  
+
+ Si hay un color que tiñe estas palabras que escribo, este libro nuevo de C. Castagna, ese es el sepia, o ese amarillo anaranjado siempre cálido y nostálgico a la vez. El cuento Amarillismos, que abre el libro, es un buen ejemplo de esto que digo. Narrado con certeza y economía 
+
+![Julieta Venegas](https://64.media.tumblr.com/55e718d0f8616d856609ea0737cc5a2c/b169145eb94fc938-af/s250x400/c8e6cffc2e33a941ea1b194b05f3e1277e67d3cb.jpg)Hay algo en la prosa de C. Castagna que me interpela y que anoté sobre el margen del libro como: “la imagen pura”. Son escenas que el autor construye con inteligencia, mezclando postales de momentos que podríamos pensar como oximorónicas, o bien distantes. Una especie de realismo naive al que se le intercalan términos guarros, o imágenes que estallan la armonía de lo que se venía narrando. La descripción de un lindo beso, por ejemplo, al que asisten los obreros de una obra en construcción. Allí el erotismo se cruza con el asado en la parrilla y los obreros mirando el culo de la chica. De este modo, el romanticismo a la televisiva cae por tierra; y el lector lo agradece.
+
+Otro elemento destacable es la forma en que el narrador detecta los cambios anímicos de los personajes, que muchas veces tiene relación directa con los cambios climáticos, sobre todo, y que otras veces le disparan metáforas extravagantes. 
+
+“Cuelgo yo también y me quedo observando el puente: por detrás se alza una nube oscura, misteriosa, alta como un edificio que gira muy despacio. Adentro hay explosiones de luz difusa, como flashes intermitentes”, escribe en “Hola, Frank”.
+
+También es destacable la calidad narrativa que asume C. Castagna cuando decide encarnar personajes de otros sexos, como en el cuento “La del sombrero”, donde escribe en primera persona el romance de dos chicas, asumiendo el rol de una de ellas. O los modos de nombrar que elige. Muchos personajes tienen nombres raros y muy bien logrados para pintar de una buena vez su personalidad. Al mejor estilo de Leonardo Oyola acertó en apodos como: Fucsia, El Quemado, Faina, Drácula. ..
+
+Por último, por qué no decirlo, Lo que ya no existe es también un homenaje a la música que obró en la educación sentimental de una generación que compartimos. Nacido en 1975, C. Castagna deja registro de canciones y músicos, como de prácticas del universo del rock, que no será fácil olvidar: Harrison, Charly, Serú Girán, The Beatles, Invisible, Massive Attack, Melero, Freddie Mercury, caminar escuchando walkman, los desmanes después de un recital, resbalar con el cuerpo sobre el piso recién pulido al finalizar la misa.
+
+Me quedo pensando en la hermosa descripción de las canchitas de polvo de ladrillo de la Avenida Provincias Unidas, en Lomas del Mirador, cruzando la General Paz, justo al otro lado de Mataderos; en el personaje de Sandra, la machona del barrio, y en Gaby Sabatini, que “a todos nos contagió un entusiasmo por el tenis”, como escribe C. Castagna. Y así como “se iban los días, las estaciones y los años”, en este libro de relatos, también se extingue  esta reseña, y desaparece, como todo Lo que ya no existe.
+
+\*
+
+
+
+---
+
+ Leticia Martin
+---------------
+
+ Leticia Martin es narradora y poeta. Es autora de Breviario o el oficio religioso y de El gusto. En Twitter es [@leticiamartin](https://twitter.com/leticiamartin).
+

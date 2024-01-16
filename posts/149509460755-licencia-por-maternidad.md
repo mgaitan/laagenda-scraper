@@ -1,0 +1,49 @@
+# Licencia por maternidad
+
+**Leer con un bebé es una experiencia irrumpida, pero algunos libros se prestan:**
+
+26 de agosto de 2016 - Literatura
+
+_por Leticia Frenkel_
+
+Link original: https://laagenda.tumblr.com/post/149509460755/licencia-por-maternidad
+
+![Sharon Olds](https://64.media.tumblr.com/8849ab1dd5218411822c1b0b822419d3/tumblr_inline_pk04gkvbmy1t6q87u_500.jpg)Escribo cuando puedo. Un rato cuando duerme, unos minutos si se entretiene con el móvil de ositos; escribo con una sola mano, tecla por tecla, si no se banca estar en otro lado que no sea encima mío. Escribir y criar a una bebé de dos meses no son tareas que se combinen muy bien. Leer tampoco es fácil, salvo que se trate de foros sobre “mamis desesperadas” o posteos de Facebook (lectura fundamental para matar el tiempo mientras ella se alimenta a las 4 de la mañana): la concentración no me da para mucho más. Mis lecturas se han vuelto inevitablemente cortas, pragmáticas, fragmentadas. Tienen que cumplir un cometido breve en un tiempo récord, como una inyección. En cambio, las series, y más específicamente Netflix, son la salvación de una mujer en estado de “licencia por maternidad”. Y no sé si por accidente o por diseño, las últimas que vi tenían como protagonistas a mujeres: la quinta temporada de *Girls*, la segunda de *Broad city*, la tercera de *My mad fat diary*, toda *Orange is the new black*. 
+
+
+Aunque ahora lea poco, sí pude hacerlo con una cierta intensidad durante el embarazo (sobre todo el mes antes de que naciera, cuando dejé de trabajar). Y lo que más leí en esos días de calma previa al huracán son libros que abordan el tópico de la maternidad. Pero no libros de autoayuda cool progre como el de Ingrid Beck (*Guía inútil para madres primerizas*) o el de Julieta Otero (*Según Roxy: autobiografía de una madre incorrecta*), y menos aún los de la inefable Laura Gutman y ese subgénero de libros sobre parir en libertad, el parto humanizado, etc. Yo quisiera hablar de literatura. 
+
+
+Hace un tiempo, googleando, encontré una nota de *El país* de España titulada “Guía literaria para un posparto gozoso”, cuyo copete anuncia: “Frente a los típicos libros de autoayuda, las autoras proponen novelas que provoquen en madres recientes una reflexión real sobre el significado de la maternidad” y recomiendan algunos clásicos como *El club de la buena estrella* de Amy Tan y otros que no leí como *Missing mom* de Joyce Carol Oates. Me gusta este párrafo: “Horas baldías, horas en blanco, horas perdidas cada día mientras das pecho, acunas, insomne por sus ruiditos… No sabemos darle significado y profundidad a todo eso. ¿Dejaremos que pase sin más? Hemos dado a luz a una nueva vida, es algo importante, trascendente y lo hemos hecho nosotras. Queremos pensar en ello. Lo necesitamos”.
+
+
+Más allá de que en la literatura argentina reciente hay buen material sobre el tema (pienso en *Madre soltera* de Marina Yuszczuk; *La tomadora de café* de Laura Wittner; *Mátate, amor* de Ariana Harwicz) voy a hablar de los dos libros que más me pegaron: *La materia de este mundo*, la antología poética de Sharon Olds que editó hace poco Gog y Magog, y el libro de ensayos *Las pequeñas virtudes* de la italiana Natalia Ginzburg –el pasado 14 de julio hubiera cumplido 100 años– publicado por Acantilado. En rigor, el de Ginzburg lo leí hace unos años, pero volví a él por una película que enganché hace poco en I-sat, *Los exiliados románticos* del español Jonás Trueba, en la que en una escena muy woodyallenesca los tres protagonistas disertan con unos amigos en un departamento parisino sobre tener treintaypico y todavía no ser padres, y uno de ellos menciona entonces el texto de Natalia Ginzburg.
+
+
+![](https://64.media.tumblr.com/581733daa88be0362bbb9d6bcdfde8bf/tumblr_inline_pk04gkRUYY1t6q87u_250.jpg)El ensayo *Las pequeñas virtudes* es una joya desde la primera hasta la última línea y funciona como una especie de manual sobre cómo me gustaría criar a mi hija. Arranca con una sentencia contundente: “Por lo que respecta a la educación de los hijos, creo que no hay que enseñarles las pequeñas virtudes, sino las grandes. No el ahorro, sino la generosidad y la indiferencia hacia el dinero; no la prudencia, sino el coraje y el desprecio por el peligro; no la astucia, sino la franqueza y el amor por la verdad; no la diplomacia, sino el amor al prójimo y la abnegación; no el deseo de éxito, sino el deseo de ser y de saber”. El problema, dice ella, es que casi siempre hacemos lo contrario: elegimos el camino más cómodo y les enseñamos las pequeñas virtudes (porque no encierran ningún peligro material y nos parecen el fruto de una reflexión, mientras que las grandes las consideramos de naturaleza instintiva, espontánea), y esto lleva, indefectiblemente, al cinismo y al miedo a vivir. Por eso, lo que deberíamos inculcar a nuestros hijos es el amor a la vida y a encontrar su propia vocación. ¿Cómo hacerlo? Estando al lado de ellos, pero en silencio y un poco apartados, con una actitud parecida a la de la lagartija, que permanece inmóvil, fingiéndose muerta, cuando en realidad olfatea y espía las huellas del insecto sobre el que se lanzará de un salto. “La relación que existe entre nosotros y nuestros hijos debe ser un intercambio vivo de pensamientos y sentimientos y, sin embargo, debe comprender también profundas zonas de silencio; debe ser una relación íntima y, sin embargo, no mezclarse violentamente con su intimidad; debe ser un justo equilibrio entre silencio y palabras. Nosotros debemos ser importantes para nuestros hijos, pero no demasiado, para que no se les ocurra llegar a ser idénticos a nosotros”. Y si por alguna razón los padres carecemos o hemos traicionado nuestra vocación —por cinismo o por miedo a vivir o por cualquier “pequeña virtud” que se ha instalado en nosotros—, por nada del mundo tenemos que agarrarnos a nuestros hijos como el náufrago al tronco de un árbol y pretender que sean tal como los queremos, como si por haberlos procreado una vez pudiéramos seguir procreándolos siempre. “Esta es, quizá, la única posibilidad que tenemos de resultarles de alguna ayuda en la búsqueda de una vocación, tener nosotros mismos una vocación, conocerla, amarla y servirla con pasión, porque el amor a la vida genera amor a la vida”. 
+
+
+Otra escritora iluminada es la poeta estadounidense Sharon Olds. En *La materia de este mundo*, la antología bilingüe que compila ocho de sus libros, hay varios poemas en los que el conflicto de la maternidad aparece en primer plano. El texto de Ginzburg, al ser un ensayo, se inclina más a la argumentación, a la bajada de línea; en cambio la poesía de Olds plasma directamente escenas de ella siendo madre, como en el poema “No podría decir”, en el que la *vemos* a ella bajar mal del colectivo, casi caerse al piso con su hijita en brazos, ser consciente por primera vez de la fragilidad y responsabilidad que implica un bebé, y asustarse mucho. “Nunca lo he vuelto/ a hacer. He sido muy cuidadosa./ He vigilado de cerca a esa linda madre joven/ que saltó con liviandad/ del vehículo en movimiento/ hacia la calle detenida, su vida/ en sus manos, la vida de su vida en sus manos”. 
+
+
+¿Cómo se hace poesía sobre la maternidad? ¿Cómo se lleva el tema, tan afecto a la cursilería y el lugar común, a su punto de máxima pureza? El libro de Sharon Olds tiene dos momentos gravitantes sobre esta cuestión.
+
+
+![](https://64.media.tumblr.com/cd91eb41865736e56cd64b00d77de7c1/tumblr_inline_pk04glehy71t6q87u_250.jpg)El primero es “La charla”, que dice así: “En el oscuro cuarto de madera al mediodía/ la madre tuvo una charla con su hija./ La grosería no podía seguir, la maldad/ con su pequeño hermano, el egoísmo./ La niña de 8 años se sentó en la cama/ en un rincón del cuarto,/ los iris destilados como las últimas gotas de algo, su cara/ terca se ablanda, avergonzada,/ destellos plateados en los ojos como agua/ distante que se vislumbra a través de los bosques./ Aguantó y aguantó hasta quebrarse y gritar/ *¡Odio ser una persona!* Y se zambulló/ en su madre/como/en/ un estanque profundo- y no sabe nadar,/ la niña no sabe nadar”. 
+
+
+El otro está en el poema“35/10”: “Mientras cepillo frente al espejo el pelo/ sedoso y oscuro de nuestra hija/ veo los destellos grises del mío,/ la sirvienta canosa detrás de ella. ¿Por qué será/ que justo cuando empezamos a irnos/ ella empiezan a llegar, que el pliegue en mi cuello/ se hace más visible cuando los bellos huesos de sus/ caderas se afilan? Cuando mi piel muestra/ sus cicatrices secas, ella se abre como una flor/ húmeda y precisa en la punta de un cactus;/ cuando mis últimas oportunidades de concebir un hijo/ se sueltan de mi cuerpo, entre ellas las fallidas,/ su pequeña cartera llena de huevos, redondos y/ firmes como yemas, está a punto de/ desabrocharse con un chasquido./ A la hora de dormir,/ cepillo su pelo enredado y fragante. Es una vieja/ historia –la más vieja del mundo–/ la historia de la sustitución”. 
+
+
+En los dos *vemos* un cachito de ese mundo íntimo y cotidiano –y por eso lleno de dolor– entre una madre y su hija. Solo que en el primer poema el conflicto recae en la niña y sus pequeñas miserias, mientras que en el otro la aguja afilada pincha a la madre, porque toca el viejo tema del paso del tiempo, que siempre es terrible, pero que en la maternidad se hace mucho más evidente y despiadado: mi hija crece, yo envejezco. Como pasa con los buenos finales, el final de la sustitución es tan cruel, tan perfecto, que cada vez que lo leo, no puedo evitar “levantar la cabeza”, como dice Barthes. Mi hija llora, el texto termina. Tiempo de volver a la vida. O, mejor dicho, a *la vida de mi vida*.
+
+
+
+
+---
+
+Leticia Frenkel
+---------------
+
+ Leticia Frenkel es periodista y escritora. Es Licenciada en Letras y Magíster en Escritura Creativa por la UNTreF. Colabora en Inrocks y otros medios.
+

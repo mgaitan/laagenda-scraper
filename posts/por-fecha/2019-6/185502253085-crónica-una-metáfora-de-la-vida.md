@@ -1,0 +1,1 @@
+../../185502253085-crónica-una-metáfora-de-la-vida.md

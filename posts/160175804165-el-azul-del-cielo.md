@@ -1,0 +1,52 @@
+# El azul del cielo
+
+**La Fundación PROA presenta una retrospectiva de Yves Klein, el artista que puso patas arriba el concepto de vanguardia con sus pinturas monocromo.**
+
+1 de mayo de 2017 - Artes plásticas
+
+_por Gustavo Álvarez Núñez_
+
+Link original: https://laagenda.tumblr.com/post/160175804165/el-azul-del-cielo
+
+![Yves Klein](https://64.media.tumblr.com/3f8c1e25df8750e8beaa428e74032a05/tumblr_inline_pjzvonPorY1t6q87u_500.jpg)Ocho años le bastaron al incasable e intrépido Yves Klein (Niza, 1928 – París, 1962) para cimentar una obra que puso patas arriba el arte y el concepto de vanguardia de la época. Monocromos y pinceles vivientes, pinturas de fuego y judo místico, esmoquin negro con pajarita blanca y la invención del International Klein Blue (IKB), salto al vacío y cosmogonías, zona de sensibilidad inmaterial y arquitectura del aire, utopía y esculturas de esponjas, 1001 globos azules y nuevo realismo, retrato relieve y “desaparecer en el vacío”: todos sinónimos de un hombre que murió muy joven –a la edad de 34 años por un paro cardíaco– pero cuyo afán de expansión lo movilizó desde el vamos. Aunque “expansión” no sea la palaba exacta; impulso de vida, arrebato de vida, tal vez se aproximen más aunque tampoco; en verdad, eso es Yves Klein: lo exponencial, lo inclasificable, lo indefinible.
+
+En 1947, muchos años antes de plasmar la *Symphonie Monoton Silence* (*Sinfonía monótona silencio*), a Yves ya se le había ocurrido esta pieza basada en un solo acorde y sonido que acompañó en marzo de 1960 el debut en una galería parisina de sus antropometrías, *Anthropométries de l'Époque bleue* (*Antropometrías de la época azul*), la acción de “pinceles vivientes”; dirigidas por él mismo, mujeres desnudas cubiertas de pigmento azul (el ahora legendario IKB) rodaban sobre grandes lienzos, imprimiendo huellas monocromáticas de sus cuerpos durante la ejecución de la *Symphonie Monoton Silence*.
+
+El rasgo fundamental de esta composición musical subraya una obsesión que atraviesa toda la obra de Yves: un solo tono (¿cuadro?) y sonido (¿color?) continuo, “estirado, privado de su ataque y de su coda, lo que genera una sensación de vértigo, de aspiración de sensibilidad fuera del tiempo”, como escribió el propio Klein en el texto “La superación de la problemática del arte”, que dio título a un libro publicado en 1959. La insigne y rupturista *4′33″* de John Cage, por ejemplo, con el silencio dominando todo su desarrollo, fue estrenada en 1962. Aclaremos que el compositor estadounidense venía explorando en las bondades del silencio desde hacía un largo rato.
+
+Pero más allá de si la pieza musical de Yves se produjo antes o después –Diosque, el ascendente músico tucumano, canta: “No importa quién lo dijo primero/ sino quién lo dijo mejor"–, la locomotora Klein se encargó de barrer varios mitos y demoler algunos prejuicios en sólo ocho años de trayectoria que arrancaron en 1955, cuando entregó al jurado del parisino Salon des Réalités Nouvelles su primera pintura monocromática, *Expression de l'univers de la couleur mine orange* (*Expresión del universo de color naranja*). Obviamente, fue rechazada. Las razones que le dieron a su madre Marie Raymond –pintora abstracta y bastante prestigiosa en esos años– fueron éstas: "Usted sabe, no es realmente suficiente, si Yves aceptara añadir al menos alguna línea o un punto, o incluso simplemente una mancha de otro color, entonces podríamos mostrarlo, pero un solo color, ¡no! No, eso no es realmente suficiente, ¡es imposible!”.
+
+![Yves Klein](https://64.media.tumblr.com/3f8c1e25df8750e8beaa428e74032a05/tumblr_inline_pjzvonPorY1t6q87u_500.jpg) “A través del color siento una identificación completa con el espacio,  
+de este modo soy verdaderamente libre.” Si le preguntaban en esas horas por qué esa terquedad –esa hermosa y admirable terquedad, diríamos nosotros– por no conceder ni permitir atisbo alguno de línea o punto, o incluso simplemente una mancha de otro color, Klein hubiese contestado que no solo se negaba a que conviviesen dos colores en una pintura propia –pintadas de modo uniforme, con paneles que no están enmarcados y donde un solo color recubre los márgenes exteriores de los cuadros–, sino que se amparaba en lo siguiente: “La pintura es la ventana de una prisión, cuyas líneas, contornos, formas y composición están todos determinados por barrotes (…) A través del color siento una identificación completa con el espacio, de este modo soy verdaderamente libre”.
+
+Esa sensación de libertad en todo su esplendor acomete al visitante cuando deja la primera sala de la Fundación PROA –cargada de suculenta información sobre el mes a mes en la travesía de Klein– y se enfrenta a una asombrosa pileta de pigmentos azul ultramar (*Pigmento*. Instalación creada en 1957. Reconstrucción póstuma, 2017) que le gana la atención al instante. Es que hasta el 31 de julio, las paredes del museo de la Boca –Avenida Don Pedro de Mendoza 1929– cobijan la imperdible *Yves Klein. Retrospectiva*, ocasión ideal para adentrarse en una aventura estética y espiritual que no ha perdido ningún ápice de vigencia y exhibe una potencia infinita.
+
+En el universo del arte, ocho años, a veces no son nada para sintetizar o expandir los ribetes de una búsqueda estética; al español Antonio López García le llevó veinte finalizar el retrato de la familia real –entregó el encargo en 2014–, amén de que el príncipe ya es rey. Aunque, otras veces, si lo planteamos en términos de lo que implican los primeros ocho años en el camino de un artista, los ejemplos se tornan modelos o techos de una situación mágica e irreproducible. Esas apariciones pueden no solo modificar las costumbres imperantes, sino también correr los límites de lo permitido. Fue el caso (excepcional) de Los Beatles, entre 1962 y 1970, en el universo pop. Su música maduró exponencialmente disco a disco. Y su influencia sociocultural es testimonio del poder del pop no solo como entretenimiento. Sin comparar: Soda Stereo lanzó en 1984 su álbum debut homónimo, que no presagiaba cumbres como *Canción animal* (1990) o el desafiante *Dynamo* (1992).
+
+![Monocromo azul sin título](https://64.media.tumblr.com/ecef5ddb1d457229b46daee06a509a4e/tumblr_inline_pjzvoom40R1t6q87u_400.jpg) Monocromo azul sin título, 1961  
+Carbonilla sobre papel montado sobre tela 257 x 208 cm Ahora bien, el hombre que refutó la nada y descubrió el vacío como un espacio rico en posibilidades, el artista que distribuyó el domingo 27 de noviembre de 1960 en todos los kioscos de París el diario *Dimanche “Le Journal d'un seul jour”* (*Domingo “Diario de un día”*), que constaba de todas sus teorías estéticas y el famoso fotomontaje del *Salto al vacío*, el introductor del judo en su país –cinturón negro 4º dan–, era de los que creían que un artista podía cambiar la vida y brindarle sensibilidad al mundo.
+
+Considerado por algunos críticos y medios gráficos de aquel momento un vende humo –"Klein vende viento", fue el titular del suplemento parisino *Arts* en febrero de 1962; todo porque había vendido unas pinturas “inmateriales” que sólo eran un recibo de la operación y cuya transacción supuso para los compradores el desembolso de un lingote de oro–, Yves dejó en claro en el período de las antropometrías que lo suyo no era oficiar como una sucursal europea del *action painting* estadounidense: “Lo mío es lo contrario al *action painting*, en tanto yo permanezco completamente ajeno a todo trabajo físico durante la creación”.
+
+No por nada, el italo-argentino Lucio Fontana fue uno de los primeros que adquirió una obra suya –pagó unas exiguas 25 liras, en 1957, el día de la inauguración de la primera muestra de Klein en Milán–, reconocido por sus célebres *buchi* (agujeros o perforaciones) o *tagli* (cortes) que efectuaba al lienzo; otro personaje chocante y afilado como Yves. Con el legado de la Bauhaus Dessau, el francés Eugène Delacroix, el holandés Piet Mondrian y el ruso Kazimir Malévich a sus espaldas, contemporáneo del expresionismo abstracto estadounidense, el colectivo Fluxus, la Internationale Lettriste como la Internationale Situationniste y el pop art del Reino Unido, Klein nos ha dejado cierta herencia en la actualidad: el alemán Wolfgang Laib (1950), el británico-alemán Tino Sehgal (1976) y el inglés Nils Norman (1966).
+
+El poeta persa Omar Khayyam, hacedor de las adorables *Rubaiyat*, esa oda al vino y al instante, realizó un pacto con dos amigos de su juventud en pleno siglo XI: cada uno se obligaba, en el caso de que triunfase en la vida, a disponer de todos los medios a su alcance para que sus colegas también fuesen exitosos. Más acá en el calendario, en una playa de Niza en el verano de 1946, a Yves y dos amigos –uno de ellos, el escultor Arman Fernández, ha pasado a la posteridad en la sorprendente *Retrato relieve de Arman* (1962), obra que se halla al final del recorrido de *Yves Klein. Retrospectiva*– se les dio por hacer un juego: se iban a repartir el mundo entre los tres. Entonces uno escogió el reino animal, otro el dominio de las plantas. Mientras que Yves, ya tendido en la arena y abstraído por el infinito azul del cielo, les expresó: “El cielo azul es mi primera obra de arte”.
+
+A 70 años de aquella epifanía, su trazo vibrante –hagan el ejercicio frente a sus increíbles monocromos azules que revisten las paredes de PROA: el azul vibra de tal modo que invita a fundirnos en el lienzo– continúa desparramando elogios y obnubilación. Y nos cautiva por un motivo evidente: la sencillez arrancada a una belleza intolerable. Porque en esa repetición, en esa presencia insistente del azul ultramar, se confrontan y se desparraman todas las penas de un mundo habituado a la mutación, al secreto murmullo de lo insondable; la respiración famélica de la libertad. Esa a la que Klein nunca renunció: “Esa sensación de libertad total del espacio sensible puro ejercía sobre mí tal poder de atracción que yo pintaba mis superficies monocromas para ver con mis propios ojos eso de absoluto que tiene lo visible”, escribió.
+
+¡Larga vida a lo inmaterial!
+
+¡Larga vida a Yves Klein!
+
+  
+
+
+
+
+---
+
+ Gustavo Álvarez Núñez
+----------------------
+
+ Gustavo Álvarez Núñez es periodista, músico y poeta. Fue director editorial de *Los Inrockuptibles*. Publicó *Daniel Melero: Antes, ahora y después* (Derivas, 2012), *Vidas epifánicas* (Mansalva, 2015) y tres libros de poemas. En Twitter es [@ganposta](https://twitter.com/ganposta).
+

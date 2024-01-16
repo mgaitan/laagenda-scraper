@@ -1,0 +1,1 @@
+../../139948978480-crítica-la-nueva-generación.md

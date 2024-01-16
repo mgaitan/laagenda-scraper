@@ -1,0 +1,51 @@
+# La ópera de un Chaco virtual
+
+**Puente de diálogo interdisciplinario,**
+
+16 de septiembre de 2016 - Teatro
+
+_por Natalia Laube_
+
+Link original: https://laagenda.tumblr.com/post/150478402300/teatro-la-%C3%B3pera-de-un-chaco
+
+![](https://64.media.tumblr.com/9d53bfc8c9267886a779d02b9b6f93d2/tumblr_inline_pk0l8n1Dok1t6q87u_500.jpg)
+Siempre me resultó difícil entender por qué en Buenos Aires, una ciudad que tiene una escena literaria pujante y una desmesurada producción de teatro alternativo, existen tan pocos cruces entre las artes escénicas y la literatura. Me refiero a cruces concretos, intencionados: cualquiera podría refutar mi teoría hallando alguna resonancia, cierta inspiración, el caso de un dramaturgo que también publica poesía o el de algún escritor que haya colaborado con el texto de una obra. Pero, insisto, se trata de un diálogo menos habitual del que uno podría imaginar, y eso es algo sorprendente si se tiene en cuenta que el lenguaje primario de la literatura y el del teatro es el mismo. Esta tendencia puede atribuirse al hecho de que la mayoría de los directores de teatro porteños también escriben (ese combo de dramaturgo-más-director, que en otras ciudades del mundo se da esporádicamente, acá se instaló como una incuestionable manera de producir). Podría pensarse que por esa autosuficiencia que forjaron, rara vez los dramaturgos/directores acuden a textos de otros. O podría decirse, no sin un poco de malicia, que los teatristas leen poca literatura argentina, si no poca literatura a secas. 
+
+Sea cual fuera la explicación, la noticia de que *El viento que arrasa*, primera y celebrada novela de Selva Almada, haya inspirado una ópera que puede verse hasta mañana en el TACEC es un acontecimiento en sí mismo. Lo es por muchos motivos, pero sobre todo porque establece un puente de diálogo ahí donde casi no existe uno. El suceso tiene una principal responsable, que en estos años navegó las aguas de ambas disciplinas: Cynthia Edul. Licenciada en Letras y egresada de la carrera de Dramaturgia de la EMAD (también profesora universitaria, escritora y directora teatral), Edul es desde diciembre la responsable de la sala alternativa del Teatro Argentino de La Plata. El TACEC, que había estado cerrado durante la anterior gestión del teatro, demostró en los primeros meses de su renacimiento que tiene todo lo que hace falta para volver a ser el espacio de experimentación que se supone debe ser: recursos, voluntad y cabezas que, más allá de la producción de espectáculos aislados, están pensando en términos de cruce y de una curaduría más amplia, de una propuesta integral. 
+
+![ganchos](https://64.media.tumblr.com/d412a716329ec5f352ad507f9d93720d/tumblr_inline_pk0l8oGXeQ1t6q87u_500.jpg) La obra incluye a una orquesta y unos falsos perros que interpelan el argumento.El libro de Almada estaba daba vueltas por mi biblioteca desde hacía dos o tres años, pero no le había dado una chance hasta la semana pasada, en que me dieron ganas de espiar los ensayos de su versión operística para escribir esta nota y pensé que sería más provechoso conocer de antemano el argumento. Constaté lo que suponía por las críticas de la novela y por su circulación: *El viento que arrasa* es un pequeño clásico instantáneo, un relato muy bien escrito, entretenido y que desde su conjunto de historias mínimas habilita una cantidad inmensa de interpretaciones sobre el mundo y las maneras que inventamos para darle sentido.
+
+La historia reúne al reverendo Pearson y su hija Leni con el Gringo Brauer y su protegido Tapioca en un paraje chaqueño bastante perdido en el mapa, donde estos últimos tienen una casa sencilla y un taller mecánico. Cuando se rompe el auto que lleva a Pearson y Leni de provincia en provincia, para evangelizar a quien quiera escuchar, se produce el encuentro que dejará huellas para siempre en la vida de los cuatro.“ 
+
+La novela está contada por un narrador extradiegético que parece entender lo que hay en las cabezas de los personajes, y logra hilar los acontecimientos desde la lógica y las palabras de cada uno pero que, claro, mira y relata desde afuera. Primer problema: ¿Cuáles son los sonidos de una novela que pueden ser llevados a composiciones musicales y a canciones de ópera? Segundo problema: ¿A qué estrategias apelar para lograr una transposición inteligente y relativamente fiel, que logre dar con *esa voz* pero responda a los códigos escénicos? Beatriz Catani, directora de la puesta, y Luis Menacho, compositor de la música y las canciones, encontraron tres soluciones atractivas para no caer en la conversión a acciones y diálogos de todo eso que la novela cuenta por otros medios. Es decir, para evitar que los personajes tengan que poner en palabras lo que les pasa, sienten y recuerdan y de esa manera terminen convertidos en seres totalmente autorreflexivos y locuaces, algo que no se correspondería para nada con el espíritu de la historia. Por un lado, Catani sumó al relato un diario íntimo que Leni escribe mientras se van desarrollando los acontecimientos, pero que rescatará años más tarde, ya vieja, cuando recuerde ese encuentro chaqueño con Brauer y Tapioca. Por otro, hizo entrar a los perros de la casa como personajes centrales que miran, opinan y completan el relato, rompiendo el realismo de la novela pero sumando una óptica interesantísima para la escena. Además, tomó la decisión de contar gran parte de los acontecimientos a través del lenguaje audiovisual: para ello se filmaron muchos paisajes naturales que traen ese universo agreste de la novela y se sumaron voces en off y texto escrito, que logran el efecto de *voz externa* que se necesitaba. 
+
+![ganchos](https://64.media.tumblr.com/6f0488b4a194468fa2fb9a25716a120d/tumblr_inline_pk0l8px2h51t6q87u_500.jpg) En sincronía, una película añade su propia lógica escénica.  
+**SÁBADO 10 DE SEPTIEMBRE, ENSAYO.**  
+
+Es la primera vez que veo el ensayo de una ópera y me basta mirar cinco o tal vez diez minutos para tomar conciencia del inmenso trabajo que implica hacer un montaje de todo esto. Me desespera pensar que tanta gente está trabajando de una manera tan ardua para ofrecer solamente cuatro funciones de este proyecto. Semanas (o tal vez meses) de ensayo para encontrarse solamente cuatro veces con el público. Cualquier puesta en escena requiere de un trabajo muy duro, es cierto, pero conformar un sistema entre músicos, actores y cantantes y lograr que de acá salga algo que se vea y suene más o menos orgánicamente resulta un desafío infernal, tal vez la cosa más difícil del mundo. Los músicos ensayaron durante muchas jornadas por un lado; los actores hicieron lo propio por otro y en algún momento, que debe haber sucedido poco, hubo que juntar los lenguajes y los cuerpos y ponerlos a hacer equipo. Y además está la película, que tiene su propia lógica escénica y exige un tratamiento cuidadoso: los instrumentos tienen que acompañar sus audios, pero no taparlos, y a la vez prestar atención para estar en sincronía con lo que las imágenes van contando, aunque estén de espaldas a la pantalla y no puedan verla. Las escenas avanzan de manera lenta, y se cortan cada dos o tres minutos a pedido del compositor, del director musical o de la directora general: todavía hay mucho para corregir y rever. Pienso: “¿Llegarán bien al estreno del miércoles? Están al horno”. 
+
+  
+**LUNES 12 DE SEPTIEMBRE, ENSAYO GENERAL.**  
+
+Como cada lunes desde hace unas cuantas semanas, llueve y hace frío en Buenos Aires. Pero la lluvia de hoy trajo, además, unos vientos inusitados, que sobre la autopista La Plata-Buenos Aires se sienten todavía más fuertes y desestabilizan un poco el andar del auto. Pienso que el clima marida muy bien con el título de la obra que estoy yendo a ver, y ese es un muy buen augurio para la última pasada anterior al estreno. Cuando llego al TACEC, percibo los nervios totales en el ambiente, como siempre que algo se abre al público por primera vez: el ensayo general es una instancia que todavía admite algún que otro error pero en donde se espera que todo salga de manera fluida, más o menos bien. Todavía no dieron sala al grupo de invitados, compuesto por familiares y amigos de los artistas. Los músicos afinan sus instrumentos. Los cantantes vocalizan. Los directores hablan entre sí y señalan cosas que están sobre el escenario. Los actores recorren el espacio que, a diferencia del sábado, ya exhibe la escenografía completa. 
+
+Desde un altoparlante se escuchan órdenes: “¡Silencio! Se va a dar sala. Les pido a las personas que están sobre el escenario que se ubiquen en sus posiciones. Mucha mierda”. No sé qué clase de magia hicieron, pero finalmente llegaron: todas las dudas del sábado hoy se convirtieron en certezas —reales o improvisadas— y la maquinaria de los mil lenguajes se echa a andar.
+
+![ganchos](https://64.media.tumblr.com/634d7816665f9487507bc08c7ec9531e/tumblr_inline_pk0l8qp3z01t6q87u_500.jpg) El cruce disciplinario reposiciona al TACEC como centro de experimentación.
+Recién hoy veo la obra completa y me doy cuenta de que las escenas cantadas por Brauer (Guillermo Saidón) y el Reverendo (Sebastián Sorarrain) se pueden contar con los dedos de una mano. ¿Es *El viento que arrasa* una ópera o más bien una puesta escénica con pasajes de ópera? Más allá de su género, sobre el que se podía discutir algún tiempo y escribir unos cuantos párrafos más, hay una idea que aparece de inmediato, apenas termina la pasada general: la novela, clásica y sólida en su estructura, está respetada en su argumento pero quebrantada en su organicidad, estallada en mil pedazos, expandida en imágenes y sonidos. Arrasada como por el viento al cual alude. Eso, probablemente, sea lo mejor que tienen los cruces. 
+
+  
+Las últimas dos funciones de *El viento que arrasa* son hoy y mañana a las 21 en el TACEC del Teatro Argentino, en 51 entre 9 y 10, en La Plata.
+
+  
+
+
+
+
+---
+
+ Natalia Laube
+--------------
+
+ Natalia Laube es crítica teatral del diario La Nación y periodista freelance. Últimamente escribió sobre arte y cultura en el suplemento Las/12 y en las revistas ALTA, Arlequín y Funámbulos, entre otros medios. Es licenciada en Crítica de Artes en la Universidad Nacional de las Artes. En Twitter es [@hiloglorieta](https://twitter.com/hiloglorieta?lang=es)
+

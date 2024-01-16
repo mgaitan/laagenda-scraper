@@ -1,0 +1,1 @@
+../../139455246415-teoría-de-la-eficacia.md

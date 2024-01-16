@@ -1,0 +1,1 @@
+../../662788144419258368-anatomía-de-un-instante-decálogo.md

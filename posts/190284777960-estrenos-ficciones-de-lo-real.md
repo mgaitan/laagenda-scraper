@@ -1,0 +1,40 @@
+# La audacia y el cálculo
+
+**Con citas a clásicos del género, se estrena**
+
+16 de enero de 2020 - Estrenos
+
+_por Maia Debowicz_
+
+Link original: https://laagenda.tumblr.com/post/190284777960/estrenos-ficciones-de-lo-real
+
+![](https://64.media.tumblr.com/4bd8777b51fba28348eb77c06bed4e07/5c2e9497765d2642-48/s500x750/6672f0a59d1caff4c57660044301ac04ca136f6a.jpg)### *El robo del siglo*, de Ariel Winograd (Argentina, 2020), ‘114
+
+![Katie Ledecky](https://64.media.tumblr.com/505e24e22aa1b1878322ee1c7da9acb2/5c2e9497765d2642-9b/s400x600/56452355c8e0e7901ecc1371814c5815fa5c8ca5.png)
+“Cuando uno comete un acto inmoral como robar un banco, cuanto más piense en los efectos secundarios que vas a producir con la mayor empatía y ética personal posible, mucho mejor va a ser la reacción social posterior”, recita mientras se fuma un porro el ideólogo del robo del Banco Río (Diego Peretti), un personaje que busca una verdad por la que pueda dar la vida. Su socio inversor, Mario (Guillermo Francella), un ladrón profesional soberbio y solitario, lo escucha con poca paciencia sentado a su lado rodeado por un paisaje verde. “Acá no hay daño verdadero. Pierde el banco, pero eso le encanta a la gente. Equilibrio natural”, agrega la cabeza del atraco dando otra pitada. Mario trabajó toda la vida solo, y respeta poco a su nuevo compañero amateur: amenaza con abandonar el proyecto una y otra vez. Esta tensa, cómica relación marca el latido de *El robo del siglo*, el noveno largometraje de Ariel Winograd (*Cara de queso*, *Mi primera boda*, *Sin hijos*), película que recrea el impactante robo al Banco Río de Acasusso del 13 de enero de 2006, golpe que nos mantuvo en vilo con transmisión en cadena de todos los canales de televisión. Un atraco de cajas de seguridad (entre 8 y 25 millones de dólares) disfrazado de toma de rehenes que burló a más de 300 policías. Fue definido como el mejor robo de la historia argentina, y uno de los cinco más importantes del mundo. Los titulares se repetían: “Un golpe de película”. 
+
+A lo largo de la historia, el cine diseñó sus robos de banco como también creó sus propios gángsters estilizados, sus declaraciones de amor (que incluían corridas desesperadas para detener un avión) y el delineamiento de la personalidad obsesiva de sus asesinos seriales. Es probable que una persona que quiera robar un banco haya visto más películas sobre el tema que asaltos en la vida real. Son incontables las secuencias cinematográficas que quedaron grabadas en el imaginario popular. Una de las primeras tiene la firma de Don Siegel: Walter Matthau, en la piel de Charley Varrick, llega en un auto robado a un pequeño banco en Nuevo México. Con un falso yeso en una pierna, peluca, bigote, cejas y hasta un lunar. Así se presenta ante el espectador. El personaje, en apariencia ingenuo, pide por ventanilla cobrar un cheque. La secuencia es lenta, ¿podría no serla siendo tan largo el camino burocrático para cobrar un cheque? Varios minutos más tarde, el ladrón anuncia su propósito, al mismo tiempo que dos cómplices levantan sus armas luciendo unas aterradoras máscaras de látex. Es recién cuando se dan vuelta los secuaces que la música comienza a sonar; hasta ese instante los únicos sonidos provienen de la cotidianeidad aburrida del funcionamiento del banco. “¿Quieren morir por causa del dinero de otros?”, le pregunta el protagonista al gerente y a su secretaría mientras los apunta. Así comienza [*Charley Varrick*](https://www.youtube.com/watch?v=TxaqjQWQVAk), la película de 1973 que adapta la novela *The Looters*, de John Reese.
+
+De Walter Matthau a Patrick Swayze. Cuando Kathryn Bigelow filmó en 1991 al galán y bailarín de *Dirty Dancing* (1987, Emile Ardolino) irrumpiendo en un banco con una máscara de Ronald Reagan fue un antes y un después en el cine, y también en la vida real. Cada golpe con caretas nos recuerda a esa secuencia donde Bodhi y su banda de surfers roban portando máscaras de los ex presidentes. “Como en la película *Punto límite* roban un banco disfrazados con máscaras” 
+[tituló](https://crimenyrazon.com/como-en-la-pelicula-punto-limite-roban-un-banco-disfrazados-con-mascaras/#.XiBiiS3SG9Y) un diario local en 2014 cuando tres ladrones entraron a un Banco Credicoop de Avellaneda y se llevaron 500 mil pesos. *Punto límite* influyó a decenas de films: desde la escena inicial en *Batman-El caballero de la noche* (2008, Christopher Nolan) hasta *Atracción peligrosa* (2010, Ben Affleck). Quince años antes, Michael Mann había refilmado escena por escena su película *L.A. Takedown* (1989), bajo el nombre de *Fuego contra fuego*, esta vez con Robert De Niro y Val Kilmer como los delincuentes que atacan un camión con máscaras de hockey. Es un film fundante a la hora de “romantizar” la figura del ladrón de bancos. 
+
+**Caer con estilo**
+
+¿Cómo se sostiene el interés en una película basada en hechos reales, conociendo el desenlace de la historia? Creando personajes y micro relatos que nos distancien un poco de las crónicas policiales. *El robo del siglo* no busca ser fiel al hecho tal cual fue, más allá de que el ideólogo del verdadero robo al Banco Río, Fernando Araujo, es parte del proyecto desde el minuto cero. Como en *El ángel* (2018, Luis Ortega), el cine no está acá para reflejar la realidad sino para construir otra paralela. Si en aquella película Carlos (Lorenzo Ferro) baila “El extraño de pelo largo” seduciendo a la cámara, en *El robo del siglo* Mario va a clases de teatro donde juega a ser un orangután, ubicándose más cerca de la comedia absurda y el espíritu lúdico. Winograd ensayó ese tono en *Vino para robar* (2013), película que resuena en este tanque nacional, pero sin un interés romántico. La historia de amor en *El robo del siglo* es entre los ladrones y el dinero, pero aún más con ellos mismos, orgullosos de un logro que hasta el día de hoy suena imposible. Al igual que en *Bob le flambeur* (1956, Jean-Pierre Melville), el film que se viene gestando hace varios años pone el acento en la puntillosa estrategia, convirtiendo al cerebro en un Kevin McCallister estudiando planos y urdiendo trampas ya no para atrapar a un ladrón, sino para no ser el capturado; yendo y viniendo en el tiempo, utilizando los recuerdos en forma de flashbacks como respuestas a dudas urgentes. “No hay soluciones imposibles. Hay problemas mal planteados”, le dice el ideólogo a Mario. 
+
+Con un elenco que completan Pablo Rago, Rafael Ferro y Mariano Argento, la película juega con el adentro y el afuera del Banco Río, el duelo entre ladrón y policía (Luis Luque), tal como sucedía en *El plan perfecto* (Spike Lee, 2006). Si en *Pulp Fiction* “Misirlou” estalla cuando Pumpkin (Tim Roth) y su novia alzan sus armas para asaltar la confitería, en *El robo del siglo* suena *Uno, dos, ultraviolento* de Los Violadores mientras vacían las cajas de seguridad. La película –como en las de Tarantino– funciona como una sucesión de sketches donde la canción define su contenido, y el tono se mezcla con la identidad narrativa que sembró Damián Szifrón en *Los simuladores*, luego plasmada en cine con *Tiempo de valientes*, también protagonizada por Diego Peretti. Su personaje en *El robo del siglo* tiene mucho en común con Emilio Ravenna. 
+
+ ¿Por qué las películas de robos de banco nos apasionan tanto? La razón, más allá de la tensión y el suspenso por si consiguen salir ilesos o no de la peligrosa maniobra, es tener la oportunidad de resolver ese halo de misterio que rodea a esos planes detallistas y milimétricos. La misma razón atrae al público por las historias reales de robos a banco: tratar de develar qué pensaron y sintieron esas personas y personajes al momento de dar el golpe. Y eso es justamente lo que ni una película ni una crónica policial logra revelar. Por eso es uno de los subgéneros más poderosos: el interrogante persiste por siempre. 
+
+  
+
+
+
+
+---
+
+ Maia Debowicz
+--------------
+
+ Maia Debowicz es periodista. Escribe en Suplemento SOY (*Página 12*), *Haciendo Cine*, *Infobae* y *El Amante*. En Twitter es [@Maia\_Debowicz](https://twitter.com/Maia_Debowicz?lang=es%E2%80%9D%0D%0Atarget=) 
+

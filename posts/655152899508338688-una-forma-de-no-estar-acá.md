@@ -1,0 +1,32 @@
+# Una forma de no estar acá
+
+**Mi padre no entiende que yo me pregunte tantas cosas, todo el tiempo. Es esa persona que me dice que así nadie va a quererme nunca.**
+
+28 de junio de 2021 - Anatomía de un instante
+
+_por Camila Fabbri_
+
+Link original: https://laagenda.tumblr.com/post/655152899508338688/una-forma-de-no-estar-ac%C3%A1
+
+![](https://64.media.tumblr.com/eb2bdd723b6653a6e3948a7a888c7a97/b793418e3ed0d7b7-df/s500x750/0fa0782ad08be6ef7dffd1254b064cab2fe8fe1f.jpg)Por mi parte no tuve grandes deseos de desear un feliz día del padre en las redes. No busqué fotos viejas con él, tampoco fotos nuevas: casi no tengo. No pensé grandes frases acerca de mi padre, pequeñas semblanzas que lo condecoraran. Probablemente, este año y esta vez, eso no guarde relación con mi estricto padre. Hay una idea de la paternidad que me viene presionando la garganta, no es algo que todavía esté apta para decir.
+
+¿Qué es un padre? Quiero decir: ¿qué comportamientos son los que transforman a un hombre de mediana edad en uno de esos? Imagino que la paternidad arranca mucho antes de que llegue un hijx. Imagino que la paternidad es esa decisión, arranca en esa búsqueda de que algo nuevo aparezca en el cuerpo del otrx. Muy seguido me pregunto qué es un padre porque viví, tal vez toda mi vida, intentando encontrar en el mío algunos signos que lo señalaran como eso. Quiero decir: siempre nombré padre a un civil que tomó esa decisión treinta años atrás y que, hoy día, es un hombre que puede muy poco. La relación con ese hombre es lo que debería entender como lazo filial, es ese vínculo obligatorio en el que todo lo que salga de su boca será oído como total autoridad, como verdad absoluta. Todo lo que nombre, por más que sea doloroso u horroroso, o no corresponda, será tatuado en algún sitio en la cabeza de la hija menor, la fiel seguidora, la que haría pogos interminables con tal de seguir oyendo esas canciones que no le hacen ninguna gracia. 
+
+Pero ¿qué vuelve padre a un padre? Hace no mucho tiempo, un hombre padre era aquél que se había hecho cargo. Punto. Solo eso era lo que lo convertía en tal cosa y eso era suficiente, era algo que se debía vitorear con la palmas en alto. Porque un hombre que está presente es todo un padre y uno que decide alejarse o desaparecer es una porquería. Pero, ¿decidir hacerse cargo es una razón suficiente para entender a esa figura como padre?  ¿Cuánto se le exige, entonces, a una madre? ¿Qué hay con una madre que decide huir? ¿Ese estadío de planta permanente y amor perpetuo es apenas un punto de partida de lo que entendemos como amor maternal? Qué desnivel, cuánto desequilibrio. El padre que ha decidido quedarse y la madre que ha dado todo lo que tiene y más, mucho más. Hay mucho de esto en las historias que me rodean, esas anécdotas de contemporánexs que han tomado este tipo de decisiones. Irse, quedarse. Estas tarantelas son las que escucho cada vez que me pregunto: ¿qué es un padre? Y también me exijo a mí misma saber: ¿por qué esto es algo que me pregunto tanto?
+
+Mi padre es errante, escurridizo. No es un vaivén, es algo que nunca está y cuando está tiene la cabeza en otra parte. Estas cosas se heredan, por supuesto que sí, esa también es mi forma de estar en el mundo. Mi padre es ese hombre que se cayó de un tren en movimiento cuando mi madre estaba embarazada, ese hombre que tuvo miedo, pánico y se acercó a la puerta del tren para que le viniera el aire a la cara y paff, sin querer cayó y se abrió la nariz. Las voces que lo conocen mejor que yo dicen que lo que lo salvó fue esa cruz de madera que traía colgada en el cuello. Un pensamiento mágico. A mi padre le operaron la nariz y yo lo conocí así, con la cara modificada. Mi padre son dos hombres: el de las fotos con aquella nariz y ese que veo en vivo. Mi padre también es alguien que tiene muchos problemas para poner en palabras lo que siente o lo que piensa. Las veces que lo intentó, o que no pudo más con eso que se le venía encima, chocó con su auto, se abrió la nariz o casi se muere porque el corazón se le detuvo unos instantes. Mi padre apenas sabe decir que quiere o que ama, puede escribirlo en un teclado, su expresión de cariño es algo virtual. Mi padre no entiende que yo sea alguien que se pregunte tantas cosas, todo el tiempo. Es esa persona que me dice que así nadie va a quererme nunca, que debería dejar que las cosas sean más fáciles. Mi padre es una persona llena de miedo, alguien que prefiere estar lejos, arriba de un barquito, pescando bagres, truchas o carpas. Ahí, en esa lejanía extraña, donde la tierra se aleja y lo único que puede verse es agua. Mi padre es ese que huye por su vida.
+
+No sé responder esa pregunta que me hago a menudo, pero al menos sé que ser padre no es solamente tomar una decisión. Deberíamos dejar de agradecerle por haberse quedado, la estadía permanente debería ser la causa natural. Ser padre es superar las expectativas del mundo moderno de lo que esperamos de un hombre padre. Es superarlas por el bien común, es sacar ventaja para poder desarticular de una vez por todas, el mito insoportable.
+
+Pero tengo un recuerdo: mi padre maneja su camioneta por una autopista que nos devuelve a la ciudad. Estamos solos y es de noche. En la radio suenan los clásicos porque es lo único que le gusta escuchar. Mira hacia el frente. Cada tanto me pregunta algo pero apenas oye lo que le respondo. Descubro que yo también hago eso. Somos calcos en lo individual. Estamos solos, él sin mí, yo sin él, aunque viajemos juntos. Cuando hacemos silencio nos sentimos muy cómodos. Esa compañía tiene algo ancestral. Sabemos que eso es lo mejor que podremos obtener y miramos hacia adelante, hacia ese enredo de autos que se ha detenido para no dejarnos pasar. 
+
+![ganchos](https://64.media.tumblr.com/4e404609a8a97399ff2e4512ad011465/b793418e3ed0d7b7-53/s540x810/be643c5587ca3d877db6fb96a9bbd78c41084d55.jpg)Querido padre:
+Hace poco tiempo me preguntaste por qué te tengo tanto miedo. Como siempre, no supe qué contestar, en parte por ese miedo que me provocás, y en parte porque son demasiados los detalles que lo fundamentan, muchos más de los que podría expresar cuando hablo. (Carta de Kafka a su padre)
+
+---
+
+Camila Fabbri
+-------------
+
+ Es dramaturga, actriz y escritora. Su primer libro de cuentos, Los accidentes, se publicó en 2015 bajo el sello Notanpuan y luego lo reeditó Emecé. Su segundo libro es “El día que apagaron la luz”, una novela de no ficción. En Twitter es [@fabbri\_camila](https://twitter.com/fabbri_camila) 
+

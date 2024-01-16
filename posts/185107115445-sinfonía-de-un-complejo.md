@@ -1,0 +1,40 @@
+# Sinfonía de un complejo
+
+**En Edipo Rey, que se presenta en el Cervantes con una flamante traducción revisada, el minimalismo y la apuesta por la abstracción juegan a favor.**
+
+24 de mayo de 2019 - Teatro
+
+_por Leticia Frenkel_
+
+Link original: https://laagenda.tumblr.com/post/185107115445/sinfon%C3%ADa-de-un-complejo
+
+![](https://64.media.tumblr.com/ab0822d525afc38fd3300b58b5558da8/ad16d3ec261ea021-21/s500x750/3dddaca176763c65b2b89e71ed152f6f051ff8bc.png)De las formas que ha inventado el teatro, la tragedia griega es una de las más empáticas y catárticas para el espectador; un auténtico boleto de ida al círculo de los infiernos. Pocas veces el teatro ha podido escanear de manera tan íntima y existencial el oxímoron que habita en la naturaleza humana. En Antígona, Sófocles define al hombre como un “ser misterioso”, porque puede ser el más altruista y noble, pero también el más abyecto y criminal. Edipo rey, tragedia escrita por él unos años después y una de las más logradas de la dramaturgia occidental (aunque en el momento en que la presentó al concurso anual de Atenas ganó el segundo premio), es un claro ejemplo de esta ambigüedad. 
+
+
+Qué difícil hablar hoy de Edipo rey sin repetir y sin soplar. Qué más decir después de Freud, de la cantidad de veces que se citó el acertijo de la Esfinge (“¿Cuál es la criatura que en la mañana camina en cuatro patas, al mediodía en dos y a la noche en tres?“), y de las innumerables puestas que se han realizado desde su creación allá por el año 430 A.C. Entonces ¿por qué los millennials y los centennials tienen que ver Edipo rey? Sencillamente, porque un clásico bien hecho es infalible y supera cualquier pochoclo del cine o de la tele (en las casi dos horas que duró la obra, no se escuchó el ruido de ninguna butaca ni asomó una sola pantallita de celular). Cuando la puesta es buena, espectadores, dioses y el mismo Sófocles desde algún lugar, celebramos y acudimos obedientes al ritual dionisíaco. El Edipo rey de Cristina Banegas, traducido por Alberto Ure y Elisa Carnelli, se puede ver en la sala María Guerrero del teatro Cervantes hasta el 16 de junio.
+
+
+A propósito de por qué ver Edipo, el doctor en Filosofía y traductor de griego antiguo Esteban Bieda, quien realizó la adaptación y dramaturgia junto a Banegas, responde: “Hay varias razones por las que la tragedia griega -o el teatro clásico en general; pensemos en el Hamlet que se está haciendo por estos días en el San Martín- merece ser revisitada periódicamente. Sin entrar en frases hechas del tipo “cuna de la cultura occidental”, lo cierto es que se trata de un registro de lenguaje, de pensamiento, de articulación de ideas, de problemas y de afectos; un registro del lenguaje, decía, que involucra cierta complejidad y profundidad, ausentes, como tales, en el registro diario del habla, del pensamiento y del entretenimiento. La tragedia no es “entretenimiento”, es teatro. Y no digo esto en contra del entretenimiento, sino a favor de que podamos volver a elegir qué queremos ver, cómo queremos aprender o expandirnos como personas. El problema no es Netflix, el problema, creo, es que, en el último tiempo, nos han privado de la posibilidad de elegir entre ver una película en Netflix -cosa que yo hago habitualmente- o ver una tragedia griega. Ese adelgazamiento de nuestra permeabilidad expresiva es, a priori, poco feliz. Hacer una tragedia griega en un teatro nacional argentino es, entonces, un modo de resistir contra el aplanamiento de los matices y contra el vaciamiento intelectual y emocional al que los modelos neoliberales de educación nos llevan, muchas veces sin darnos cuenta”.
+
+
+En este sentido, es interesante destacar que, a diferencia de ciertas puestas rimbombantes o plagadas de “efectos especiales” que hacen hincapié en el “entretenimiento”, la puesta de Banegas es austera, despojada. No hay objetos ni cambios de vestuario. La escenografía es una plataforma giratoria de madera, sobre la que descansa un piano (ejecutado durante toda la función por las manos mágicas de Carmen Baliero), y un humilde coro griego, cuyos tres representantes están semidesnudos, cubiertos de tierra y descalzos (todos los personajes de la obra lo están y tiene un sentido: Edipo es oudipous, el que tiene un edema en los pies o los pies hinchados por haberlos tenido atados cuando lo abandonaron en el monte). De fondo, se proyectan unas pocas imágenes abstractas como si fueran lienzos que simulan los barrotes de una cárcel, en la que se encuentra atrapado Edipo (Guillermo Angelelli), y toda la humanidad. 
+
+
+El minimalismo y la apuesta por la abstracción (el vestuario, por ejemplo, mezcla lo antiguo con lo “futurista”) parece indicarnos que lo único esencial es el texto y cómo los actores y actrices se lo apropian. Un acierto en la decisión dramatúrgica es haber reemplazado el “tú” por el “vos”, más argentino, que da como resultado un texto más dinámico, en el que la típica solemnidad que se siente al escuchar palabras escritas hace tantos años queda más diluida. “Para nosotros era fundamental poder mostrar una versión de Sófocles que ‘suene’ en nuestra propia lengua, que no tenga ese resabio museístico de las traducciones españolas; hacer un ‘edipo argentino’, que nos hable a lxs argentinxs como hablamos lxs argentinxs. Como se ve, pasar del tuteo al voseo, adaptar la obra al argentino fue una decisión más política que estética”, explica Bieda. 
+
+
+![](https://64.media.tumblr.com/ed7e77f5d6d88d1872479683e55647e8/ad16d3ec261ea021-7b/s500x750/07408c6fb2304096c611027edb33bedab1b6763d.jpg)Él también quien escribió el texto que figura en el programa de mano, y allí dice algo muy interesante: cuando hoy pensamos en la palabra “tragedia”, la pensamos como una fatalidad de la que no seríamos los artífices; en cambio la tragedia griega mostraba seres humanos responsables, incluso por su destino. Edipo actúa en un ataque de ira, pero enseguida asume su responsabilidad como individuo, arrancándose los ojos y desterrándose. Porque no hay cosa peor para un héroe trágico que obrar con inocencia, sin culpa. Como dice el especialista Hugo Bauzá, los personajes de Sófocles –a diferencia de los de Esquilo–, actúan mal inconscientemente, y por eso el delito de Edipo en todo caso es haber nacido (Edipo rey es una “tragedia ontológica”, más que psicológica o ética). Lo trágico brota cuando, justamente, toma conciencia de lo que ha hecho, pero ya no hay forma de volver atrás: lo hecho hecho está, y lo peor es que mientras más intente salir del enredo, más profunda será la caída. Edipo rey es también una “tragedia detectivesca”, porque él mismo, lúcido como Sherlock Holmes, es quien se ocupa de buscar y encontrar al criminal, armando así el rompecabezas de su identidad. Un rompecabezas siniestro, verdaderamente.
+
+
+Entonces, el individualismo a ultranza de Edipo y su obstinación por escuchar solamente su propia campana, hacen que esta obra sea tan actual como en el 430 A.C. Edipo rey muestra ciertos preceptos new age que calan profundo en nuestra sociedad, como la exacerbación de las libertades individuales (el “a mí me parece”, el “yo opino” como criterio suficiente para plantar posición), o el vivir bien evitando el sufrimiento a toda costa, que nos hacen olvidar que hay otras voces que pueden ayudarnos y que nuestros destinos no dependen solamente de nosotros. Si bien Sófocles sostenía que eran los dioses quienes decidían nuestra suerte, y que por eso la autonomía del ser humano es relativa (el hombre no sería, entonces, la medida de todas las cosas), hoy lo podemos pensar, siguiendo las palabras de Bieda, de la siguiente manera: “Ante expresiones populares del estilo “el mundo está contra mí”, la tragedia griega nos recuerda que también somos partes de ese mundo, de modo que somos nosotros mismos quienes, en ocasiones, estamos en contra de nosotros”.
+
+
+
+
+---
+
+ Leticia Frenkel
+----------------
+
+ Leticia Frenkel es periodista y escritora. Es Licenciada en Letras y Magíster en Escritura Creativa por la UNTreF. Colabora en Inrocks y otros medios. 
+

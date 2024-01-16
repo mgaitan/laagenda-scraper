@@ -1,0 +1,40 @@
+# Una oda a lo personal
+
+**Había comprado un lote de alrededor de mil CDs, toda la colección de una pareja, sin saber qué había, qué estilos musicales la integraban. Un lote ciego.**
+
+7 de abril de 2021 - Vidas
+
+_por Romina Zanellato_
+
+Link original: https://laagenda.tumblr.com/post/647667169822425088/vidas-una-oda-a-lo-personal
+
+![](https://64.media.tumblr.com/11833f6de9ff3499b08911756c01a416/b1d441bebb164146-39/s500x750/5f2351140615dfeee015fc6f50efccacc4c00c1b.jpg)En esa otra era, que denominaremos “antes de la pandemia”, un sábado de verano, salíamos de mi casa en Villa Crespo con mi novio y en el auto habían dejado un papel que avisaba de una venta de garage, una especie de subasta a lo programa de *Home and Health*, de todas las cosas que había en la casa más grande y lujosa de la cuadra. Nos miramos y no lo dudamos, yo por periodista curiosa y él por amante del regateo y la segunda mano. La casa abría sus puertas a las 8 de la mañana del domingo y nosotros fuimos con toda la fiaca del mediodía. En la puerta dejamos -con desconfianza- nuestro mail, teléfono y DNI, y al fin entramos a la mansión que había del otro lado del paredón, como quien entra a hacer un servicio, con timidez y mirando para abajo. De a poco fuimos entendiendo la lógica. Era como si los dueños se hubiesen evaporado −calculo que murieron− y todo hubiera quedado ahí tal cual estaba, como si un hada hubiera puesto un un papelito con el precio y nada más. El cenicero que se trajeron de Tilcara, los cinco tapados de piel de animales varios, los vestidos mexicanos, la licuadora, el televisor, el juego de sillas y mesa del comedor, el equipo de música hi-fi de los 90 y la colección de discos, que ya tenía el cartel de vendido. Nos quedamos helados frente a ese monumento del buen gusto. Pilas y pilas de cajitas con sus CDs de la música más fina para nuestros oídos. Todo eso tenía que estar en nuestro hogar, en nuestra discoteca, ¿quién se lo había llevado? ¿Cómo no vinimos antes? ¿Quién vino tan temprano a quedarse con este botín? Les preguntamos a las dos personas que recorrían la casa de manera fantasmal y nos enteramos de que hay una organización de vendedores de ferias que van a buscar a estas subastas. Que si madrugás, ganás.
+
+Recorrimos la casa, abrí los cajones de la habitación, me colgué algunas carteras, incluso me probé una campera de cuero a lo Neo de *Matrix* y sentí que éramos una especie de ladrones que habíamos irrumpido en una casa para tocarlo todo. Al salir nos anotamos para recibir las novedades de las próximas subastas y nos pusimos el despertador en los siguientes tres domingos. Apareció la pandemia y la ilusión de ingresar a un hogar para adivinar lógicas, habitantes, sus profesiones y qué había pasado se terminaron de un momento a otro.
+
+La empresa que hacía las subastas no demoró en hacer una versión online. En las vísperas de los lunes, aunque todavía en la noche del domingo, justo a las 12, la página se refrescaba con productos de casas que se vaciaban y sus herederos querían vender. En una de esas noches de insomnio pandémico mi novio encontró algo y fuimos a buscarlo el fin de semana siguiente.
+
+Estacionamos frente a un edificio muy coqueto de las barrancas de Belgrano. El dorado de las barandas brillaba cromado por el sol de la primavera incipiente. Nada de tocar, todos con guantes, alcohol y barbijo. Ni el timbre tocamos porque el conserje ya estaba al tanto que íbamos y nos metió directo al ascensor, que abrió sus puertas y nos expulsó en el medio de un living-comedor desmantelado. Un piso que tenía ventanales hasta el techo en los tres puntos cardinales que pude ver. Mi mandíbula estaba por el subsuelo, había pilas y pilas de cajas, familiares vaciando lo que debió haber sido el departamento de sus padres. Mi curiosidad estaba en una *rave*, pero ahí se respiraba el lúgubre aire de las actividades autómatas que tapan el dolor. “Todo esto es lo tuyo”, le dijo una chica a mi novio y miré hacia el sector que señalaba: diez cajas llenas de CDs. Pesaban una tonelada y las cajas se desarmaban, pero al fin las metimos en su casa. Había comprado un lote de alrededor de mil CDs: toda la colección de una pareja, sin saber qué había, qué estilos musicales la integraban. Un lote ciego.
+
+La casa no tardó mucho en convertirse en un caos de cajitas de discos que se acumulaban, se caían como dominós o se revoleaban como un frisbee al sector “tirar”. Había mucho tango, con un amor especial por Astor Piazzolla. Había mucho folclore, con un amor especial por Liliana Herrero y Mercedes Sosa. Había mucho jazz, con joyas que pasaron a integrar nuestra propia colección personal, y había un sector de música latinoamericana que desarticulamos para elegir lo que nos gustaba. Las pilas estuvieron meses ahí hasta que hicimos un inventario en un excel, intentamos vender por lotes lo que no nos gustaba, sumamos alrededor de 200 a nuestra colección que ya tenía más de 700 discos, y el resto siguen dando vuelta por ahí. 
+
+El frenesí por el CD no paró ahí, le compramos una parte de su colección a una amiga con joyas adoradas por mí. Otra amiga encontró unos discos tirados en la calle en plena cuarentena y me llamó, había visto todo el despliegue del lote por mis historias de Instagram y se le ocurrió que me iban interesar. ¡Gracias, Laura! Ahí había ediciones originales de Cocteau Twins, Radiohead, Beastie Boys, The Clash, y más.
+
+No hubo ni un día del aislamiento obligatorio donde no escucháramos un par de discos. ¿Qué te gustaría escuchar?, decía alguno, y las respuestas podían ser: Brasil, Alemania en los 90, Inglaterra en los 80, Costa Este, Conurbano en los 2000, Chile en el 2010, República Autónoma de Ricardo Iorio, y así íbamos investigando nuestra propia discoteca. Aparecían los recuerdos de la adolescencia en esas cajitas que me hice traer de mi Neuquén natal, o los discos que nos fuimos comprando de a uno en el maravilloso mundo del Market Place de Facebook. 
+
+Cada tanto sigue tocando el timbre algún fantático que quiere completar su colección personal de lo que yo llamo “Piazzolla tocando en lugares”, o llega un mensaje de voz de algún comprador-feriante que quiere hacer un trueque, o aparece mi novio con regalos especiales, como el último: *Perfume* de María Gabriela Epumer para que crezca mi parte de la discoteca.
+
+![Julieta Venegas](https://64.media.tumblr.com/ec55f2fe8f2830ea0439c2c2afffaa7e/b1d441bebb164146-44/s250x400/0914fd50651535e303b85d42f3f7b6f41aba3f2f.jpg)  
+En esta era “post pandemia”, donde nos estamos acomodando a una realidad que sigue siendo hogareña, con salidas transitorias y una constante sensación de incomodidad, nuestro equipo de música es el centro de nuestra casa. El vinilo es muy caro, y no tenemos. El cassette es incómodo, aunque tenemos algunos. Las plataformas de streaming las usamos de manera frecuente, pero siempre nos atan a un dispositivo, una pantalla que puede volverse laboral en un pestañeo: si agarro el celular para cambiar de canción veo un mail, si me acerco a la computadora me distraigo con una novedad, y la escucha de un disco siempre se contamina con distracción digital. 
+
+El CD, fiel amigo del sonido, es la leña de nuestro refugio. Como los libros, cada cajita no sólo tiene la historia que en sí misma guarda, también tiene el rastro personal de quienes lo hicieron y lo escucharon. Los discos, en cualquiera de sus soportes físicos, sobre todo tienen la mítica de lo humano. En época de apocalipsis, lo único que quiero es soñar con el cassette que grababa de la radio, o con la primera vez que abrí el celofán de un CD recién comprado, o ahora, prender el equipo de música y adivinar, ¿por cuántas manos pasó esto que atesoro acá?
+
+
+
+---
+
+ Romina Zanellato
+-----------------
+
+ Es periodista. Colabora en Rollling Stone, Revista Viva, Indie Hoy y Latfem. Publicó la novela “Entre dos ríos” editada por Rosa Iceberg, y “Brilla la luz para ellas, una historia de las mujeres en el rock argentino” editada por Marea. Hizo el podcast Los Cartógrafos. En twitter es [@romizanellato.](https://twitter.com/romizanellato) 
+

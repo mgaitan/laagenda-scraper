@@ -1,0 +1,1 @@
+../../145227679205-buen-bipolar-un-esquema-clave-de-sol-clásico.md

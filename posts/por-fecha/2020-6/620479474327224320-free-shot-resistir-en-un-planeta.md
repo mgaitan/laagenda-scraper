@@ -1,0 +1,1 @@
+../../620479474327224320-free-shot-resistir-en-un-planeta.md

@@ -1,0 +1,37 @@
+# Ciudad de locos corazones
+
+**Con su nuevo álbum, Fito Páez reconquistó Buenos Aires ante un Luna Park efervescente, dispuesto a corear hasta los solos de saxo.**
+
+1 de mayo de 2018 - Música
+
+_por Julieta Roffo_
+
+Link original: https://laagenda.tumblr.com/post/173467591855/m%C3%BAsica-ciudad-de-locos-corazones
+
+![](https://64.media.tumblr.com/1a3b98fb0eeb1460b677040b9da58cf7/tumblr_inline_p821weyugx1t6q87u_500.png)
+Alguien apaga las luces del Luna Park. Se encienden las pantallas. La banda sube al escenario y, de saco y gafas azules, Fito Páez se sienta al piano. El cartel luminoso de Corrientes y Bouchard avisa que está acá para presentar su último disco, *La ciudad liberada*. Pero antes cuenta ooon, dooos, trés y su banda y su piano ejecutan el riff furioso que compuso en 1987 para vengar los asesinatos de su abuela y su tía abuela en Rosario. No canta, no grita “puta ciudad” con acento en la pé. Pero este es el país en el que se corean hasta los solos de saxo, así que no importa. El riff es como pegarle fuerte al medio al primer penal. Alcanza para que todo el estadio se pare y grite y transpire y, en medio de la calentura, Fito vuelve al futuro y canta la letra que nombra al disco que trajo debajo del brazo. Es como si nos hubieran alcanzado un contrato con los términos y condiciones para las próximas dos horas: algunas canciones nuevas, algunos clásicos, todos contentos. Si esto fuera una partida de TEG, a los tres minutos de show Fito Páez desparramaría sus fichitas sobre Buenos Aires. Así se conquista una ciudad. 
+
+Hay una veinteañera que llora. Su buzo de egresada la cuenta un poco: es neuquina y terminó el secundario hace tres años. Había llegado al Luna con dos amigas: una de ellas le sacó una foto con el escenario todavía vacío detrás. “La mando a Neuquén, no pueden creer que esté acá”, dice. Y *send*. Un rato después, Fito invita a Fabi Cantilo por primera vez al escenario. “Nuestra princesa cósmica”, la ensalza. Fabi aparece en el escenario y hace los coros de “Wo Wo Wo”, una de amor del último disco, y la veinteañera neuquina se larga a llorar. 
+
+La manga del buzo le sirve de pañuelo y ella les sirve de guía turística por “La ciudad liberada” a sus amigas. Advierte: “Escuchen este bajo” en “Tu vida mi vida”, “Esta tiene algo de Tráfico por Katmandú” en “Islamabad”, y “Acá hay que pararse” apenas empieza “El ataque de los gorilas”. Sobre el escenario, Fito cuenta que compuso esa canción después de que el portero de su casa lo interrogara sobre quiénes iban a llegar de visita. “No tengo nada contra nadie salvo cuando me quieren coartar la libertad sin que yo rompa las pelotas”, dice, antes de que él y su banda pongan a bailar a todo el estadio a fuerza de una melodía pegadiza y una letra irreverente. La veinteañera neuquina no es la única que escuchó lo último de Páez con minuciosidad. Los que corean las letras de las canciones nuevas se cuentan de a cientos. Se hacen oír cuando aplauden fuerte y largo después de “La mujer torso y el hombre de la cola de ameba”, otra de amor, hermosa y triste. Fito editó su mejor disco en muchos años y el Luna Park lo sabe. 
+
+El rosarino también lo sabe: ninguno de los temas del repertorio que suena esta noche y que no son parte de ese último disco tiene menos de quince años. Canción sobre canción, Fito recorre sus Obras Completas y elige algunas perlas. Cuando empieza el sintetizador de “El amor después del amor” nos paramos como si fuera uno de nuestros himnos. Cuando termina, le aplaudimos la garganta a Julieta Rada, capitana de los coros. Cuando Fito hace que Fabi vuelva al escenario para cantar juntos “Brillante sobre el mic”, el estadio se ilumina: parecen los celulares pero tal vez sea la canción. Cuando pide ver “los trapos” en el estribillo de “A rodar mi vida”, entre remeras y buzos que giran por encima de las cabezas, los pañuelos verdes a favor del aborto legal invaden las plateas. Y cuando arranca lo de “en un café se vieron por casualidad” dos cincuentones chapan fuerte y un chico que nació después que la canción saca el teléfono del bolsillo y graba a todo el estadio cantando el estribillo. Le grita “te amo, mi amor” a su amor y manda el audio. Si eso no es un clásico, yo ya no sé qué es un clásico. 
+
+![ganchos](https://64.media.tumblr.com/1a3b98fb0eeb1460b677040b9da58cf7/tumblr_inline_p821weyugx1t6q87u_500.png)Fito editó su mejor disco en años y el Luna Park lo sabe.“En ninguna ciudad cantan esta canción como en el Luna Park, estén a la altura”, desafía, sentado en el piano. Está a punto de empezar “Polaroid de locura ordinaria” y Páez le cede el micrófono a Coki Debernardi, su amigo y coterráneo, frontman de The Killer Burritos. Conclusión: nadie canta esta canción como Fito Páez. Un rato después, de espaldas al público, dirige a sus músicos: acá entra un teclado, acá va un poco de sintetizador, que aparezca un poco el bajo. Está serio. Tiene la cara que ponen los chicos de primaria cuando se concentran para acordarse la letra en el acto escolar. No hemos escuchado este arreglo antes, esta introducción que viene justo antes de que Fito vuelva al piano y diga “tu amor abrió una herida porque todo lo que te hace bien, siempre te hace mal”. Conclusión: Fito Páez puede hacer de “Tumbas de la gloria” una canción aún más linda. 
+
+No toca la guitarra esta noche. Tampoco hay un fragmento en el que Fito se siente solo al piano y haga algunos de esos enganchaditos que en estos textos suelen llamarse “medley” y que combinarían, si mis deseos fueran orden, “Cadáver exquisito”, “Cable a tierra”, “Viejo mundo” y “Al lado del camino”. Hipótesis: el dedo mayor de la mano izquierda completamente vendado debe tener algo que ver. Pero a falta de la intimidad del piano, los músicos se van y Fito se para en la orilla del escenario. Dice: “Voy a hacer algo que no hice nunca, recién hubo un silencio hermoso y quiero probar”. Y hace: se aleja del micrófono y, a capella, canta “¿Quién dijo que todo está perdido? Yo vengo a ofrecer mi corazón”. Nos, los habitantes del país que corea los solos de saxo, hacemos un silencio del que no nos sabíamos capaces. “Y te daré todo, y me darás algo, algo que me alivie un poco más”, dice, y es para llorar. 
+
+“Hey, qué te pasa Buenos Aires, es con vos”, canta Páez. Se guardó una de las que le hablan a esta ciudad para el final. Empapados de transpiración como las paredes del estadio, gritamos la última verdad de la noche: “La puta madre que lo re mil parió, ¿por qué nos cuesta tanto el amor?”. Con acento en la pé y en nuestras cicatrices. Como toda la noche, Fito está en el centro de su escenario porteño preferido. “Hace casi cuarenta años que me revuelco con esta ciudad”, dice. Con el público en éxtasis detrás suyo, se abraza con sus músicos para una foto con destino de red social. Sonríe como lo hacen los chicos de primaria cuando el acto escolar les salió es-pec-ta-cu-lar y se va. Alguien enciende las luces del Luna Park y el aplauso es largo y las caras son felices. Somos los habitantes de la ciudad conquistada. 
+
+  
+
+
+
+
+---
+
+Julieta Roffo
+-------------
+
+ Julieta Roffo escribe en la sección Sociedad de *Clarín*, tras ocho años en las páginas de Cultura del diario. Publicó textos en *El Universal*, de México, en *Los Andes*, de Mendoza, en *Diario Z* y en *La Agenda*. Convive con un librito de *El amor después del amor* desde que tiene siete años. En Twitter es [@jroffo](https://twitter.com/jroffo?lang=es) 
+

@@ -1,0 +1,47 @@
+# Dos libros de la buena memoria
+
+**En**
+
+13 de noviembre de 2018 - Mesa de luz
+
+_por Tamara Tenenbaum_
+
+Link original: https://laagenda.tumblr.com/post/180075949165/dos-libros-de-la-buena-memoria
+
+![](https://64.media.tumblr.com/377ebc8b98b5e9c88deb2782534e596d/tumblr_inline_pi5m21y7D51t6q87u_500.jpg)2018 fue el año de hablar de la maternidad. El aborto legal la primera mitad del año; la segunda, “con mis hijos no”. A mí me tocó vivir todo esto a los veintinueve. En cada reunión a la que voy en algún momento se habla del tema; mis amigas de más de cuarenta me prometen que se termina, que la que tuvo tuvo y la que no tuvo no tuvo y ya no se discute más. Mi mamá dice que en su época no se debatía tanto, porque todas tenían y listo. Nosotras discutimos porque muchas de nosotras, probablemente, no vamos a tener. Y estamos ansiosas por saber qué va a pasar, como cuando en la secundaria no podíamos parar de hablar de qué vendría después. No sé, entonces, si estos dos libros que elegí hablan sobre tener hijos, o no tenerlos, o tenerlos de formas distintas, o si solo me hablan a mí sobre eso. Pero así los viví yo.
+
+
+### *El legado de Mujercitas*, de Anne Boyd Rioux (Ampersand)
+
+En 2018 se cumplieron 150 años de la publicación del primer tomo de *Mujercitas*, y supongo que por eso Ampersand vio la oportunidad para traducir a toda velocidad el libro que la especialista Anne Boyd Rioux publicó este mismo año sobre el clásico de la literatura juvenil. Boyd Rioux lleva años investigando autoras norteamericanas del siglo XIX. Mi sensación es que su trabajo se inserta en una línea muy rica de la crítica literaria feminista, cuyo exponente más conocido es el libro *La loca del desván: La escritora y la imaginación literaria del siglo XIX* de Sandra M. Gilbert y Susan Gubar, publicado en 1979. Estas teóricas eligieron a las autoras inglesas y norteamericanas del siglo XIX como objeto de estudio pero no para preservarlas en un museo, sino para pensar la posibilidad de una tradición de escritura de mujeres que se hubiera construido a pesar (y en algún sentido, gracias a) los miles de obstáculos que enfrentaron las que se animaron a tomar públicamente una palabra que les estaba vedada. Virginia Woolf había escrito en Una habitación propia que “nos remontamos a nuestras madres” si somos mujeres, refiriéndose a las escritoras que vinieron antes que ella; sobre ideas como esa, o como la escritura femenina de la que habló Hélène Cixous, se fundó una forma de leer que probablemente les suene muy anticuada a las lectoras feministas de la cuarta ola —y que sí, puede caer en esencialismos si una no tiene mucho mucho cuidado— pero que produjo grandes lecturas sobre el modo en que las escritoras dialogaron con su época y entre ellas, se pensaron a sí mismas como autoras y construyeron colectivo mucho antes de que una mujer pudiera soñar con que la admitieran en un café literario o en cualquier espacio donde su voz fuera tomada en serio.
+
+
+Aunque todo el libro está empapado de este punto de vista, es la primera parte de *El legado de Mujercitas* la que más claramente va en esta dirección. Boyd Rioux reconstruye la vida de Louisa May Alcott y rastrea —sin pudores estructuralistas de ningún tipo— el modo en que sus avatares biográficos aparecieron en *Mujercitas*; a veces de forma casi literal, otras más veladamente, otras a modo de venganza de lo que quiso y no pudo ser. La figura del padre, por ejemplo, eternamente ausente en la historia de las Mujercitas, es una mezcla de homenaje y revancha de Amos Bronson Alcott, esa especie de Sarmiento excéntrico que le tocó tener a Louisa de padre y que parece haberle hecho la vida imposible a su madre (adorada por Luisa y homenajeada con toda la dulzura del mundo en el personaje de Marmee, la madre de las chicas); la pobreza de los Alcott, demasiado sombría para el libro para niñas que quería escribir Alcott, aparece atemperada pero no invisible en Mujercitas, así como la generosidad de los vecinos está señalada tanto en la familia Lawrence como en las donaciones más condicionales de la tía March. La decisión de no casar a Jo —avatar de Louisa— con Laurie, que ofendió a las lectoras de la época y a muchas que vinieron después también, pero finalmente sí casarla con alguien (cosa que la verdadera Jo jamás quiso hacer) también está en el centro del análisis y la pregunta por el feminismo avant la lettre de *Mujercitas*. La personalidad casi queer de Jo (que en un momento de la novela directamente desea haber nacido varón) y la actitud ambivalente de la novela respecto del matrimonio en general son otros de los puntos fuertes que Boyd Rioux sigue con inteligencia y precisión: ni siquiera las adaptaciones más contemporáneas de la novela, señala Boyd Rioux, se atrevieron a incluir la frase en la que Marmee les dice a sus hijas que “mejor ser solteronas felices que esposas infelices”.
+
+
+![](https://64.media.tumblr.com/377ebc8b98b5e9c88deb2782534e596d/tumblr_inline_pi5bupSdwF1t6q87u_250.jpg)Las siguientes secciones se concentran en el legado propiamente dicho: las adaptaciones, las influencias literarias y los modos en que *Mujercitas* se leyó, se lee y se puede leer. El trabajo de Boyd Rioux es impactante no solo por el volumen de su investigación sino por su lucidez: sin casarse con ningún enfoque, ataca por varios frentes la pregunta de qué significa leer Mujercitas siendo niña, siendo mujer e incluso siendo varón. Sus reflexiones sobre el modo en que cada adaptación de Mujercitas se valió del template del libro para contestar a las ansiedades y preocupaciones de la época son certeras e inteligentes, sin ser invariablemente celebratorias ni reduccionistas. *Mujercitas* es un libro que muchas amamos y en el que no podemos parar de mirarnos, pero *El legado de Mujercitas* no está escrito solo para nosotras: es para cualquiera a quien le interese pensar en qué significa leer un mismo texto, leer en el sentido más grueso de la palabra, a lo largo de 150 años.
+
+
+### *La mujer descalza*, de Scholastique Mukasonga (empatía)
+
+Cuando me llegó la gacetilla de editorial empatía, una pequeña editorial argentina que publica libros de autores africanos, decidí que reseñaría algún libro suyo incluso antes de tenerlos en la mano. Cada vez que me toca ir a un festival internacional de literatura con gente que viene de todo el planeta me avergüenzo de lo pequeño que es mi mundo literario; Argentina (porque ante todo, mirarse el ombligo), Latinoamérica, Estados Unidos, Inglaterra, algún francés o español por año y la verdad no demasiado más. Encima es un círculo vicioso: leo siempre cosas parecidas sobre mundos parecidos y el gusto se me va volviendo cada vez más caprichoso y —temo— mainstream, como un chico que come hamburguesas de McDonald’s todos los días.
+
+
+![](https://64.media.tumblr.com/3f37986355e81d963c90d04788b9536f/tumblr_inline_pi5buqP5D01t6q87u_250.jpg)*La mujer descalza* es quizás el libro menos ambicioso que jamás leí, y eso me fascinó. Ninguna metáfora, ningún adjetivo, nada en la sintaxis de Mukasonga delata una intención de hacer literatura. Su prosa tiene la desnudez de una película, o de una canción sin letra: lo único que hace es mostrarnos un mundo, de a partes, que es el mundo de su madre, Estefania. Mukasonga nació en Ruanda en 1956: su infancia estuvo marcada por el exilio tutsi y el peligro constante de la violencia hutu, de la que ella pudo escapar a Burundi primero y a Francia después, pero su madre no. En la última escena del libro, preanunciada desde el prólogo y la contratapa, Mukasonga vuelve a reconocer el cuerpo de su madre, que ha sido víctima de los hutu junto con otros 26 miembros de su familia. Solo una narradora con la humildad, la sencillez, la sutileza y la confianza de Mukasonga (confianza en el poder de lo que se cuenta) puede escribir esa escena sin caer en estridencias ni lugares comunes. Por supuesto que así es mucho más desgarrador, y sí lector, vas a llorar.
+
+
+El libro es un intento de retener el recuerdo de Estefania y las muchas mujeres que vivieron como ella, que vivieron para sus hijos, que se cuidaron entre todas de la violencia en la que vivían, que plantaron sorgo y se entusiasmaron a escondidas con novedades de la modernidad occidental como la tintura, la ropa interior y los inodoros. El modo en que se hila es profundamente singular: la sucesión temporal está, pero va por detrás. Por delante está el relato de una cultura y sus objetos clave: el pan, el sorgo, la sexualidad, los matrimonios. Mukasonga nos cuenta a su madre y a su comunidad a la vez desde el lugar distante y amoroso de una hija que se fue, que estudió, que pudo tener otra vida y eligió otra vida pero necesita que todo esto perdure. A medida que el relato avanza, las anécdotas más simpáticas van dando paso a la oscuridad que termina en el desenlace final de un modo imperceptible pero certero. Quiero seguir leyendo a Mukasonga, y me intriga también leer a otras escritoras africanas de su generación: a ver cuánto de esta maestría invisible, de esta escritura sin imposturas, con todo a la vista pero los hilos escondidos, es solo de ella, y cuánto es una voz colectiva.
+
+
+  
+
+
+
+
+---
+
+ Tamara Tenenbaum
+-----------------
+
+ Tamara Tenenbaum es licenciada en Filosofía y trabaja como periodista. Es subeditora en La Agenda, colaboradora en La Nación, Infobae y otros medios. En Twitter es [@tamtenenbaum.](https://twitter.com/tamtenenbaum) 
+

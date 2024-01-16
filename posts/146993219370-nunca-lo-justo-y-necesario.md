@@ -1,0 +1,53 @@
+# Nunca lo justo y necesario
+
+**Toda mi vida, todas mis elecciones, se explican por mi timidez.**
+
+6 de julio de 2016 - Free shot
+
+_por Santiago Llach_
+
+Link original: https://laagenda.tumblr.com/post/146993219370/nunca-lo-justo-y-necesario
+
+![Timidez](https://64.media.tumblr.com/84ceb13615d2ee67b7f84b667383f256/tumblr_inline_p9nd5jEDBi1t6q87u_500.jpg)Soy un tímido proverbial, íntegro, intenso. La primera escena-tragame-tierra de la que tengo memoria tuvo lugar una tarde de domingo de 1976, en una quinta soleada del Gran Buenos Aires que no tengo identificada. Yo tenía cuatro o cinco, deambulaba en medio de una ronda de adultos de pie y me abracé con fuerza al jean de mi madre. Sentí el consuelo y el calor habitual de esa pierna hasta que algo vibró raro: las risas de los adultos, la pierna misma. Miré hacia arriba, hacia la cima de mi montaña-mamá, y la cara que vi no era la de mi mamá. Todos los grandulones se rieron al ver mi desconcierto. Yo quise desaparecer del mundo: fui a abrazarme a mi auténtica pierna favorita, tan cerca de donde había venido a él. La timidez empezaba a ser mi actitud vital.
+
+Un poco más tarde, descubrí que también la padecían otros, pero que la exteriorizaban de otra manera. En primer grado, tenía un compañero que se llamaba Marino. Todas las mañanas, cuando íbamos de la formación hacia las aulas atravesando un callejón con canaletas, Marino desertaba de repente de las filas; gritando y llorando corría ochenta metros hacia las rejas que separaban al patio de la calle y empezaba a treparse, arriesgado. Las maestras lo buscaban y hacían lo que podían. Era una escena que yo vivía con desgarro. Me identificaba, entiendo hoy, con la sensación de perdición de Marino. Nacía en mí, supongo, la empatía.
+
+Mi familia era proclive a lo intelectual y me gustaba mucho el fútbol: aunque el rugby era el deporte popular de mi colegio, con esos dos elementos alcanzó para remontar parte del handicap en contra que era mi timidez incurable. Yo era de la banda de los nerds, pero también tenía buena onda con algunos chicos malos. El Gato, que vivía en una antigua mansión de Rosas y sería un rockero más o menos famoso, me sobornaba con relojes y otros regalos para que lo ayudara en los exámenes.
+
+El tímido camina solito al patíbulo del bullying. La invención de esa palabra en estos años me tranquilizó y me reconcilió conmigo mismo, y también con mis buleadores, dos chicos que seguro también sufrían como yo. Hoy me sonrío cuando descubro una gracia casi poética: los apodos de los dos que me hacían bullying —juro que esto es verdad— eran Angry y Martillo.
+
+La American Psychological Association describe [así](http://www.apa.org/topics/shyness/) “shyness”: “La timidez es la tendencia a sentirse incómodo, preocupado o tenso durante encuentros sociales, especialmente con gente desconocida. Las personas con timidez grave tienen síntomas físicos, como sonrojarse, transpirar, latidos intensos del corazón o malestar estomacal; sentimientos negativos acerca de sí mismos, preocupación por cómo los ven los demás y una tendencia a evitar las interacciones sociales. La mayoría de la gente siente timidez en algunas ocasiones. La timidez de algunas personas es tan intensa que puede provocar que no interactúen con los otros incluso cuando lo quieren o lo necesitan, y esto los lleva a tener problemas en las relaciones y en el trabajo.” 
+
+Encajo perfecto en esa descripción. La timidez le da forma a mi vida: todo lo que soy y lo que hice está tocado por ella, por esa sensación horrible que experimento desde que tengo memoria en determinadas circunstancias sociales. 
+
+Haciéndome amigo del tiempo, me adapté, tuve amigos. Eso descubrí con los años: que mis tiempos de integración son exasperantemente largos, pero al final ocurren y puedo ser uno más. Pero iba a un colegio de varones solos: cuando llegó la hora de interactuar con chicas, las cosas se empezaron a complicar otra vez. Hay mil historias al respecto, pero me quedo con una. Relaciono la timidez con el ensimismamiento, con pensar demasiado: con la obsesión; uno de los efectos colaterales de mi timidez es que mi cabeza almacena estantes llenos de fechas inútiles. Esto que quiero contar pasó la noche del 10 de diciembre de 1986, en un salón de fiestas sobre la calle peatonal de Recoleta que no sé si ya entonces se llamaba Roberto Marcelino Ortiz. Alguien hacía una fiesta de quince. Como en todas las fiestas de ese año, saqué a bailar a Silvina (yo iba al San Juan, ella al Santa María: esto también es verdad). Decenas de tardes en esos meses, habíamos ocupado el único teléfono fijo de las casas de nuestros padres durante horas, hablando y hablando. En algo llamado reuniones, nos mirábamos y nos elegíamos en el juego de la llave. Había algo que era muy obvio, pero yo no me animaba a encarar. Ahora era diciembre y se venían las vacaciones; no nos veríamos por un tiempo. Empezó a sonar “Lady In Red”, lento de los ochenta por antonomasia: era mi momento, mi cita con la historia. Silvina, para más datos, apoyó sus pies sobre los míos. La vida me pedía un gesto, el contacto mágico del primer beso. Pero yo fallé ese penal sin arquero. O, mejor dicho, no lo pateé. El lento terminó y la magia también. Como Marino, yo deserté. Ese verano, Silvina conoció a otro chico y rompió mi tímido corazón.
+
+Hay mil anécdotas como esta en mi vida, en todos los ámbitos: en el momento de la verdad —exámenes, entrevistas laborales, intentos con mujeres—, el corazón me latía, transpiraba, fallaba. Por esa época, un cura me dijo que el tímido, en el fondo, era un soberbio: saberlo me ayudó bastante.
+
+Para todo tardaba: de mis amigos del secundario, me hice amigo en la facultad; de los de la facultad, a los treinta, cuando ellos ya se habían recibido y yo no. Y así.
+
+Mi timidez tenía otra cara: a veces me pasaba de revoluciones para taparla. Así fue asomando mi lado B, medio oscuro, medio canchero. Era otra forma, más sonora, de la inadecuación.
+
+Toda mi vida, todas mis elecciones, se explican por mi timidez. La timidez me hizo pensar siempre demasiado o pensar demasiado poco: nunca lo justo y necesario. Pobre timidez, no le echemos la culpa de todo. Pero llamo timidez a eso: a una forma, una predisposición que hay en mí, una voz oscura a la que tengo que domesticar todos los días. Mi mente nunca está acá; siempre está un poquito más allá, anticipando una derrota que, si tiene lugar en la realidad, es sobre todo porque la anticipé demasiado. Soy alguien que calcula de manera permanente. Hay una falla, un agujero, que me obliga a compararme todo el tiempo con los demás, a medir el éxito en razones que muchas veces son falsas; en esa comparación con los demás, siempre termino siendo menos. Es una vocecita; ya a esta altura no le creo mucho.
+
+La timidez tiene que ver con las palabras: con no encontrar las palabras indicadas en el momento indicado. Arturo Carrera, un poeta me decía que en su casa me decían “el que habla en murmullos”. No deja de ser una paradoja que me haya dedicado a escribir, a buscar las palabras exactas: soy alguien a quien siempre le costó y le cuesta decirlas.
+
+El tiempo pasó y equilibró bastante las cosas.
+
+El otro día me topé con un [blog de autoayuda](http://www.sifreudlevantaralacabeza.com/2015/09/superar-la-timidez-es-posible-10-claves.html) que da diez consejos en horrenda tipografía verde con los cuales no podría estar más de acuerdo. Dos ejemplos: “No seas tan duro contigo mismo” y “No te preocupes por la aceptación social”. Lección de la vida: yo, poeta oscuro, encontré que la sabiduría universal desdeñada como autoayuda me es mucho más útil que muchos textos que pasan por complejos.
+
+Una alumna me dijo: sos un tímido carismático. Trabajo de organizar grupos de gente que viene a mi casa, lee sus cosas y espera de mí un par de comentarios. De local, las cosas salen bien; de visitante me doy maña para sacar un empate. El sufrimiento y esa especie de hoyo en lo profundo no dejan de estar nunca, pero el hábito y la regularidad me arman una especie de malla de protección.
+
+Es la primera vez que puedo decir esto en público, y mientras escribo siento una especie de alivio. Claro que la verdadera redención llegaría si pudiera decirlo oralmente, frente a otras personas. No estaría mal: la TED Talk de un tímido. Seguro que ya hay alguna. Un amigo me dijo que las TED Talks pasaron de moda, que ahora lo que se usa son las [Fuckup Nights](http://fuckupnights.com/). Mi vida está llena de fuckup nights, fuckup afternoons y fuckup mornings. Hay una que cada tanto me viene a la cabeza y me hace hablar solo mientras camino por la calle. Fue en 2008. La filial local del British Council me había elegido como representante argentino de un Premio al Joven Emprendedor Editorial del Año. Viajé al Reino Unido tres semanas y, junto a otros ocho editores de distintos países, nos llevaron de gira por la industria del libro. Al final, había una competencia. Cada uno tenía que hacer una exposición de quince minutos frente a un jurado, que premiaría al ganador con diez mil euros y otros beneficios. En la previa de mi exposición sufrí horrores, pero nada comparado con lo que pasó durante. Frente a mí, estaban el CEO mundial del grupo Penguin, la directora ejecutiva del British Council y la esposa de Tony Blair, además de la chica que nos había acompañado esas semanas. Cuatro ingleses impávidos. Decidí arrancar con un chiste. En inglés. Para colmo, era mi primera vez con un power point. El chiste era sobre que yo había decidido ser editor porque era sensible. Usé mal la palabra sensible. Los tres jurados ni se mosquearon con mi intento de chiste. Desesperé. No sé qué dije en los quince minutos restantes. Farfullé incoherencias. Transpiré mucho. Sentí que estaba en una pesadilla. Mi cuerpo estaba ahí, pero mi mente se había ido, otra vez, como Marino. No fue una sensación: cuando mi intervención terminó, la chica del British Council se me acercó y me preguntó qué me había pasado.
+
+Supongo que acá debería decir que aprendí una lección. En realidad, parezco haberla aprendido. Hoy creo tener otra seguridad; pero quién sabe. Pasan los años, y no sé si uno cada vez sabe más. En mis décadas de confesiones católicas y luego terapias siempre llegué más o menos a las mismas conclusiones. Quizás reconforta reconocer que uno sabe mejor cuáles son los propios límites. Entreno con paciencia todos los días para encontrar las palabras adecuadas; a veces me parezco a Woody Allen, y a veces las encuentro.
+
+
+
+---
+
+ Santiago Llach
+---------------
+
+ Santiago Llach es escritor y editor. Coordina talleres de escritura creativa. En Twitter es [@santiagollach](https://twitter.com/santiagollach) 
+

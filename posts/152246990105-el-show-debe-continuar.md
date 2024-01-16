@@ -1,0 +1,49 @@
+# El show debe continuar
+
+**Christopher Guest estrena**
+
+24 de octubre de 2016 - Cine
+
+_por Marina Yuszczuk_
+
+Link original: https://laagenda.tumblr.com/post/152246990105/el-show-debe-continuar
+
+![La bahía](https://64.media.tumblr.com/ae537e54d4932166a00aeb6c5fad48f0/tumblr_inline_pjzum5N42n1t6q87u_500.jpg)El mundo del espectáculo en una burbuja: esa podría ser una definición de las películas de Christopher Guest, si no fuera por lo mucho que deja afuera. Con un puñado de falsos documentales estrenados entre las décadas del ‘90 y el '00, Guest hizo del documental distorsionado (con la mentira como base) el género perfecto para mirar el espectáculo a contrapelo y convertirlo —porque en ese mismo momento histórico se estaba convirtiendo en eso— en la máxima aspiración de una nueva modalidad del ser humano, que solo existe si es mirado. Realismo de cartón y bambalinas, cine al que no le interesa tanto poner en escena algo que sea real sino las múltiples maneras en las que nos relacionamos con la posibilidad de ser mirados, ocupar el centro de la escena, brillar o entretener. 
+
+
+Cuando se hizo posible para más y más personas tener una cámara adelante, en la era de la televisión protagonizada por todos y para todos que hizo cumbre en YouTube, el resultado fue la conformación bastante rápida de una épica del hombre común, fundada en la subjetividad y en un tono, cierta solemnidad, cierta manera de darse importancia, ir soltando la confesión o el relato poco a poco, generando suspenso. Ese tipo de performances —por llamarlas de algún modo— son la materia prima absoluta del cine de Christopher Guest, de sus películas que otros bautizaron como “mockumentaries” (a pesar de que Guest mismo reniega del “mock” en la primera mitad del término, de la actitud burlona que supone) y en español conocemos como “falsos documentales”.
+
+
+*[Waiting for Guffman](https://www.youtube.com/watch?v=fmkjNb3jiJc)* (1996), *Best in Show* (2000), *[A Mighty Wind](https://www.youtube.com/watch?v=ujUehfDYkfU)* (2003) y *For Your Consideration* (2006) conforman la serie de falsos documentales que Guest escribió con Eugene Levy, además de dirigir, y que en realidad tienen su prehistoria en *[This Is Spinal Tap](http://www.watchfree.to/watch-3f6-This-Is-Spinal-Tap-movie-online-free-putlocker.html#close-modal)* (1984), una película de Rob Reiner del mismo tipo en la que Guest —que también participó en el guión, aunque sea en la medida en que cada actor “escribe” una película donde los diálogos son mayormente improvisados— interpretaba a Nigel Tufnel, el líder de una banda de rock que salía de gira para presentar un nuevo disco. Británicos, melenudos y metaleros, los Spinal Tap habían tenido su momento de gloria en los '60 y '70 y ahora estaban cancelando shows por las pocas entradas vendidas, pero frente a la cámara no les costaba nada mantener la actitud de grandes estrellas haciendo un relato mítico. Curiosamente, a partir de la película la falsa banda se hizo popular y sacó varios discos.
+
+
+![La bahía](https://64.media.tumblr.com/ae537e54d4932166a00aeb6c5fad48f0/tumblr_inline_pjzum5N42n1t6q87u_500.jpg)Guest como Nigel, el metalero adorable.Al año siguiente Guest —que nació y vivió mayormente en Estados Unidos pero heredó del padre británico el título de barón— estuvo, como no podía ser de otra manera, en *Saturday Night Live*, pero pasaron varios años de papeles menores en películas hasta que encontró lo suyo. Y lo suyo fue un grupo de comediantes en estado de gracia, uno de esos ensambles que se dan cada vez que pasa un cometa y con los que pudo hacer una serie de películas que son mayormente improvisadas. Lo que puso Guest como creador es una serie de mundos jugosos para desplegar, con un denominador común: se trataba de recortar lo menor, lo aspiracional, lo que no alcanza, lo que triunfa en circuitos menores y después cae en desgracia o también, directamente, lo que entró en decadencia. Con una cuota de maldad que hinca los dientes en buena medida en la América profunda, la de pueblitos conservadores y fragmentos del *self made man* hechos jirones, todos los personajes de Guest despliegan sus saberes más o menos escasos frente a la cámara con la esperanza de que alguien, un jurado, un sponsor, o un productor que nunca llegará como en el caso más representativo de *Waiting for Guffman,* los rescate del montón y les dé el reconocimiento que creen merecer.
+
+
+Con más amabilidad (quizás porque Guest mismo toca la guitarra y la mandolina y es fanático del country), *A Mighty Wind* reúne varias bandas folk para homenajear al productor Irving Steinbloom que acaba de morir. Bob Balaban —uno de mis actores preferidos de Guest, y de los pocos que pueden hacer de una toma un chiste solo con estar presentes— interpreta al hijo de Steinbloom, y Eugene Levy y Catherine O'Hara son Mitch and Mickey, un duo que fue pareja tiempo atrás y en momentos de una gracia que emociona hasta las lágrimas, porque lo que hacen como actores y como músicos es delicadísimo, muestran toda la belleza que Guest encuentra en lo viejo, lo roto, lo arruinado. *For Your Consideration* fue la última de esta serie de películas, y sigue a varios actores que se ponen eufóricos frente a los rumores de que *Home for Purim*, una película ambientada en los '40 llena de golpes de efecto melodramáticos, podría ganar un Oscar. Ricky Gervais también aparece en *For Your Consideration*, y claro que hay mucho de falso documental en *The Office*, así como en *Parks and Recreation* y otras series más recientes.
+
+
+Pero el hallazgo de Guest no consiste solamente en recortar ciertos universos que se prestan para la broma, sino en haberle dado a sus películas un tono muy preciso, difícil de reproducir, entre la burla y el cariño, entre la maldad y una comprensión enorme por la estupidez humana que uno se ve tentado a llamar compasión. Además de que sus personajes siempre son adorables, incluso cuando generan cierto desprecio, hay en el cine de Guest uno de esos grandes amores por la capacidad de salvación del espectáculo que aparecen en otros musicales como *The Muppets Take Manhattan* (1984). Y como la mitad de sus chistes no consisten tanto en lo que se dice o hace sino en la reacción de otro, al que la cámara siempre enfoca como remate, hay algo profundo con respecto al espectáculo en el sentido más básico de mirar y ser mirados que se juega ahí, donde el show, bueno o malo, no puede ser sin esa mirada que es un acto de fe, que no depende tanto de la calidad del producto como de la mayor o menor distancia —intelectual, afectiva— que el espectador tenga con lo observado.
+
+
+Para aquellos que no conocen el mundo de Guest, que no cayeron todavía bajo el hechizo de la mirada bizca de Eugene Levy o las animaladas de Fred Willard —el jurado en *Best In Show* que representa un poco al espectador escéptico y comenta, mientras entran a escena los perritos, “pensar que en algunos países se los comen”—, es un buen momento de hacerlo porque gracias a ese monstruo voraz que es Netflix, adonde van a morir los grandes comediantes (Adam Sandler sobre todo, que hizo sus peores películas para esa empresa), Guest hizo un nuevo falso documental, diez años después de *For Your Consideration*. *Mascots*, que acaba de estrenarse en Netflix, se entromete en el mundo de esos pobres individuos que dan vida a las mascotas de los equipos deportivos, generalmente embutidos adentro de un traje más o menos grotesco y seguramente incómodo, que los mantiene en el anonimato.
+
+
+![La bahía](https://64.media.tumblr.com/b1bf996dedf749dec1274a755ce4ce3e/tumblr_inline_pjzum54lYL1t6q87u_500.jpg)Mascots, una especie de reunión de ex-alumnos.Pero blindados por la misma convicción inquebrantable sobre la propia importancia que impregna a todos los personajes de Guest —a pesar de que nadie jamás les ha visto la cara—, este conjunto de hombres y mujeres que se creen artistas de la arenga se preparan para competir por el Fluffy Award, organizado por la Asociación Mundial de Mascotas. La fórmula es una síntesis de *Waiting for Guffman* y *Best in Show*, y el mismo conjunto de actores de aquellas películas aparece acá, aunque varios hacen papeles secundarios o cameos y el protagonismo recae en algunos comediantes más jóvenes como Chris O'Dowd (que protagonizó *Family Tree*, una serie de Guest de seis capítulos estrenada en el 2013) y Zach Woods. Todo está ahí, como si el tiempo no hubiera pasado. Solo que pasó, y donde antes había una banda de actores salvajes ahora hay un desfile —en ciertos casos— de viejos conmovidos y autoconscientes, como es el caso de Fred Willard (cuyo mejor chiste, cuando conversa con un enano, es una copia literal de otro que hizo en *Best in Show*). O de Jennifer Coolidge, que siempre basó su comicidad en una cara de loca radiante y ahora, fuera de registro, parece una señora emocionada a la que homenajearan en una fiesta de aniversario.
+
+
+
+No es que Guest haya hecho una película nueva; más bien, hizo una película que funciona a modo de celebración de su cine anterior y a la que ese doblez, entre la nostalgia y el homenaje, carga con un lastre difícil de remontar. Sobre todo para un asunto tan importante y difícil como el humor, que necesita ser tan ligero. Así y todo, la belleza no puede dejar de manifestarse en una película hecha por tantas personas talentosas, y acá aparece especialmente en la prueba final donde cada mascota demuestra sus habilidades frente al jurado y la mejor termina siendo, inesperadamente, un puercoespín muy boludo que hace un truco con una escalera digno de Buster Keaton. Y que por eso mismo conmueve con las armas del cine entendido como espectáculo, y no con esa emoción-golpe-bajo de reunión de ex-alumnos.
+
+  
+
+
+
+
+---
+
+Marina Yuszczuk
+---------------
+
+ Marina Yuszczuk es escritora y doctora en Letras. Escribe en *Página/12*. En Twitter es [@myuszczuk](https://twitter.com/myuszczuk) 
+

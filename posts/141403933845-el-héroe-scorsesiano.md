@@ -1,0 +1,49 @@
+# El héroe scorsesiano
+
+**Una serie sobre el negocio de la música en los 70, un libro de notas de Sara Gallardo y una muestra de fotos sobre el peligro de los agrotóxicos.**
+
+21 de marzo de 2016 - Cosas que estuve mirando
+
+_por Horacio Bernades_
+
+Link original: https://laagenda.tumblr.com/post/141403933845/el-h%C3%A9roe-scorsesiano
+
+![Vinyl](https://64.media.tumblr.com/dd0415abb4c58dc28b47d7a1d5899234/tumblr_inline_pjzvormHiV1t6q87u_500.jpg)### *Vinyl* (domingos a las 23 h. por HBO)
+
+Martin Scorsese acaba de inventar, con ayuda de Terence Winter (coguionista de *Los Soprano* y *Boardwalk Empire*, guionista en solitario de *El lobo de Wall Street*) una figura inaudita: la del empresario-héroe del rock and roll. El tipo empilcha como podría hacerlo Jim Morrison (saco de cuero, jeans, camisa fuera del 
+
+
+![Vinyl](https://64.media.tumblr.com/d9918f87c7c1c62005c96c7196a298a0/tumblr_inline_pjzvoscCMu1t6q87u_250.jpg)En otras palabras, Richie Finestra es un auténtico héroe scorsesiano. Uno de esos que cometen todos los excesos (daría la sensación de que cada vez más; en retrospectiva, Travis Bickle o Jake La Motta son dos ascetas al lado de Jordan Belfort o este Richie Finestra) y también sufren, se atormentan, se persiguen con la culpa. Lo bueno de la culpa de estos nuevos héroes scorsesianos es que no les impide seguir cometiendo salvajadas: la tracción a cocaína de Belfort y Finestra reconoce como único antecedente el Tony Montana de los últimos días. Todo es excesivo en *Vinyl*. En medio de una jornada de trabajo, un músico le agarra las tetas a la recepcionista. La chica de los mandados, que es también la dealer de la compañía, guarda en el cajón de su escritorio kilos de yerba, merca, pastillas de todos los colores, y las reparte con generosidad. Una reunión de ejecutivos se celebra en un puticlub, con culos, tetas y orgías de fondo. Richie entra a la oficina con la nariz toda sucia de polvo blanco y lleno de restos de mampostería: a la noche estuvo en un concierto en el que el techo se vino abajo (el hecho es real, ocurrió en agosto de 1973 en el Greenwich Village).
+
+¿Cómo puede ser que su mujer le tolere que el tipo se vaya de putas, que desaparezca cada dos por tres, que esté a punto de vender la compañía sin avisarle nada, que de repente se ataque y le rompa todo el living (incluyendo el bonito detalle de la guitarra ensartada en el televisor, al mejor estilo Pete Townshend), que un día caiga en la casa a investigar un agente del FBI? ¿Y todo eso siendo nada menos que Olivia Wilde, que según estudios recientes es, comprobadamente, la chica más linda del planeta Tierra? ¿Oyeron hablar de la *mater dolorosa*? Si está en latín pueden imaginarse que alguna relación con el catolicismo debe tener, ¿no? Y sí, es la madre que todo lo aguanta, hasta los peores sufrimientos, con tal de no ver destruida su familia, de preservar la continuidad de la especie, mientras el varón sale a cazar y matar. Que el modelo de mujer que *Vinyl* presenta no coincida en nada con el que pretendemos para nuestra modernidad (aunque tal vez en el avance de la serie la sublime Olivia Wilde se rebele, todavía no lo sabemos) confirma que la experiencia artística tiene menos que ver con la ideología que con la catarsis. Tal como descubrieron los griegos hace más de dos mil años.
+
+### *Macaneos*, de Sara Gallardo (Ediciones Winograd, 2015)
+
+“Esto lo estoy escribiendo mañana”, debería haber escrito Sara Gallardo, si no fuera que poco antes a Cortázar se le ocurrió algo casi igual. Las columnas que la nieta de Ángel Gallardo y tataranieta de Bartolomé Mitre escribió en la revista *Confirmado* en el lustro que va de 1967 a 1972, y que el imperdible libro *Macaneos* recopila, son el colmo de la modernidad. En tiempos en que referir a la primera persona era, para el pudoroso periodismo argentino pre-moderno, algo tan tabú como que 
+
+
+![Macaneos](https://64.media.tumblr.com/bbbd47218c62be71dd94d301c1d914e3/tumblr_inline_pjzvotORbF1t6q87u_250.jpg)*bián**Elle**M. Jean Duché est en vacances**Confirmado**Mme. Sara Gallardo est en vacances*Gallardo discurre, asocia, deriva. Empieza una nota hablando del carácter visionario de Sarmiento, pasa *ipso facto* a hacer una defensa del avestruz y su vituperada costumbre de meter la cabeza en la tierra, de allí a Julio César y el cruce del Rubicón, la Iglesia Católica, la China de Mao y cierra, con una verónica, con el carácter visionario de Sarmiento. Coloquializa, oraliza, neologiza a más no poder. “Cómo se sufrimos los periodistas”, titula una nota. “Yo, servidora pública que celebra hoy su bianiversario confirmadense”, dice en otra. Publica lo que le pasa en el momento, haciendo del entre-bastidores el tema de la columna. “La poda es un placer”, dice. “Los correctores de pruebas de *Confirmado*, por ejemplo, miran mi texto y leen: 'todos nacemos con taras’. Cortésmente, ponen tareas en lugar de taras.” Otro autodocumental estilo bonzo: “Una tarde infausta tuve una discusión en tono amistoso (como es sabido, único tono empleable con gente a quien se odia) con el jefe de redacción.” Se refiere al jefe de redacción de *Confirmado* en ese momento.
+
+Jode, jode mucho. Se toma todo a la chacota. ¿Pero cómo, una dama? Comentando la costumbre que tenía la policía de Onganía de pasarle la doble-0 a los “melenudos” de la época, se muestra sorprendida ante el “arrebatado furor anticapilar que aqueja a la profesión”. Un día en que le reducen el espacio de la columna, para darle más lugar a un aviso del Banco Río, la titula “¡Epa, che!”, empieza hablando de un gaucho que se queja de que lo aprietan en el colectivo y luego dice, por si quedaba alguna duda: “acá me están apretando”. “Dejarse apretar es una prueba de urbanidad, de urbanismo, de urbe, en fin”, concluye. Autorrefiere a morir. Cada vez que la columna cumple algún aniversario, lo hace público. Cuando cumple dos años se queja de que nadie le haya hecho llegar ni una miserable tarjetita. Y advierte que si por ella fuera, en su retrato, que acompaña la columna todas las semanas, saldría sacando la lengua, poniéndose bizca, haciendo pito catalán y gestos obscenos, “que no otra cosa se merecen ustedes”. Rápida, canchera, compinche, jodona. Tanto o más rápida que el lector. Pero a la hora de ponerse inteligente y erudita, más que ninguno. Ése es el personaje que Gallardo modeló en *Confirmado*: la muñeca Gallardo. 
+
+### *El costo humano de los agrotóxicos* (muestra fotográfica de Pablo Piovano, hasta el 10 de abril en el Palais de Glace)
+
+Se lo conoce como “niño cristal”. Sufre de ictiosis, una enfermedad que resquebraja la piel. Se llama Lucas Techeira, tiene tres años y su piel, además de ofrecer un aspecto tan quebradizo como la de un nonagenario, presenta manchas como las de algunos peces. De allí, seguramente, el nombre de la enfermedad. Lucas es vecino de Colonia Aurora, localidad de la provincia de Misiones. Su madre, Rosana Gaspar, manipuló glifosato en su huerta durante el embarazo, sin protección. El glifosato es el 
+
+
+![El costo humano de los agrotóxicos](https://64.media.tumblr.com/ce1a584362e079b2b8334bd3e9c5c10b/tumblr_inline_pjzvotkgMb1t6q87u_250.jpg)*El costo humano de los agrotóxicos*Lo de Piovano es muy sencillo. Enterado de los estragos que la fumigación masiva con agroquímicos estaba generando en distintas regiones de la Argentina, puso el dedo sobre el mapa, señaló el litoral y el norte del país, subió a su auto y partió hacia allí, por su cuenta, haciendo varios viajes en los que convivió con gente de la zona, se informó y sacó fotos a destajo. Fotos en blanco y negro, que son las que expone ahora en el Palais de Glace. Ochenta son las seleccionadas en la muestra. “Lo del blanco y negro lo pensé mucho”, dice. “Primero iba a hacerlas en color, porque se identifica con lo actual y en este caso la actualidad es un elemento importante. Pero el color se presta a distracciones, a ornamentos, y yo quería que el espectador se concentrara en cada retrato. Por eso al final elegí el blanco y negro.” El blanco y negro de Piovano, los matices de gris, el trabajo sobre la exposición y las luces en cuadro, las zonas de sombra, son de alta calidad. Eso da lugar a que Guillermo Saccomano se pregunte, en el mural de presentación de la muestra, sobre la relación entre ética y estética, cuando se trata de fotografiar una realidad tan quemante como ésta. Uno podría hacerse la pregunta contraria: ¿fotografiar a un niño malformado como consecuencia de la utilización desaprensiva de un producto químico justifica descuidar la técnica de la foto? Y responderse que no.
+
+El tema que trata Piovano es gravísimo. Entre otras cosas, por la total ausencia de controles estatales sobre las grandes productoras de agrotóxicos y compañías fumigadoras. Las cifras son de terror: en una década los cánceres infantiles se triplicaron en las zonas regadas, mientras que las malformaciones en recién nacidos aumentaron un 400 por ciento. “En un barrio de San Vicente, Misiones, centro de la producción de tabaco en Argentina, hay un chico postrado por cuadra”, señala Piovano. “En la ciudad de Sáenz Peña, Chaco, la cifra de chicos discapacitados se multiplicó por siete en diez años”, amplía. Girando en círculo en el amplio salón del primer piso del Palais de Glace, creí marearme en medio de un paisaje goyesco de niños aullando, adultos con cuerpos de esqueleto, niñas que no pueden sostenerse por sus propios medios intentando bailar, bebés hidrocefálicos y muchachas cuya malformación tendinosa les da una postura como de patos. Todo eso en el Palais de Glace, pero también desde unos 500 km de la capital hacia el norte.
+
+  
+
+
+
+
+---
+
+ Horacio Bernades
+-----------------
+
+ Horacio Bernades trabaja como crítico de cine y periodista cultural en los diarios *Página/12* y *Tiempo Argentino*. En Twitter es [@horaciobernades](https://twitter.com/horaciobernades). 
+

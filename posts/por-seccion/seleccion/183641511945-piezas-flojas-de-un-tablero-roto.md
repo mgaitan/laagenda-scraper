@@ -1,0 +1,1 @@
+../../183641511945-piezas-flojas-de-un-tablero-roto.md

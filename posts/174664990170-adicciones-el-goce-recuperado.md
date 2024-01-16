@@ -1,0 +1,59 @@
+# El goce recuperado
+
+**Según la autora Ann Marlowe, la adicción podría resumirse como el intento de repetir infinitas veces ese primer**
+
+7 de junio de 2018 - Adicciones
+
+_por Diego Fernández Pais_
+
+Link original: https://laagenda.tumblr.com/post/174664990170/adicciones-el-goce-recuperado
+
+![](https://64.media.tumblr.com/8182dc716e386f4c63ca0cd062f3ff4d/tumblr_inline_p9yyju2InG1t6q87u_500.jpg)
+Tras el auge de la literatura del yo, ahora ha cobrado vigencia una moda –ya explorada por Roland Barthes en su famoso artículo de 1967 titulado “La muerte del autor"– que peca del mismo exceso e impostura y que consiste en esconder debajo de la alfombra cualquier vestigio de autorreferencialidad. Como todas las modas que la precedieron, esta vieja/nueva moda intenta intimidar presentándose como un devenir histórico inexorable. Como todas las modas que la precedieron, esta vieja/nueva moda se presenta como asunción y superación del *sentimiento ético simple* en nombre de una visión a largo plazo del *devenir histórico de la humanidad*. Ahora bien, a diferencia de aquéllas, esta vieja/nueva moda promueve la *esencialización* del texto y pretende soslayar –por presunta intrascendencia– las circunstancias de su lectura. 
+
+Explico esto por lo siguiente: cuando alguien me pregunta de qué modo se descubre a un autor, yo suelo contar la reciente anécdota de mi descubrimiento de Ann Marlowe y de su libro *Cómo detener el tiempo (La heroína de la A a la Z)*, es decir: del libro que vengo a hablarles hoy. 
+
+En diciembre del año pasado fui al Yenny del Patio Olmos a comprar los regalos de navidad y me informaron que una cantidad importante de mis puntos –acumulados tras largos años de apostar a la cultura– se vencían a la brevedad y que por lo tanto, si no quería perderlos, me convenía llevarme de yapa un libro más. Tras mucho hurgar en las diversas secciones de la librería (filosofía, poesía, política, novela), por recomendación de algunos escritores que admiro decidí agregar al carrito *Salvapantallas* del costarricense Luis Chaves, unas misceláneas que me hicieron más digerible la estadía con mi familia en unas cabañas de las sierras de Córdoba. 
+
+Yo estaba a punto de reingresar –por segunda vez en menos de un año– a un tratamiento ambulatorio para dejar la cocaína y toparme de sorpresa con la historia de un tipo que, con el objeto de huir de una adicción feroz, a la que él mismo califica de "apocalíptica”, se escapa de su Costa Rica natal para instalarse en Buenos Aires, me hizo abandonar por un momento la comodidad de la victimización y sentirme menos solo en el mundo. 
+
+Cuestión que me puse a investigar la vida de (según la solapa del libro editado por Seix Barral) “uno de los escritores contemporáneos más importantes de Costa Rica” y, en YouTube, me topé con un [video suyo](https://www.youtube.com/watch?v=4IZEG91l798) en el que le recomienda a los espectadores, extrayendo los ejemplares desde su propia biblioteca, diez de sus libros de cabecera. Y uno de ellos –para ser más preciso, el séptimo–, como ya habrán podido adivinar, es *Cómo detener el tiempo (La heroína de la A a la Z)*, de Ann Marlowe. Magistralmente, Luis Chaves dice al respecto: 
+
+*“Me llama la atención que aborda el tema de las drogas desde un lugar muy original (es como un diario de su adicción y recuperación y otra vez adicción y esa falsa idea de que “ya lo manejo”, ¿no?, que tenemos o que tienen las personas que tienen alguna adicción), desde un lugar muy original, muy lejos de la cosa ésta adolescente de “qué despichado que soy” o del arrepentimiento, también, que es patético, ¿no?”*
+
+Sobre todo la frase del final, eso de que el arrepentimiento es patético, me empujó a buscar el libro de Marlowe, pero en las librerías de Córdoba, al menos, estaba agotado desde el año 2013. Por fortuna, hace poco mi papá viajo a Madrid. Se lo pedí, me lo consiguió y me lo trajo, y yo en un par de días me lo devoré. Ahora, en consecuencia, me siento en condiciones de formular mi propia opinión del mismo. 
+
+![Katie Ledecky](https://64.media.tumblr.com/4d7e27ed1d962310eb284873f8f86518/tumblr_inline_p9ypbtPysB1t6q87u_250.jpg) Publicado originalmente por la Basic Books de Nueva York en 1999, *Cómo detener el tiempo* recién fue traducido al español en 2002 por la editorial Anagrama (en realidad, quien firma la traducción es un tal Roger Wolfe). Si bien es cierto que aborda con originalidad el tema de las drogas –un tema muy visitado por la literatura norteamericana del siglo XX–, hay que decir que lo más original del libro es su formato tipo diccionario (sólo comparable, por estas latitudes, con el glosario elaborado por Catón en su *nouvelle* “Noches del Yacaré”), formato que le permite narrar fragmentariamente sus años de adicción y que al final funciona como una suerte de *puzzle*.
+
+De hecho, por cada letra del diccionario –"de la A a la Z"– la autora introduce una o varias palabras que operan como disparadores de una miríada de relatos que, a la postre, convergen en una sola cuestión que bien podrían ser dos, las dos caras de una misma moneda: la droga –en este caso la heroína– y la adicción. Sobre el tópico, Marlowe dice que no se trata más que del deseo de recuperar la sensación que nos produjo el “primer colocón”; algo así como una búsqueda del tiempo perdido: 
+
+*“La adicción puede mostrarnos lo que la nostalgia tiene de profundamente sospechoso. Ese impulso por regresar al pasado no es inocente. Tiene que ver con detener el paso hacia el futuro; es un síntoma del miedo a la muerte, y del amor por la experiencia previsible. Y el amor por la experiencia previsible, no la propia droga, es lo que más daño hace a los consumidores de heroína. La probabilidad de no poder seguir adelante con tu vida es mucho mayor que la de acabar en la sala de urgencias de un hospital, y mucho más difícil de advertir desde dentro”.*
+
+Volviendo a esto de la vieja/nueva moda de la muerte del autor, debo decir que la historia personal de Ann Marlowe, aparte de ser el objeto de este diccionario, resulta fundamental para desentrañar de qué está hecho el estilo de la escritora. Esta judía neoyorkina de la clase profesional, luego de egresar de la preparatoria, ingresó a Cambridge para estudiar Filosofía y Letras y, mientras escribía reseñas para revistas emergentes sobre bandas de rock alternativo y preparaba su tesis de grado bajo la supervisión del prestigioso Richard Rorty, decidió abandonar la universidad y probar suerte en Wall Street, haciendo las veces de asesora financiera de diversos bancos y fondos de inversión. 
+
+Por ello, en *Cómo detener el tiempo* no faltan las referencias literarias y filosóficas, pero tampoco las económico-financiero-empresariales. En relación a las primeras, la autora nos confiesa que, más que William Burroughs o Normal Mailer, su preferido es Thomas de Quincey; en cuanto a las filosóficas, por su parte, se evidencia una leve predilección por Nietzsche, Freud y Heidegger. Sin embargo, lo novedoso es que a su análisis de las drogas le aplique leyes económicas como la de rendimientos decrecientes, según la cual cuanto más realices una operación, menos beneficios obtienes. En otras palabras, cada nueva raya de droga inhalada proporciona un menor placer que la anterior (cfr. *less* o menos). 
+
+En igual sentido trabajan las entradas a las palabras *brand names* o marcas, *bussines* o negocios, *money* o dinero, entre otras. De todos modos, por implicar una ingeniosa vuelta de tuerca al sentido común, la única que sí vale la pena ser citada íntegramente es la entrada a la palabra *capitalist* o capitalista, que consigna lo siguiente: 
+
+*”Según los estereotipos de la sabiduría establecida, cuando la gente se hace adicta a las drogas se vuelve avariciosa y se obsesiona por el dinero. Pero en realidad ocurre lo contrario: sólo aquellos que ya de por sí tienden a la avaricia y a la fascinación por el dinero se toman la droga en serio. El consumo de heroína es una enfermedad de los que, por naturaleza, encajan mejor en la sociedad capitalista –buscavidas obsesocompulsivos acelerados y mandones–, pero que quizá se avergüenzan de ello. Decidimos que preferimos ser guays, pero adoptamos los elementos de esa estética que se pueden comprar, porque el acto de comprar es algo que somos capaces de entender (véase cool). Aunque la droga es, en cierto modo, la adquisición más «enrollada» que hay, en último término no deja de ser una compra, y el usuario no es más que un consumidor. Centrar tu vida en pillar droga no es tan diferente de centrarla en las compras o los negocios. Misma actividad, estética diferente”.* 
+
+Lo que, sumado a su desprecio por el hippismo (“Para mí, el atractivo estético de la heroína consistía en parte en su relativa sofisticación, su dureza, su oposición a la sensibilidad hippie”), me hizo recordar que el consumo de cocaína despertó al hasta entonces adormilado capitalista voraz que se agazapaba en mi interior. 
+
+Por lo certeras, también sería conveniente resaltar sus reflexiones en torno al acto de la *repetición*. La adicción, evidentemente, podría resumirse como el intento de repetir infinitas veces ese “primer colocón”. Constata Marlowe, a través de la lectura de autores como Coleridge y De Quincey, que la adicción como fenómeno recién se empezó a observar en el siglo XX, toda vez que al hombre decimonónico aún no le interesaba mucho la repetición. Añade que fue Nietzsche, en el *Así habló Zaratustra*, el primero en explorar el tema con el argumento del eterno retorno, y que después fue Freud quien lo abordó escuetamente al publicar en 1920 *Más allá del principio* del placer; lamento que la autora haya pasado por alto al más actual *Repetición y diferencia* de Gilles Deleuze. 
+
+En las últimas páginas, cuando, paradójicamente, se ocupa del problema de la juventud, Ann Marlowe arriba a una conclusión –digna de Martin Heidegger– de acuerdo a la cual, palabras más o menos, uno se droga para aliviar el terror que le provoca el paso del tiempo. Para alguien que vive en un barrio marginal, dice, puede ser la perspectiva de una muerte prematura y violenta; para una modelo, en cambio, pueden ser las primeras señales de envejecimiento. “Cuando yo empecé a consumir heroína”, agrega, “quería detener el flujo del tiempo, no tanto por el deseo de permanecer joven como por miedo a las heridas que el tiempo me infligiría: más relaciones dolorosas, más soledad, una enfermedad incurable como la que devoró el sistema nervioso de mi padre. Actuaba respondiendo a impulsos que había llevado dentro toda mi vida, tan inconscientes que se habían resistido incluso al psicoanálisis. Y durante un tiempo la heroína funcionó. Me proporcionó unos cuantos años sin dolor, durante los cuales pude empezar a escribir”. Sin embargo, al final cayó en la cuenta de que la droga, si bien es capaz de detener el tiempo, a la par detiene a la belleza, y de que, antes que una vida anestesiada, vale mil veces más la pena vivir experiencias indiscutiblemente reales, incontrolables y a veces trascendentales, ya que siempre ofrecen esa posibilidad –inviable con la droga– de que algo asombroso cambie nuestras vidas para siempre. 
+
+Basta con realizar una somera búsqueda en Google para descubrir que en el mundo hispanoparlante se ha escrito bastante poco sobre *Cómo detener el tiempo*. Dicho esto, no puedo dejar de mencionar que la segunda novela de Gonzalo Unamuno, sugestivamente titulada *Que todo se detenga* y oportunamente publicada en 2015 por la editorial Galerna, no sólo por el título sino también por la temática se inscribe dentro de la misma corriente literaria que la del diccionario narcótico firmado por Ann Marlowe; razón suficiente para incluirla en este humilde homenaje. 
+
+  
+
+
+
+
+---
+
+Diego Fernández Pais
+--------------------
+
+ Diego Fernández Pais es escritor y ensayista. En Twitter es [@diego\_ferpa](https://twitter.com/diego_ferpa?lang=es) 
+

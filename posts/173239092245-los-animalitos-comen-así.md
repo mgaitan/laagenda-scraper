@@ -1,0 +1,61 @@
+# Los animalitos comen así
+
+**Quién es Manque La Banca, el artista patagónico que abrazó el romanticismo para intervenir el presente y desarticular los esquemas de género.**
+
+24 de abril de 2018 - Bafici 2018
+
+_por Luciano Lahiteau_
+
+Link original: https://laagenda.tumblr.com/post/173239092245/los-animalitos-comen-as%C3%AD
+
+![Manque La Banca](https://64.media.tumblr.com/1e1a13bac6466753610bd3beba911b4c/tumblr_inline_p7p6hzEeNw1t6q87u_500.jpg)El primer hombre avanza con sigilo entre totoras, ahogando cada sonido que pueda espantar al ave. Casi a gachas, da calculados pasos sobre el terreno inundado, entre el rumor de insectos, mientras allá, en el horizonte, el sol bruñe la superficie espesa del Río de La Plata. El ave que busca rara vez remonta vuelo, pero es identificable por su trino áspero y descendente, que el hombre ha tomado el recaudo de grabar en un dispositivo de sonido que lleva en el cinto. El aparato dispara el canto y el ave responde. El *Laterallus melanophaius*, o burrito común, mide apenas 17 centímetros de plumaje pardo. Avistarlo y registrarlo requiere evitar la torpeza de quebrar el equilibrio bucólico en el que vive.
+
+El segundo hombre tiene más dificultades para avanzar en el terreno, y guarda una distancia prudencial para no interferir los cantos y contracantos. Como el primero, lleva un gorro de caza y gafas ahumadas. Aunque se crió en la naturaleza monumental de Bariloche, no está aquí por un interés ornitológico o botánico. Es apenas un invitado que se ha empezado a invitar solo. Desde aquella vez -no recuerda cuándo- siente una fuerte atracción estética por ese paisaje bonaerense, esa selva petisa que decanta en el estuario del Río de La Plata y el Mar Argentino. Trae su cámara, una Volex con la que ha ido acumulando imágenes para un documental sobre los aficionados al avistaje de aves en el Parque Costero Punta Indio, y que serán un inmejorable ensayo lumínico para una historia más grande.
+
+Esa historia tiene un título, *Jermans*, y un esbozo que Manque La Banca, el segundo hombre, el de la cámara, está preproduciendo. Tendrá como protagonistas a una pandilla de neo-románticos con la misión de recuperar una espada robada por un burgués venido a menos de Berisso. Y aunque debamos esperar el desarrollo de los acontecimientos para saber exactamente cómo, la historia está relacionada con un disco, un videoclip y un cortometraje que tuvo su estreno en la Berlinale Shorts 2018 y que se pudo ver en el Bafici que acaba de terminar. *T.R.A.P.* (así se llama) es el concentrado de influencias, cavilaciones y búsquedas estéticas que Parquee, la “productora/familia deforme” que Manque creó junto a su hermano menor Antu, está tratando de digerir actualmente. Y que confirma la eficiencia rutilante de su forma de producir cine.
+
+Desde *GRRR* (2012) a la fecha, Parquee produjo cinco cortometrajes y un largometraje, además de un puñado de videoclips, todos dirigidos por Manque La Banca. Su autodefinida “energía medio abrumadora” lo puso enseguida a la cabeza de los grupos de estudio de la Facultad de Bellas Artes de la Universidad de La Plata, y a presentar trabajos en festivales. El cine llegó a convertirse en una obsesión y en algo casi patológico. Hasta que llegó Antu.
+
+Antu y Manque nacieron en San Carlos de Bariloche, Río Negro, con un año y medio de diferencia, y viven en La Plata desde hace una década. Su padre músico y su madre artista plástica y fotógrafa apuntalaron sus inclinaciones artísticas, que se manifestaron antes de llegar a la pubertad. Un abuelo fanático del registro fue pionero al hacerse de una cámara VHS para que el crecimiento de sus nietos fuera filmado, pero en algún momento el artefacto cambió de manos y los niños empezaron a llevar el registro. “Nos criamos en el medio del bosque, en un contexto muy despojado de influencias urbanas, pero siempre había tecnología: la cámara, una Commodore 64, computadoras”, rememora Manque, como intentando encontrar el rastro de su estilo. 
+
+Ya en la secundaria, a Antu se le ocurrió usar una diminuta cámara digital para grabar una secuencia de alguien andando en skate que desató el resto de los acontecimientos. “Ahí les mostró a mis viejos que con una porquería chiquitita y el Movie Maker se podía hacer algo increíble”, se acuerda Manque, y adelanta el siguiente obsequio: una Handycam Mini DV con la que produjo una serie de cortos que fue presentando en concursos escolares sistemáticamente.
+
+En La Plata, crearon Parquee. “Surge de muchas horas de psicodelia y experimentación, de estar encerrados manijeando; estábamos obsesionados con producir cosas distintas, y seguimos estándolo”, establece Manque. La llegada de Antu destrabó parte de su sensibilidad, que estaba anestesiada por la sobreinformación cinematográfica. Veía demasiadas películas y quería más, pero no hay realizaciones propias de esa época que le guste recordar. Que su hermano menor llegara para estudiar música lubricó su habilidad para hacer canciones, lo que reactivó Nunca fui a un parque de diversiones, el trio pop que comparten con Joshua Zenz.
+
+“Ahí empezamos a hacer videoclips que eran como spots donde mezclábamos montajes locos con videos en vivo, y a través de eso armábamos ritmos”, ilustra Manque. Influidos por la antropofagia cultural brasileña y la escucha empecinada de Animal Collective surgió *Mover Canival* (2014), el primer álbum del grupo. Y casi paralelamente, Manque llevó a cabo *GRRR*, un trabajo seminal. 
+
+ El corto GRRR, con el que empezó todo. 
+
+El cortometraje surgió de un ejercicio curricular con fílmico, el único que Manque pudo hacer en la carrera. “Yo venía fantaseando con el formato mucho tiempo antes, desde que entré, aunque no supiera bien qué era”, asume ahora. Su ansiedad se topó con la pedagogía de la cátedra, que excluía todo ánimo experimentador: el rodaje debía llevarse a cabo en el set, la narración debía ser lo suficientemente convencional para que la entendiesen nuestras abuelas. Nuestro joven realizador se rebeló: “Dijimos ‘vamos a ser los más correctos, los más nerds en guion y *storyboard*, pero para que el corto sea lo más psicodélico y contestatario posible, que critique esta forma de entender el cine y a nosotros mismos’. Estábamos re cebados”.
+
+*GRRR* traspasó el ámbito académico y se alzó con el primer premio del 8vo FestiFreak. Además, dio inicio al idilio de Manque con el fílmico, tanto el 16mm como el Súper 8. “Si bien tiene cosas en video, empieza a ver una línea estilística fuerte en esos formatos con *GRRR*”, observa Marcelo Obregón, realizador, crítico y musicalizador que está grabando su primer disco con Antu como productor. “Al margen de lo estético hay también una determinación política que tiene que ver con que el fílmico te obliga a trabajar uno a uno o dos a uno. Y eso implica un nivel de ensayo y ajuste previo a la toma que el video o el digital no tienen”, dice Obregón, que conoció a Manque varios años atrás, en un festival de la Unión de Cineastas de Paso Reducido (UNCIPAR) en Villa Gesell.
+
+A partir de *GRRR*, Manque cayó en la cuenta de que el fílmico le generaba un vértigo especial, electrizaba el ambiente del set y lo abstraía completamente, aislandolo en el mundo que había elegido. Él lo define así: “Por un lado estás muy acotado para filmar porque la película es cara, el revelado es caro, todo es caro; entonces la planificación tiene que ser muy minuciosa y exige un nivel de concentración en el rodaje que es alucinante. Lo cargás de mística, de energía creativa, de poder”. Además, claro, están las virtudes técnicas que están en íntima relación con *T.R.A.P.*: “Hay situaciones lumínicas, como amaneceres o atardeceres, donde el fílmico responde de una manera única e increíble”. 
+
+Siguió *Los muertos dos* (2016), el primer largometraje de Parquee, en la línea de antropofagia y canibalismo cultural que había inaugurado *Mover Canival*, pero en digital. Entretanto, Manque continuó explorando el fílmico en *No hay control*, *Los 7 pecados capitales: 1-El viaje*, y *Los 7 pecados capitales: 3-El futuro*, tres cortos presentados entre 2014 y 2017. Hasta que se produjo el resquebrajamiento.
+
+“Estábamos cansados de algunas ideas, y atravesando algunas crisis un poco más grandes -confía ahora-. Una persona muy cercana, que iba a nuestros recitales, se suicidó… algunos amores se habían terminado… Y empezamos a trabajar en la idea de que uno es algo que puede mutar, que podemos ser algo distinto a lo que nos dijeron que íbamos a ser siempre, que podemos transformarnos, matarnos y volver a nacer resignificados”. 
+Así nace *Q.E.P.D.* (2017), el segundo álbum de Nunca fui a un parque de diversiones, un octaedro de canciones de amor y de ruptura, flirteo y desazón. Se grabó en el invierno de 2016, mientras se publicaba el disco solista de Antu, *Une*. Los trabajos comparten la búsqueda de la canción romántica por fuera del binarismo varón-mujer y la quebradura de los parámetros heteronormativos. A la par, Manque comenzó a activar una historia más grande, que también se consignaba en una sigla y que resultaría un primer episodio de una narración aún más extensa, que exploraría “la mezcla entre el género de aventura y el cine experimental”: *T.R.A.P.* sería una secuencia que combinaba la devoción romántica por la magnificencia de la naturaleza con la necesidad de cuestionar las matrices sexuales y dar testimonio de la represión política. “En Argentina necesitamos un cambio en torno a las ideas de sexo y sexualidad”, se lo ve declarar al director durante una entrevista para los Teddy Awards, el galardón de temática LGBT que se otorga un día antes que el Oso de Oro desde 1987 en el Festival de Berlín.
+
+El corto se rodó en 16mm y en Punta Indio, con dirección de Manque y actuación de Antu, que también compuso la música original. Las primeras tomas del film aparecieron como parte de “La glorieta”, el corte de difusión de *Q.E.P.D.* “Lo sacamos como especie de teaser -revela Manque-. A mí me sirvió para probar las imágenes, hacer retoques de color, ensayar montajes, el videocilip da esas libertades”.
+
+ “La glorieta”, corte de difusión del segundo disco de Nunca fui a un parque de diversiones. 
+
+La curadora de los Berlinale Shorts Maike Mia Höhne introdujo a *T.R.A.P.* en la tradición de lucha por los derechos humanos en la Argentina y reparó en la deconstrucción de estereotipos que propone la película. “Está relacionado a la diversidad sexual como una forma de resistencia al discurso dominante”, le señaló Manque, y aseguró que su intención fue “contar una historia que empezara en un universo romántico y terminara convirtiéndose en un cuento íntimo y contemporáneo”. Alejo Franzetti, realizador argentino, reparó en la pérdida de la inocencia a partir de la irrupción, al final de la historia encantada, del caso Santiago Maldonado. “Es el choque entre el universo ideal y la realidad brutal -escribió-. Es decir: la juventud”. 
+
+De su travesía europea Manque se trajo la fé en “la fuerza colectiva de la imagen”, el acuerdo para que sus películas estén en el sitio Kinoscope y las ganas de experimentar la itinerancia. Una residencia en Crater Lab de Barcelona le permitió positivar los negativos de *T.R.A.P.*, con los que pretende realizar obras de cine expandido y videoinstalaciones. 
+
+“Estoy experimentando con obras que sean un sistema de ideas que abarquen muchas disciplinas”, dice Manque con la mirada elevada hacia el cielo grisáceo que se despliega sobre los fresnos de la plaza Islas Malvinas, cerca de su casa en La Plata. “Obras que son multiformato, que no se encierran y que se relacionan con otras; es como una red de ideas que se van moviendo y expandiendo”, desliza este artista de 28 años que prefiere definirse como un híbrido, ni músico ni realizador, que guarda la intención “de dejar un registro de época vinculado a una idea de realidad colectiva” sin perder el rastro de los adoradores del burrito común.
+
+  
+
+
+
+
+---
+
+ Luciano Lahiteau
+-----------------
+
+ Luciano Lahiteau es periodista y vive en La Plata. Actualmente colabora en *Billboard*, *Playboy*, *Revista Ñ* y *Brando*, entre otros medios. Es columnista de *Letercermonde*, en Radionauta FM 106.3. En Twitter es [@LucianoLahiteau](https://twitter.com/lucianolahiteau).
+

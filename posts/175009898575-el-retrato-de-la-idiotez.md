@@ -1,0 +1,52 @@
+# El retrato de la idiotez
+
+**Hace 25 años aparecían**
+
+18 de junio de 2018 - Cultura pop
+
+_por Maia Debowicz_
+
+Link original: https://laagenda.tumblr.com/post/175009898575/el-retrato-de-la-idiotez
+
+![](https://64.media.tumblr.com/e166373fee162f694bca82586a348c9f/tumblr_inline_paj6qfWgQd1t6q87u_500.png)Con la misma intensidad con la que Abbott & Costello y Laurel & Hardy se lanzaban tortas de crema en la cara, Beavis & Butt-Head tomaron el legado de la comedia física que supo representar en un empujón o una fuerte cachetada una posición contra el mundo. La serie creada por Mike Judge empezó a emitirse por MTV hace un cuarto de siglo, y estaba protagonizada por una dupla explosiva como la de Tom y Jerry, con la incontinencia verbal de Jerry Lewis y el descontrol hormonal de los adolescentes diseñados por John Hughes. Pero mientras aquellos púberes terminaban caminando de la mano de una chica, conquistando sus sueños mojados, Beavis & Butt-Head deben conformarse con el calor de los rayos catódicos y las escenas de sexo censuradas de un reality aburrido.
+
+En el texto “Algunas notas sobre el arte de caer” -texto incluído en el volumen *Confabulaciones*- (2016), el escritor británico John Berger analizaba las razones de la vigencia de Charles Chaplin y los códigos en los que se sostenía el funcionamiento de su universo fílmico. Varios de ellos, como “El sistema digestivo suele estar más allá de nuestro control”, podrían aplicarse tranquilamente a la diégesis de este par de nihilistas, pero Beavis & Butt-Head merecen tener sus propias reglas y axiomas:
+
+* Las fosas nasales son cuevas profundas donde pueden descubrirse tesoros olvidados.
+* La televisión es la única ventana al mundo.
+* La escuela es una cárcel de mínima seguridad.
+* El papel higiénico es el mejor amigo del hombre.
+* El exceso de azúcar conduce a la iluminación.
+* El culo es una ametralladora de sentimientos sonoros.
+* Un eructo vale más que mil palabras.
+
+La primera aparición en público de Beavis & Butt-Head fue el año anterior a su debut como serie, en 1992, en el cortometraje *Frog Baseball*. Ahí la dupla descontrolada consideraba un deporte revolear sapos con un bate de béisbol. A partir de esa truculenta performance comenzó la sociedad de Judge con MTV, que se convirtió en el hogar de los adolescentes animados durante cinco años. Calcando las condiciones marginales en las que aquellos amigos sobreviven, el presupuesto de la serie era tan limitado que los acetatos dibujados se reutilizaban una y otra vez, y era el mismo Judge quien hacía todas las voces, desdoblando las risas e improvisando sin tapujos mientras veía los video clips de las bandas de moda. Luego de siete temporadas y la película *Beavis & Butt-Head recorren América* (1996), Mike Judge sintió que sus personajes ya no tenían nada nuevo para decir, y además estaba entregado a un nuevo amor: *El rey de la colina* (1997-2010). Y dijo adiós el 28 de noviembre de 1997.
+
+![Beavis and Butt-Head](https://64.media.tumblr.com/e166373fee162f694bca82586a348c9f/tumblr_inline_paj1gd9HX31t6q87u_500.png) El presupuesto era tan limitado que los acetatos dibujados se reutilizaban una y otra vez. Pero la pasión por los aparatos fijos metálicos de Butt-Head y las cejas zigzagueantes de Beavis era mucho más fuerte, y en 2011 volvió a dibujarlos sentados en el sillón sucio y rotoso para que conozcan la monotonía de los realities y el furor inentendible por la saga *Crepúsculo*. En uno de los mejores capítulos de aquel mítico retorno, Beavis & Butt-Head, dibujados ahora con economía digital y animados en Flash, anhelaban convertirse en monstruos de la literatura clásica, vampiros u hombres lobo, para ser adorados por las mujeres. Basándose en los suspiros que despertaba Robert Pattinson con colmillos afilados al recitar “Lucharé por tí hasta que tu corazón deje de latir”.
+
+Más allá del retrato de la idiotez, hay en esa dupla de socios inseparables de la comida chatarra una ingenuidad infantil fusionada con una candidez extraterrestre. La adolescencia que ellos transitan es realmente ese estado intermedio entre la niñez y la adultez, rebotando entre un extremo y el otro. Planeando abandonar la viriginidad al mismo tiempo que ven a escondidas *Plaza Sésamo on Ice*. En los 222 episodios que Mike Judge pintó los árboles recién podados del jardín del vecino Tom Anderson y delineó el pelo largo del profesor hippie Mr. Van Driesser, Beavis y Butt-Head fueron parte de una secta; jugaron a trabajar en un call center; quedaron encerrados en un psiquiátrico por solo visualizar escenas de sexo desenfrenadas en el test de Rorschach; cocinaron ratas y moscas fritas extra crujientes en Burger World; bañaron a un perro en un lavarropas; fueron protagonistas de un documental indie sobre la generación en crisis; comieron hamburguesas hasta sacar panza; y, lo más importante, se hicieron un tatuaje de un culo que tiene tatuajes en forma de culo en el culo.
+
+B*eavis and Butt-Head* es el equivalente en la animación estadounidense a *Pizza, birra, faso* para el cine argentino: hasta ese momento el costumbrismo familiar en la animación eran *Los picapiedras*, *Espera a que llegue papá a casa* o *Los Simpson*, series muy buenas pero que no dejan de ser programas donde los protagonistas trabajan en una oficina, pagan los impuestos y la vida podría transcurrir en el año 2000 o en los años 50 y mucho no cambiaría. *Beavis and Butt-Head* demostró que hay otro costumbrismo posible, un costumbrismo más desangelado y marginal, pero mostrado con una naturalidad desafiante. Cuando uno ve *Los Simpson* descubre hasta qué punto está hecho por un hombre, Matt Groening, que nació en los años 50. Mike Judge, en cambio, desde *Enredos de oficina* (1999), decide exponer la rutina de sus personajes sin fórmulas ni garabatos.
+
+En las comedias animadas siempre hubo chistes de pedos, pero cagarse encima, hasta *Beavis and Butt-Head*, no se cagaba nadie. Sin olvidar la influencia de *Mystery Science Theater 3000*, de Joel Hodgson, donde un hombre y sus robots son forzados por un grupo de científicos a ver las películas más bizarras de la historia del cine; la linea suelta y temblorosa de Gábor Csupó y Arlene Klasky en la serie *Rugrats*; y la cultura del reviente de las viñetas de Peter Bagge, Mike Judge fundó su propia escuela de malos modales. Dibujando con el desprejuicio de un chico que hace caricaturas de sus compañeros del colegio en una hora de clase y tiene la capacidad de tatuar un gesto con trincheta en el pupitre; levantando la bandera del feísmo en una industria que premia lo bonito; ¿cómo hubiera sido el mundo sin *Beavis and Butt-Head*? Además de ser más triste y apagado, seguramente no hubieran existido *Ed, Edd n Eddy*, *Bob’s Burgers*, *South Park*, *Regular Show*, *Clarence*, *Jackass* y la Nueva Comedia Americana más corrosiva.
+
+No es necesario que Jonah Hill y Michael Cera se pongan una remera de Metallica y AC/DC en *Supercool* para que confirmemos sus referentes, o que Will Ferrell y John C. Relly griten “¡Cornholio!” en *Hermanastros* para saber quiénes fueron sus maestros escatológicos, incluso, que Tina Fey y Amy Poehler jueguen al frisbee con un plato antiguo en *Hermanas* para detectar quiénes fueron su inspiración. Al no cultivar un dibujo bonito, Mike Judge influyó más en la comedia de acción viva que en la animación. Por algo es el camino que él terminó eligiendo como autor, desde la versión con actores de carne y hueso de *Enredos de oficina* hasta el éxito televisivo *Silicon Valley* (que va por la quinta temporada, por HBO), pasando por sus largometrajes *La idiocracia* (2006) y *Extract* (2009).
+
+25 años después de que Beavis & Butt-Head se hayan acomodado en el sillón de casa no hay ni un dejo de nostalgia por sus frentes abovedadas y piernas delgadas, porque lograron instalarse en la cultura pop de manera permanente. Ya no hay necesidad de que vuelvan en forma de fichas, porque nunca se fueron. Están presentes en cada insulto creativo, al ponernos como capucha el cuello de la remera y en cada nacho que zambullimos en queso. De hecho, en Argentina, los adolescentes entraron en cada hogar gracias a la extraña y apócrifa versión nacional producida por Marcelo Tinelli, donde Beavis & Butt-Head opinaban sobre las canciones de Emanuel Ortega y los discursos de Domingo Cavallo. Tal vez mejor olvidar esa desafortunada temporada. 
+
+En el episodio “Crying”, de 2011, Beavis & Butt-Head se castigan un rato con el reality *The Bachelor*. Se mofan mientras sus pequeños dientes trituran un par de panchos. El conflicto nace cuando Beavis descubre un trozo de cebolla cruda mezclado en el aderezo, y comienza a lagrimear al mismo tiempo que el soltero codiciado del reality dedica unas palabras sensibleras a la cámara. Butt-Head lo acusa, entre risas diabólicas, de haberse emocionado con *The Bachelor*. Beavis enfuerece y Butt-Head ríe aún más fuerte, hasta propagar por toda la escuela y el vecindario que Beavis lloró viendo *The Bachelor*. Pasan las semanas, los meses y Butt-Head sigue recordándole a su mejor amigo que lloró. Lloró viendo *The Bachelor*. El capítulo termina con un gran salto en el tiempo, 80 años después: Beavis y Butt-Head ahora son ancianos con arrugas y manchas en la piel, residentes en un geriátrico. Con la poca fuerza que le queda, Butt-Head le lanza a Beavis “Estabas llorando”. Son las últimas palabras que pronuncia antes de morir. Aunque su par está muerto Beavis le contesta: “No estaba llorando, y tampoco estoy llorando ahora”, grita luego de patearle su silla de ruedas.
+
+Sin importar el paso del tiempo imaginario, en ese vínculo nada ha cambiado. Se rieron de lo mismo hasta el último segundo de vida. En el desenlace del texto “Algunas notas sobre el arte de caer”, John Berger escribe “En el mundo de Chaplin, la risa es el apodo de la inmortalidad”. En *Beavis and Butt-Head* la risa no es el apodo de la inmortalidad, es un sinónimo. Por eso es que 25 años después ellos siguen estando atrapados justo en el medio entre la niñez y la adultez. La maldición (o no) de ser adolescentes para siempre. Al final lograron ser esos vampiros que tanto deseaban. No importa que ese don no sea suficiente para encantar a una chica; el amor más grande tiene las dimensiones de un televisor. 
+
+  
+
+
+
+
+---
+
+ Maia Debowicz
+--------------
+
+ Maia Debowicz es periodista. Escribe en el suplemento *SOY* de *Página/12*, *Los Inrockuptibles*, *Haciendo Cine* y *El Amante*. En Twitter es [@Maia\_Debowicz](https://twitter.com/Maia_Debowicz). 
+

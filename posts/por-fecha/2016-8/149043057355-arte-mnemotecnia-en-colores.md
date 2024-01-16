@@ -1,0 +1,1 @@
+../../149043057355-arte-mnemotecnia-en-colores.md

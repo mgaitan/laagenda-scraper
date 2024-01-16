@@ -1,0 +1,68 @@
+# Diez preguntas para empezar
+
+**Liverpool-Leeds fue descomunal. Jugaron como saben jugar y como dicen que juegan: al ataque, tratando de imponer su dinámica por sobre la del rival.**
+
+14 de septiembre de 2020 - El extranjero
+
+_por Quintín_
+
+Link original: https://laagenda.tumblr.com/post/629251204846944257/diez-preguntas-para-empezar
+
+![](https://64.media.tumblr.com/f05ae17c537cab9a10c12e601728e7a0/04b01eaffc58be52-0d/s500x750/adbafc6e3223c864375fc9db4b148cd6e0c69e16.jpg)**¿Por qué el fútbol no será siempre así?**
+
+Me refiero al descomunal partido entre el Liverpool de Klopp y el Leeds de Bielsa. Los dos jugaron como saben jugar y como dicen que juegan: al ataque, tratando de imponer su dinámica por sobre la del adversario. Ganó el mejor de los dos con un penal tonto sobre la hora, pero el Leeds hizo lo que nadie se anima: jugarle de igual a igual al Liverpool. No le fue peor que a los que estacionan el ómnibus y, además de la derrota, se vuelven con la frustración de que no haber intentado nada. Vamos a ver qué pasa con el Leeds de ahora en más (mantenerse es muy difícil para los equipos que ascienden a la Premier League), pero no parecía un equipo de la B. Al contrario, dio la sensación de que jugaba mejor que en la Championship. A diferencia de los otros dos ascendidos, el Albion y el Fulham, a los que uno les anticipa un año de penurias, el Leeds parece competitivo.
+
+  
+**2. ¿Es esta la gran verdad sobre el fútbol actual?**
+
+Cuando se rumoreaba el pase de Messi al Manchester City, Jonathan Wilson escribió en *The Guardian* [un artículo que hizo mucho ruido](https://www.theguardian.com/football/blog/2020/aug/29/forget-the-romance-lionel-messi-will-not-make-manchester-city-better). Allí decía que la sensacional llegada de Messi iba a ser contraproducente. Porque el problema que tenía el equipo de Guardiola era la defensa y Messi no le iba a aportar nada en ese sentido, ya que con el correr de los años, cada vez recuperaba menos la pelota. La idea se concentraba en una frase muy simple pero muy explosiva, que Wilson mencionaba al pasar, como si fuera una verdad evidente: “Hoy el fútbol pasa por recuperar la pelota más que por retenerla”. Creo que es parcialmente cierto. Los dos grandes equipos de esta temporada, el Liverpool y el Bayern Munich, son máquinas de presionar. Y en cambio el Barcelona, que solía ahogar a los contrarios en base a posición y juego, se olvidó de hacerlo. Mientras que este City terminó confundido porque el sistema de Guardiola dejó de ser eficiente en ese rubro. Pero también es cierto que el Liverpool y el Bayern no solo presionan, sino que saben qué hacer con la pelota cuando la ganan. Porque muchísimos clubes se ocupan de presionar y pocos de saber para qué lo hacen, salvo para que los futbolistas se cansen y lleguen al final de los partidos exhaustos y sin precisión. Volviendo al glorioso Liverpool – Leeds fue tan buen partido porque se ocuparon tanto de recuperar como de atacar. 
+
+  
+**3. ¿Por qué no hay más cracks?**
+
+El PSG no solo perdió el clásico con el Marsella, también perdió en la primera fecha contra el ascendido Lens, en un partido que se jugó el jueves pasado. La mayor parte del plantel estaba con covid y tuvo que jugar con muchos suplentes. Miré el partido muy distraído, pero en un momento me empecé a fijar en el número 36, un pibe petiso, de poco físico y cara inexpresiva que manejaba la pelota con calidad, hacía siempre la jugada justa y parecía entender perfectamente el partido. Arrancaba cerca del lateral izquierdo de su equipo y desde ahí manejaba el juego. Pensé: “cómo se parece a Iniesta”. El técnico lo dejó setenta minutos y, cuando salió, el PSG perdió y no hilvanó una sola jugada de ataque más. El pibe se llama Kays Ruiz-Atil (en la camiseta decía “Ruiz”), tiene 18 años recién cumplidos, mide 1,68 y es francés de ascendencia marroquí. Curiosamente, se formó en el Barcelona (parece que ahí lo vio jugar a Iniesta), pero el club lo tuvo que devolver por haber incurrido en alguna trampa financiera, como ocurrió con el japonés Kubo. Era su debut en primera y no estoy seguro de que veamos mucho más de él. El domingo salió en el banco pero no entró y es probable que lo presten a un club del montón, donde su talento se desperdicie. ¿Es esa una respuesta a la pregunta? Quiero decir, ¿una de las razones por las que no hay más cracks es porque nadie los espera y los jugadores empiezan a tener oportunidades varios años después de lo que deberían? Pero la respuesta está también en el cambio que hizo Tuchel: el crack, a menos que sea un veterano establecido, es el primero que sale. Es como si los técnicos pensaran que la calidad es un defecto. 
+
+  
+**4. ¿Por qué no hay mejores jugadores?**
+
+Me surgió esta pregunta viendo Crystal Palace – Southampton. Los partidos de la Premier League son casi siempre competitivos, pero los jugadores parece siempre limitarse a un rol y no salirse de él. Su versatilidad es muy reducida, hacen lo que se espera de ellos y no van más allá. No hablo en este caso de cracks rutilantes. Me refiero a buenos jugadores de un nivel del que parecía haber uno solo en la cancha, Wilfred Zaha, que cada año suena para un equipo grande, pero la transferencia nunca se concreta. Hoy los jugadores se educan desde muy chicos, con métodos de entrenamiento, medicina y alimentación eficientísimos que se perfeccionan a diario. La tecnología y la maquinaria para detectar precozmente a los mas aptos es enorme y eficiente. Pero por qué el fútbol en su conjunto no logra generar mas talento individual, más aptitud y, por consecuencia, espectáculos más ricos y más interesantes. Algún antiguo dirá que es por la muerte de los potreros pero tiendo más bien a pensar que la causa es la mecanización y la falta de libertad. Lo cierto es que todos los delanteros aprenden hoy a defender, pero siguen siendo pocos los defensores que saben atacar. Y, de hecho, tener defensores que lo hacen (especialmente laterales) fue parte del éxito del Liverpool y del Bayern Munich. 
+
+  
+**5. ¿No es mejor jugar que hablar?**
+
+En la semana, el tonto de Hugo Lloris (los arqueros son tontos, es casi irremediable) declaró que el Tottenham tenía que aprender a “ganar feo”, frase incomprensible en la que se adivinaba la mano del técnico Mourinho. Es una frase estúpida, porque hasta la Máquina de River debe haber ganado algún partido jugando mal, incluso colgándose del travesaño porque el adversario se le venía con todo al final. Pero lo que Mourinho quiere decir (como Bilardo, Simeone y tantos otros) es que tomar infinitas precauciones, no hacer nada generoso ni valiente ni alegre en la cancha, buscar un gol y después defenderlo de cualquier manera son los talismanes para ganar. Como si una sonrisa fuera el presagio de la derrota. Mourinho se está poniendo rancio. Otra vez, como le ocurrió en el United, se desquita con sus jugadores, a los que acusó después del partido de no poner suficiente voluntad. Para cualquiera que haya visto el partido con el Everton, quedó claro que el Tottenham mereció perder, pero que se mataron en la cancha presionando durante noventa minutos. Mourinho parece haber perdido el tren y se desquita hablando, después de que sus contrataciones fueron un picapiedras del medio como el danés Hojberg, a un lateral mecánico como Doherty y a un arquero medieval como Hart. 
+
+  
+**6. ¿Por qué no se puede jugar con público?**
+
+En la Ligue 1 hay gente en los estadios. Están todos con barbijo, aunque uno al lado del otro. Francia mantiene muchas restricciones por la pandemia pero hay gente en la cancha, lo que le da al juego otra tensión. En Holanda es todo más libre. Ayer vi a la gente disfrutando del solcito en las tribunas sin el barbijo. Curiosamente, Francia y Holanda fueron los países que no interrumpieron la liga sino que la cancelaron cuando se declaró la pandemia. De modo que nunca jugaron sin público. No veo qué tiene de malo y por qué los espectadores siguen vetados en los otros países. Es cierto que la Argentina fue pionera en ese sentido: como si previera el covid, empezó por prohibir los visitantes. Y no volvieron más. Otra cosa rara de la pandemia  y el fútbol es lo de la “burbuja” para aislar a los planteles del covid. Eso no evita que los jugadores se contagien y, cuando eso ocurre, pasan dos semanas sin entrenarse y sin jugar. Incluso se arman escándalos como el que afectó a la Selección Inglesa cuando Foden y Greenwood se llevaron unas chicas a la pieza (no entendí si eran dos piezas o una sola) y los descubrieron. O lo de la selección checa, que tuvo que mandar al técnico y todos los jugadores de vuelta cuando enfrentó a Escocia por la Europa Nations League. Lo más curioso es que no se registra ningún caso en el que un jugador de fútbol haya sufrido consecuencias serias (ni medianas) por el covid. Salvo que, en lugar de estar tres días parado si tiene síntomas o ninguno si no los tiene, están catorce. 
+
+  
+**7. ¿Por qué Neymar juega en Francia?**
+
+Esto lo vengo preguntando hace mucho. Ayer vimos un papelón espantoso en el clásico del PSG y el Olympique de Marsella, que venía caldeado porque cuando el PSG perdió la final de la Champions en Marsella salieron a festejar a la calle. Ni que fuera Rosario. Terminó todo a las trompadas y con cinco expulsados, como en un partido de la Libertadores de hace treinta años. Uno de ellos fue Neymar, que se dejó provocar por un español berreta, mientras que los argentinos Benedetto, Paredes y Di María también despuntaron el vicio de la inconducta gratuita. Ahora, a Neymar (que salió quejándose del racismo) lo van a suspender por varias fechas, como ya le pasó varias veces. El PSG conducido por Tuchel es un equipo mediocre, al que le toca jugar con equipos más mediocres. Y a Neymar nadie lo cuida, tiene que hacer de Messi y de Giunta al mismo tiempo. La Liga 1 degrada a los jugadores. Ayer lo vimos a Payet, descomunal talento que en el final de su carrera también se gana la vida provocando. Memhphis Depay, otro grande que debería estar en otra parte, vive tirando chiches en el Lyon. 
+
+  
+**8. ¿Cuál es el verdadero James?**
+
+En 2009, vi como James Rodríguez hizo campeón al Banfield de Falcioni. Tenía 18 años y era un crack. Poco tiempo más tarde brilló en la selección colombiana y, después de pasar por el Porto y el Mónaco, lo vi apagarse en el Real Madrid y en el Bayern Munich. Tampoco volvió a su nivel en la selección. Tuvo lesiones serias, conflictos con los clubes, desencuentros con los entrenadores. A los 29 años, después de fracasar en dos grandes, fue a parar al Everton, un retroceso en materia de cartel, y ayer lo vimos debutar contra el Totteham. Parecía otra vez el zurdo sutil, lúcido, peinado a la gomina y de técnica perfecta. Se decía que no iba aguantar todo el partido, pero se quedó 91 minutos y salió con una enorme sonrisa de satisfacción, casi tan grande como la de Carlo Ancelotti, el técnico que siempre creyó en él. En el Everton, ese equipo que año tras año y con distintos entrenadores solo muestra pesadez, rusticidad y mal humor, corría un aire fresco. Ancelotti no solo trajo a James, sino también a dos jugadores muy interesantes: el volante central Allan (un brasileño que hace pensar un poco en Casimiro) y a Doucouré, que venía penando en el descendido Watford pero mostraba destellos de otra cosa. Queremos más de James.  
+
+  
+**9. ¿Por qué no se mueve el mercado?**
+
+Todos los años, entre una temporada y la siguiente, hay rumores sobre transferencias sensacionales que rara vez se concretan. Esta vez, el fallido traspaso de Messi fue el punto más alto de la frustración de las expectativas. Pero en estos años, son muy pocas las transferencias importantes. Es como si los clubes, los representantes y los jugadores negociaran de la mejor manera posible para conseguir que los pases no se hagan. Hay casos incluso más inexplicables. Los de los jugadores que no tienen lugar en un equipo y no se van, por lo cual su club se queda sin dinero para compras y su alto salario impide contratar a otros por menos plata. Un caso extremo es el de Bale (Bale es un caso de escopeta), pero ahora se agregó el de Ozil. Más toda la rémora del Barcelona que se niega a salir del club y hace pensar que el supuesto plantel de la renovación va a ser prácticamente el mismo, que es lo que ocurrió con el Real Madrid el año pasado. Encima, las grandes figuras están fracasando en sus nuevos clubes (Griezmann, Hazard, Erikson, para citar tres ejemplos). No se me ocurre una respuesta. 
+
+  
+**10. ¿Por qué son tan feas las camisetas?**
+
+Creo que nunca hablé de este tema, pero me llama la atención que las grandes marcas deportivas hagan camisetas espantosas. Especialmente Nike, que tras un modelo muy feo en la temporada anterior, apareció con uno todavía peor. La camiseta del Tottenham es un perfecto ejemplo del horror en la materia, con un estampado que recuerda a una vieja alfombra, el cuello en la espalda, vivos y adornos que la afean hasta lo indecible. La estética de Nike fue virando desde una ligereza sencilla y libre, que contrastaba con las tiras militares de Adidas al mamarracho manierista actual. No es que Adidas haya mejorado mucho, ni tampoco Puma: también se les dio por el estampado barroco. Lo más discreto y armonioso en este fin de semana vino de dos marcas menos comunes: las Hummel del Everton y las Under Armour del Southampton, que pasó de la tradicional estilo Estudiantes a una igual a la de River Plate, tu grato nombre.
+
+
+
+---
+
+Quintín
+-------
+
+ Quintín es fundador de la revista El Amante y ex director del Bafici. Vive en San Clemente del Tuyú. En Twitter es [@quintinLLP](https://twitter.com/quintinLLP) 
+

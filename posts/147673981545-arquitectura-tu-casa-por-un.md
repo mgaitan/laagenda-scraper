@@ -1,0 +1,56 @@
+# Tu casa por un cuento
+
+**El grupo Una Casa ya tiene prototipos de viviendas armables, y un concurso que otorga cinco viviendas a cambio de una buena historia.**
+
+20 de julio de 2016 - Arquitectura
+
+_por Gustavo Nielsen_
+
+Link original: https://laagenda.tumblr.com/post/147673981545/arquitectura-tu-casa-por-un
+
+![](https://64.media.tumblr.com/971773edde9dcc04e1d4f1fe85ee0144/tumblr_inline_pk0jilxJAy1t6q87u_500.jpg)
+“H*ago acto de presencia en el supermercado, interpreto bien mi papel”*
+(Michel Houellebecq)
+
+Portable House Company. Así se llama la empresa que le envía una casa prefabricada a Buster Keaton en [*One Week*](https://www.youtube.com/watch?v=jmfU6qbW-JA), la primera película que filmó por su cuenta. Es un mediometraje de 1920, increíblemente moderno en su concepción. Buster se acaba de casar. En un carro tirado por caballos le traen el embalaje de la compra. Las cajas vienen con manual de instrucciones, pero una mano negra interviene y trastoca las etiquetas. Buster no se da cuenta y fabrica una casa fea para 1920, a la que, después, un tormentón deja aún en peor estado. Estéticamente hablando, la primera parece de Thom Mayne, el arquitecto del [Morphosis](http://www.morphosis.com/) de los ochenta, y la lluvia y el viento la dejan como una casa de Frank Ghery. Para la actualidad -para la crítica arquitectónica actual-, son interesantes. El film nos hace pensar, sin proponérselo, que en la prefabricación se pueden llegar a hacer cosas maravillosas. La peli acaba con un tren pisoteando el imposible habitáculo destartalado. La serie de imprevistos, que hubiera doblegado a cualquier familia del conurbano bonaerense, une más a Keaton con su esposa, porque el amor es más fuerte que la construcción. Final feliz.
+
+Los intentos de casas prefabricadas para venta directa en la vida argentina tienen la impronta de la película, pero vista desde 1920: son feas y berretas, dan una imagen de pobreza o ingenuidad. El ejemplo inaugural es la Vivienda Tarzán, que se comercializó en el país hasta los años setenta. Las familias para las que estas casas estaban diseñadas eran parecidas a las familias de la época de Keaton: patriarcado duro, adonde la mujer se queda cuidando a los niños cuando el marido sale a trabajar. Las visiones de estas casas para armar nunca conforman, desde la clase media en adelante, porque no tienen diseño ni confortabilidad. Su logro está fundado en el precio bajo, en la rapidez para armarla y en la esperanza remota de poder desarmarla y llevártela si te desalojan de un terreno sin escriturar. O sea, problemas de clase baja. Los arquitectos argentinos no hemos sabido servir a la industrialización que triunfa en el primer mundo, justamente porque le han agregado diseño y confortabilidad. Deberíamos poder hacer casas así como fabricamos autos o aviones. Deberíamos poder hacerlas acá.
+
+Eso es lo que pensaron el desarrollador Juan Arostegui y el arquitecto Daniel Silberfaden cuando se propusieron armar el concurso Una Casa. Juan había comprado una empresa de panelería de origen canadiense llamada Royal Technology, dedicada a fabricar piezas de ensamble para depósitos y contenedores de la industria petrolera. Se trata de unos cerramientos de PVC, livianos, que una vez montados en la obra se rellenan de hormigón líquido o espuma de poliuretano, ya tengan que servir como portantes o como aislantes. La intención de Juan era que sirvieran, además, para hacer casas, y que esas casas se pudieran comprar en el supermercado, como hizo Buster en su película muda, o como los muebles que se compran en Ikea: vienen en una caja y cada cual se los arma al llegar. Si no tenés un enemigo que te cambie los números de orden de las piezas suelen quedar muy lindos. 
+
+![ganchos](https://64.media.tumblr.com/971773edde9dcc04e1d4f1fe85ee0144/tumblr_inline_pk0jilxJAy1t6q87u_500.jpg) Los proyectos de Una Casa buscan reflejar los modos de vivir contemporáneos.Silberfaden propuso llamar a concurso a sesenta estudios de arquitectura de todo el país, cuyos integrantes tuvieran menos de cuarenta años y fueran profesores de alguna universidad. Se les pidió que reflexionaran sobre tres temas: nuevos modos de habitar, la vivienda del siglo XXI y la industrialización. Los resultados están en el libro Una Casa, editado por el infalible Hernán Bisman de Ediciones Bisman. Los sesenta estudios se comportaron con precisión racional; no se veían artefactos imposibles, como en la época de [Archigram](https://es.wikipedia.org/wiki/Archigram). Los proyectos que llegaron a finalistas están llenos de jugosas reflexiones sobre la vida contemporánea.
+
+“En la primera etapa sólo se pidieron pensamientos”, cuenta Silberfaden, “y para evaluar el trabajo elegimos un jurado teórico que seleccionó a 15 finalistas. Muchos eran del interior: Rosario, Córdoba y Jujuy. Los citamos en Buenos Aires y les dimos una historia a resolver. Había que diseñar una vivienda de 45 metros cuadrados para una pareja de jóvenes que tenían un perro y querían tener hijos, donde él coleccionaba discos y ella libros; ambos con mucha vida social. La casa debía ser fácilmente escalable (*que crezca*, explica, cuando le pregunto), y posible de ser construida con medios industrializados.”
+
+Le digo a Silberfaden que el punto que más me interesa del concurso es el de los nuevos modos de habitar, y él me contesta que esas respuestas las debo buscar en los ganadores. Hay una exposición montada en el Malba, solamente para la presentación, donde están exhibidas las 15 maquetas. Me quedo por ahí hasta que venga alguien. El primero que se acerca es el arquitecto Pablo Sztulwark, uno de los jurados. Dice que disfrutó de jurar este premio, porque el diseño de la vivienda siempre es una oportunidad para hablar del habitar público y privado. Son temas bienvenidos en la Matrícula. Pablo es un “disfrutador”, lo conozco. Le pregunto si algo del concurso no le gustó, y me dice que hubo una sola cosa: que utilizaran tanto en las bases la palabra “customización”. El *customer* es el cliente. “Ya no se habla de usuarios”, dice, nostálgico. En fin, cosa de empresas. “Objeto repetible, sujeto irrepetible”, termina.
+
+![ganchos](https://64.media.tumblr.com/6db08403de8d823f7beed6d9e7212ba4/tumblr_inline_pk0jilSCYP1t6q87u_500.jpg) Nuevos usos del dominó. Proyecto del estudio Carballo Errasti.El segundo que se acerca es un pibito que me reconoció y enseguida me retó a duelo de pimpón. Se presenta: arquitecto Gabriel Monteleone, del estudio BAAG. En BAAG son campeones de pimpón, dice, y nos quieren destrozar. A Max y a mí. Me presenta a su socio, Gastón, el otro jugador, que da un poco más de miedo porque casi no habla. Obtuvieron uno de los premios, con una casa que parece un perfil de extrusión.
+
+-¿Qué son para ustedes las nuevas familias? -le pregunto.
+
+-Uniones fragmentarias -me contesta.
+
+Opina que la familia tipo se segmentó y se diseminó. La familia de hoy la conforman parejas heterosexuales, homosexuales, con hijos, sin hijos, con hijos de otros, con amigos. Le repregunto qué diferencia hay entre hacer una casa para una pareja heterosexual u homosexual. “Espero que ninguna”, dice. “Nosotros fragmentamos las posibilidades de una vivienda y las traducimos en módulos. Podés comprar los módulos que necesitás para tu vida y combinarlos, restando o adicionando según qué te pase en el futuro. Si hay que hacer un refugio de investigadores en el sur nos pedirán más módulos estudio, o dormitorio. Una pareja de cocineros puede pedir dos cocinas. Una persona con mucha ropa, más módulos placares. Privilegiamos la elección para que te puedas hacer tu propio espacio. 
+
+Juan Pablo Porta, otro de los arquitectos seleccionados, enumera su propia lista de cambios sociales. Las familias ensambladas se reciben los hijos mutuamente, y a veces pasan de ser dos personas a tres o cuatro, varios días a la semana. El espacio de las nuevas familias, entonces, sufre transformaciones diarias. Antes, las transformaciones venían dadas por décadas. “Normalmente se resuelve solamente el dormir, con una cama nido que se extiende para el nuevo integrante”, dice. “Lo lógico sería que se pensara también dónde va a estudiar, jugar, comer. En el diseño que propusimos se corren las paredes. Si la familia precisa más intimidad, quedan conformados los cuartos; si hacen una fiesta o son más a cenar el espacio pasa a ser uno solo, más grande.”
+
+Si se suman los metros cuadrados de una casa tradicional, con pasillos, hall, comedor, estar, etcétera, la casa pasa a tener más de 120 para lugares que ni se usan, o se usan para pasar. Los lugares que propone Porta son todos prácticos: a nadie le importa comer viendo una mesada, porque la mesada que él diseñe será tan bella que valdrá la pena.
+
+Porta también encuentra diferencias definitivas en el uso de la tecnología. Las conectividades inalámbricas hacen que todos los lugares de una casa sean para comunicarse y trabajar, lo que precisa de sitios flexibles. El compartimiento estanco del positivismo se ha ido al diablo. La familia de clase media puede comprar, pagar cuentas y ganar dinero con un celular inteligente desde cada rincón de su vivienda. Hoy, todos los lugares sirven para hacer muchas cosas. También se acabaron las jerarquías. El poder en la familia contemporánea es horizontal, no más una pirámide. Todos lo ejercen. Chicos, grandes, mujeres o varones son dueños de todos los lugares. Desean, planifican y organizan por igual.
+
+![ganchos](https://64.media.tumblr.com/3acd779930e064f95a7ac7b633cb9b0c/tumblr_inline_pk0jim3h6l1t6q87u_500.jpg) Tajadas finas de chalé. Proyecto del estudio BAAG.Las fábricas de casas que se ven en el libro son refugios urbanos; se hacen llamar *plug-in houses*, porque cada vez que precisen un servicio se lo pueden bajar de Internet. Los fabricantes de casas a veces piden que “cuelguen al arquitecto”; hablando bien y pronto, se refieren a que en las democracias actuales la gente aprende a vivir sus espacios en tutoriales gratuitos sacados de la web. En la fabricación de casas ya no existen funciones como cocinar, dormir o estar, sino módulos de deseo, de intimidad y servicios. Las casas fabricadas pueden ser poderosos gadgets, ingeniosos andamios o máquinas ambientales. Una Casa es un libro lleno de ideas.
+
+Al final de la presentación Silberfaden anuncia una sorpresa: se están buscando usuarios que tengan un terreno propio en la Argentina y quieran habitar alguna de estas cinco casas delivery. Para eso, crearon una aplicación para SmartPhones por la cual regalarán los prototipos a partir de las mejores historias personales de quienes bajen el código QR que viene impreso en la tapa del libro. Es para ustedes, lectores. Vayan a la librería, apunten con sus telefonitos y prueben. Ojalá tengan suerte.
+
+  
+
+
+
+
+---
+
+ Gustavo Nielsen
+----------------
+
+ Gustavo Nielsen es arquitecto, dibujante y escritor. Como arquitecto realizó obras en Buenos Aires, Córdoba, San Luis y Montevideo. Ha publicado varios volúmenes de ficción, entre ellos *La otra playa*, Premio Clarín de Novela 2010. Nielsen escribe en el suplemento Radar, de Página/12, y tiene una columna semanal, Milanesa napolitana, en el Suplemento Literario Télam. Además lleva los blogs [Milanesa con papas](http://milanesaconpapas.blogspot.com.ar/) y [Mandarina](http://mandarinasdulces.blogspot.com.ar/)
+

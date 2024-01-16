@@ -1,0 +1,1 @@
+../../122989510840-dos-equipos-de-jerarquia.md

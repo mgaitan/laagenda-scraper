@@ -1,0 +1,36 @@
+# El poder del lapsus
+
+**Decimos “ponele” no para afirmar una coincidencia sino para no entorpecer la conversación, para no ponerla en peligro con la discusión a la que invita.**
+
+1 de agosto de 2018 - Free shot
+
+_por Alan Pauls_
+
+Link original: https://laagenda.tumblr.com/post/176518049510/el-poder-del-lapsus
+
+![](https://64.media.tumblr.com/bdde69f288859684a7be4fdfbb6167ab/tumblr_inline_pcsewetmnN1t6q87u_500.jpg)Hace unos años, no muchos, hizo furor cierto modo contable de decir. Una relación amorosa “cerraba” o “no cerraba”; una decisión “garpaba” o no. Los números eran ley. Cierto economicismo salvaje y expeditivo dictaba cuándo algo —sobre todo algo que no era inmediatamente económico: una pasión, una vocación, un riesgo, por ejemplo— era digno de emprenderse o proseguirse, cuándo merecía nuestra inversión o nuestra renuncia. Con ese pragmatismo de mercachifle, resto probable de los años menemistas, la lengua evaluaba así, en términos de especulación y cálculo de rentabilidades, las posibilidades de la vida. Años después, no muchos, se apoderó del lenguaje una fuerza friendly, como acuñada en un consultorio de psicología infantil, y de pronto todo se empezó a empequeñecer, a contraer, a endulzar. La gente se deseaba un “buen finde”, los hackers trabajaban en sus “compus”, íbamos al cine a ver una “peli”, los niños cargaban sus “mochis” (aligeradas por la sílaba de menos) y se ponían en puntas de pie para saludar a las “seños”. Sembrado de abreviaturas, el lenguaje parecía sonreir, simpatizar, buscar una horizontalidad que sólo parecía ofrecérsenos al precio de infantilizarnos (la peste persiste, curiosamente, y ya parece un registro verbal instalado, ilustración tardía de la vieja tesis de María Elena Walsh según la cual la Argentina es un país jardín de infantes). 
+
+
+Ahora, hoy mismo, probablemente mañana también, es la era de la posverdad —en su variante eufemística, no agresiva— la que esculpe nuestra manera de hablar y patrocina los dos idiotismos que hacen furor en el habla cotidiana. Uno es “ponele”. Este viejo imperativo funcionó alguna vez como sinónimo de “supongamos”: un umbral de imaginación. Ahora resucita cambiado: por lo pronto es siempre una réplica a algo dicho por otro, una suerte de concesión amable pero desconfiada, que acepta lo que el interlocutor acaba de decir sin compartirlo del todo, pero sin considerarlo digno de la disección detenida que merecería. Decimos “ponele” no para afirmar una coincidencia con el otro sino para avanzar, para no entorpecer la conversación entrando en detalles, para no ponerla en peligro con la discusión a la que invita. El otro es cierto uso del potencial, modo verbal casi exclusivo de la prensa escrita, que suele aplicarlo a los acontecimientos que no ha podido comprobar pero tampoco quiere privarse de comunicar. “Habría vida en Marte”; “Jorge Rial dejaría Intrusos”; “Los opositores habrían decidido zambullirse en la competencia electoral”. El uso, ahora, sigue siendo más o menos el mismo; lo que cambia es el contexto en que se lo usa, que ya no es de conjetura o de hipótesis sino de certeza absoluta, lo que convierte al potencial en un instrumento de ironía: “La lluvia de inversiones prometidas por el gobierno no estaría llegando”; “La inflación no estaría disminuyendo”; “Lanata no estaría pudiendo con Mirko y Marley”; “Sampaoli no le estaría encontrando la vuelta al equipo”. Los dos giros en boga incluyen una dosis de reparo o de crítica, que en ambos casos dan a entender pero nunca formulan directamente. Son, pues, expresiones “de civilización”, lo que significa, a la vez, de lucidez y de cinismo. Lo que dicen es: “Habría cosas que criticar, pero eso no es lo importante; lo importante es la conversación. Sigamos adelante con la conversación”. Diría —generalizando a lo bestia— que “ponele” y “estaría” son dos formas más o menos progresistas de gestionar el diferendo bajo el imperio del macrismo.
+
+
+La actitud —el sacrificio de la crítica que implica la actitud— sería plausible… Si hubiera una conversación. Pero ¿la hay realmente? Para citar sólo la ley de aborto, uno de los tópicos fuertes de la agenda política actual, ¿qué conversación posible hay con los cementerios de fetos del diputado Olmedo, la asociación preservativo/porcelana del doctor Albino o el fastidiado “no sé” con que Michetti cerraba su batería de consejos para los casos de embarazo por violación (“Lo podés dar en adopción, ver qué te pasa en el embarazo, trabajar con psicólogo, no sé”)? En términos más generales, ¿qué conversación puede haber con alguien (presidente, fuerza política, filósofos orgánicos, voceros, etc.) que declara no creer en las palabras, o creer que las palabras no son sino obstáculos que atrasan, palos plúmbeos que unos pesados anacrónicos siguen metiendo en la rueda (naturalmente silenciosa) de la acción? Mal que le pese al macrismo, un lenguaje sólo se doblega ante las armas (lo que solíamos llamar “dictadura militar”) o ante otro lenguaje; nunca ante el pragmatismo voluntarista, no importan las sobredosis evangélicas de entusiasmo con que se intente untarlo. El macrismo no tiene lenguaje (por eso su salsa son las redes sociales y el marketing), y no lo tendrá porque no cree en él, porque —como sostienen más o menos explícitamente los que lo “comunican”, de Durán Barba a Rozitchner— tiene demasiadas cosas en que trabajar para perder el tiempo en algo tan complicado, vetusto e inútil como una retórica. 
+
+
+La idea no los estaría llevando por buen camino. No sólo porque la ley de aborto saldrá, tarde o temprano, y los dichos de Olmedo-Albino-Michetti quedarán para siempre como el monumento máximo a una retrogradez, una necedad y un cretinismo que cuesta llamar humanos, sino porque alguien que no cree en el lenguaje fatalmente termina siendo su víctima: diciendo lo que no quería decir pero sin duda pensaba —y reprimía bajo la espuma del entusiasmo evangélico y otros afectos “positivos”. Le pasó al presidente Macri hace poco, cuando quiso arriar velas (lo que en la jerga náutica significa capear un temporal) y arrió banderas (lo que en la jerga de las barricadas significa agachar el lomo y obedecer). Le pasó a Rozitchner con Fantino, cuando quiso ensalzar la supuesta máquina de hacer que es el gobierno y no pudo no decir todo lo que el gobierno hacía “contra los derechos y necesidades de los que menos tienen”. Alérgico a toda retórica pero sobre todo a la setentista, que le gustaría ver archivada en el Museo de la Lengua que su propia administración suprimió, el presidente protagonizó un extraño milagro de política freudiana: confesó la verdad en la lengua que más detesta. Fóbico al pensamiento crítico, fuente, para él, de todos los males argentinos, Rozitchner reencauzó su envidiable monto de entusiasmo, originalmente destinado a comunicar obras de gobierno, y lo invirtió en publicitar el supliciamiento de los débiles —donde se suponía que no teníamos que localizarlo. 
+
+
+Así que la pregunta estaría siendo: ¿cómo conversar con los que sólo dicen la verdad cuando se equivocan?
+
+
+
+
+---
+
+ Alan Pauls
+-----------
+
+ Alan Pauls es escritor. Es autor de las novelas “El pasado”, “Historia del dinero” y “Wasabi”, entre otros, todas publicadas por Anagrama. Acaba de publicar “Trance”, un ensayo autobiográfico sobre la lectura. No tiene Twitter.
+
+ 
+

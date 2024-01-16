@@ -1,0 +1,42 @@
+# Pop de cadencia mutante
+
+**En su nuevo disco Deborah De Corral va por el pop industrial, mientras las Amor Elefante profundizan su experimentación por un costado espiritual.**
+
+27 de enero de 2017 - Playlist
+
+_por Gonzalo Bustos_
+
+Link original: https://laagenda.tumblr.com/post/156441883525/playlist-pop-de-cadencia-mutante
+
+![](https://64.media.tumblr.com/6d9015c7f76ec27a6e54256a55705031/tumblr_inline_pk0fmhZCAZ1t6q87u_500.jpg)
+Un tintineo de teclados, unas cuerdas mayores que superponen sus lugares y la voz que entra y pregunta qué debe cambiar para ser normal. La intro suena a hit power pop de los 90. En “Normal”, el track 3 de *Piel*, el segundo disco de Deborah De Corral, hay una síntesis orgánica de la renovada identidad de esta (ex) modelo del clan Dotto. Si en su debut solista Deborah linkeó con Julieta Venegas y Ximena Sariñana para enfocar sus canciones sobre melodías límpidas y arreglos acústicos, hoy sintoniza con el pop industrial para *millenials*. Hay programaciones, capas de sintetizadores, guitarras saturadas de efectos y su voz ahí, flotando en el centro de ese universo moderno, actual. 
+
+![Taekwondo](https://64.media.tumblr.com/e728236264ebdd459e3e0ae27b40534f/tumblr_inline_pk0fmhQ15L1t6q87u_400.jpg)*Piel*, el nuevo álbum.Debora De Corral nació en 1975. Se crió en una casona de San Fernando con siete mujeres –madre, tías, abuela y bisabuela–, jamás conoció a su padre y a los 15 dejó la escuela para irse a vivir a Italia con su novio. En un pueblo en las afueras de Milán trabajó cuidando caballos. Ahí, una mujer la vio hermosa, le sacó fotos y le consiguió algunos trabajos como modelo. Seis meses después Deborah volvió a la Argentina, entró a Dotto Models y su vida cambió. La chica desgarbada con braquets fijos y flequillo tieso se convertía en la figurita teen fetiche de la tevé argenta menemista. Después, condujo *El Rayo*, programa emblema del mainstream televisivo noventoso. A los 16 tenía su propio departamento. A los dos años se cansó de todo y se fue a vivir a Londres para estudiar ingeniería de sonido.
+
+Tres años más tarde volvió y entró a salir con Gustavo Cerati (un lustro atrás había sido novia de Charly Alberti y formado Plum, su primer proyecto musical). A escondidas del líder de Soda intentaba componer sus primeras canciones, pero sentía que la fuerza creativa de Cerati la apagaba y no terminaba de cerrar sus ideas. Cuando rompieron, ella armó Imperfectos con Ezequiel Araujo. Terminó sus canciones y dio sus primeros shows. Era el año 2005 y se convertía en cantante. En 2010 fue parte de INXS como voz invitada y grabó “New Sensation” para el álbum de versiones de los australianos. A la vuelta lanzó su carrera solista. [*Nunca o una eternidad*](https://www.youtube.com/watch?v=jDxVaVeYGo0) , su debut de 2011, ganó un premio Gardel y estuvo nominado a un Grammy Latino. Deborah se convirtió en una estrella pop moderna con canciones simples y magnéticas. Directa en sus letras, se reveló como una compositora de potenciales hits: cualquiera de sus piezas podría ser interpretada por una *hitmarker* pop latina. Había algo particular con ADN universal en su música. 
+
+Algo similar sucede ahora con *Piel*, su nuevo álbum, editado a cinco años del debut. Tras mudarse a los Estados Unidos en 2013, Deborah comenzó a pergeñar su disco en su estudio casero. Viajó por las montañas y desiertos californianos en busca de inspiración. En ese paseo introspectivo se preguntó por ella y el mundo de hoy; después llamó al venezolano Orlando Vitto (productor de Thalía, Gloria Trevi y Britney Spears, entre otros) y a Aureo Baqueiro (Natalia Lafourcade, Sariñana) para terminar esos demos que había delineado con una guitarra acústica y algunos programas de computadora. Así dio forma a un trabajo que la vuelve a poner en la escena del pop radial de este tiempo. Los climas acústicos la vuelven a sintonizar con las cantautoras mexicanas y su sonido sintetizado con el pop estilo inglés. 
+
+![ganchos](https://64.media.tumblr.com/f8abd32e4848816ba8d2dedc3c6631f9/tumblr_inline_pk0fmiFOIW1t6q87u_500.jpg)Directa en sus letras, Deborah se reveló autora de potenciales hits.Deborah demostró que puede reinventarse en su sonoridad, aunque a veces tropieza en sus líricas. *Piel* cae repetidas veces en lugares comunes. Sobre un latido de batería que retumba, en “Para vos”, canta sobre lo que uno puede dar y dejar en una relación, concluyendo en que hay “mucho más para ganar que lo que hay para perder”. La guitarra acústica y la atmosfera dulce y envolvente de “Memoria de elefante” pierden dramatismo cuando el estribillo dice que no puede olvidar un amor pasado. Más bailable y groovera, “Voy” repite como mantra que en el ir se construye el camino, como si develara una verdad inalcanzable. 
+
+El final con “Esta piel” despega la obra de ese sentido blando en el que se hunde por momentos. Una atmosfera envolvente con pianos venidos del cielo, arreglos de cuerdas y parches casi bélicos de fondo le sientan perfecto a una Deborah que se recibe de intérprete con su performance vocal. El clima, dramático, triste y desolador recuerda a los mejores momentos de *Hasta la raíz*, el último disco de Natalia Lafourcade. Y su voz, más trabajada, logra climas interpretativos moviéndose entre las texturas para reflexionar sobre un mundo disfrazado y editado para Instagram.
+
+
+Son menos de quince minutos. Eso dura el viaje étnico que proponen las Amor Elefante en *Viishnu*, su último disco. Cinco canciones le alcanzan al grupo de Banfield para reivindicar su permanente estado de experimentación, cambio y gracia. Como dice el mismo título: viishnu es un concepto mitológico hindú que hace referencia a la transformación. 
+
+El nuevo estado del trío formado por Rocío Bernardiner, Inés Copertino y Rocío Fernández –que en el vivo se completa con Andrés Merlo en bajo– tiene paz recorriendo cada acorde. En su [debut homónimo](https://www.youtube.com/watch?v=sDuq1LVR37Y) de 2011 enhebraron un conjunto de canciones pop con impronta indie. De ese disco, [“Nuevas bienvenidas”](https://www.youtube.com/watch?v=JlCJ1ygnE3w) formó parte del compilado mexicano [*Fonogramáticos volumen 11*](https://www.youtube.com/watch?v=rnSgaEwowrQ) y [“Hoy es hermoso”](https://www.youtube.com/watch?v=WOr1r2jDDN4) fue elegida como canción para una publicidad en los Estados Unidos de la marca Lowe’s. Dos años más tarde editaron *Parque Miñaqui*, homenaje a un secreto barrio banfileño que las sumergió de lleno en la escena indie, con estructuras más flexibles y arrebatos de psicodelia festiva. Con ese álbum giraron por Europa y a ese tour lo llamaron Viishnu. Como una continuación de ese viaje, el tercer registro de estudio del grupo –producido por Manuel Schaller y grabado en los estudios Mawi– no sólo tomó el nombre sino que volvió canción sus sentires. [*Viishnu*](https://www.youtube.com/watch?v=_gynRw1T1yg), el disco, tiene espiritualidad ancestral mezclada con sonidos orgánicos que funcionan como advenimientos divinos para melodías terrenales. 
+
+![ganchos](https://64.media.tumblr.com/d8d9255bc6cdf8c3214e50db301b6c2a/tumblr_inline_pk0fmiDFOB1t6q87u_500.jpg)El trío de Banfield experimenta con un indie de adornos místicos.El comienzo con “Viishnu” tiene un coro de voces hilarantes, fluyendo sobre una base que sube y baja entre pianos, panderetas y tambores ritualistas. Es una canción de iniciación mística. Le sigue “De tu lado”: construida sobre una guitarra liviana que adquiere fuerza rítmica acompañada por palmas y parches, reza sobre el valor espiritual de la compañía humana –corporal–. Hay dulzura e impacto angelical en la antesala a una canción de movimiento oscuro como es “Trópico”. El track 3 vuelve a mostrar el costado indie del grupo con bombo en negras y texturas lisérgicas. “Cuánto tiempo” es un tratamiento pop espiritualista que cose sonidos artificiales con melodía pop y una letra al borde del existencialismo. El final con “Me fui” completa el circulo. Corrientes de agua, viento y pájaros son el fondo de las voces en sincronía suiza, que van arrastradas hacia un ritual armado con sintetizadores y percusiones selváticas. Un estado dionisíaco se mete por los oídos hasta estremecerte. Luego, todo termina y uno queda suspendido, con esos sonidos resonando en el cuerpo. 
+
+  
+
+
+
+
+---
+
+Gonzalo Bustos
+--------------
+
+ Gonzalo Bustos es periodista. Nació en La Plata, en 1989. Colaboró en *Ni a palos*, *Brando* y *Rolling Stone*. En Twitter es [@gjbustos](https://twitter.com/gjbustos) 
+

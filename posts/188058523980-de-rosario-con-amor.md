@@ -1,0 +1,63 @@
+# De Rosario con amor
+
+**La colección de novela breve de la Editorial Municipal de Rosario es un catálogo de gemas escondidas y voces únicas.**
+
+1 de octubre de 2019 - Mesa de luz
+
+_por Quintín_
+
+Link original: https://laagenda.tumblr.com/post/188058523980/de-rosario-con-amor
+
+![](https://64.media.tumblr.com/60c9eeee870ade1dc49c1bc67d39cc7e/3b7fe1733e3fcbf1-7a/s500x750/8c292539498846e22ae2370a18c9ca8316f970c7.jpg)Soy un admirador de la Editorial Municipal de Rosario. Aprecio sus descubrimientos, el diseño y la calidad de sus ediciones. Solo tengo en contra de la “:e(m)r;” (un brillante logo tipográfico, de paso) la escasa visibilidad de sus títulos en Buenos Aires. En la última Feria de Editores pude hablar un rato con el director de la :e(m)r;, el escritor Oscar Taborda, poeta y narrador, autor de *40 watts* y de *Las carnes se asan al aire libre*, que alguna vez creo haber comentado. Con Taborda pude hablar de una colección que me gusta particularmente, la dedicada a la novela corta, una serie de pequeños libros que, según me explicó están orientados a los narradores del litoral, una zona de la literatura argentina muy poco difundida. No conozco el catálogo de la colección (la página web no es muy clara en ese sentido, solo hay una foto donde los libros se superponen entre sí), pero hace unos meses comenté aquí *Tambor de arranque*, una novela más que interesante de Francisco Bitar. Ahora tengo en mis manos tres nouvelles de la serie, que paso a comentar en orden creciente de preferencia. 
+
+
+
+
+### *Vacas*, de Belén Sigot (:e(m)r;)
+
+Vacas ganó el concurso regional de nouvelles 2017 y el jurado, compuesto por Vera Giaconi, Alan Pauls y Luis Sagasti, dice en la contratapa que el relato “construido a partir de un mosaico de historias donde lo siniestro constituye el delicado nervio que las enlaza, elabora un fresco sobre el sentido de lo ominoso en una comunidad rural”. Esa comunidad es Pronunciamiento, un pequeño pueblo en el centro de Entre Ríos, más cerca del Uruguay que del Paraná y de Concepción del Uruguay que de Colón, en el que la autora nació en 1979. El libro comienza con una cita de Kincón de Miguel Briante: “La imaginación de la gente en estos pueblos es feroz”. 
+
+
+La justificación del jurado y la frase de Briante son una buena síntesis de *Vacas*, a la que habría que agregar que la prosa de Sigot es pulida, precisa y suelta y utiliza un habla cotidiana armoniosa. El estilo, que tiene su propia cadencia y una decorosa gracia, es más o menos así: “Cando la sombra se le vino desde el montecito, le pareció que era un hombre, pero cuando el bicho se paró en medio del camino y los faros del camión lo alumbraron, supo que eso no era hombre ni aguará ni mono ni nada que él hubiese sabido decir que carajo era”. 
+
+
+![](https://64.media.tumblr.com/c1c02b6086dfe928e7ba788e7c144ad1/3b7fe1733e3fcbf1-50/s250x400/d9a0882120b2c8a61bc0a084f6958bfd029742a4.png)La frase es parte de esa recorrida por lo siniestro de la que habla Vacas, y que incluye animales mutilados, luces extrañas, presencias inexplicables y un cierto registro fantástico, que bien puede ser el resultado de esa feroz imaginación de los pobladores, en buena medida descendientes de los franceses que poblaron la zona y, con el tiempo, se dedicaron a la ganadería, al tambo, a la madera, a la cría de aves y a los pequeños cultivos. La novela tiene dos partes implícitas. En la primera, esa vida económica es el telón de fondo para las vacas que aparecen misteriosamente desprovistas de algunos órganos como si las hubiera operado un cirujano experto, fenómeno que se complementa con la presunta presencia de platos voladores. Por otro lado, los vecinos tienen sus historias, sus borracheras, sus cuernos, sus hechos de sangre propios de la picaresca de pueblo, con sus habitantes que obedecen indefectiblemente a un sobrenombre y habitan el costumbrismo que va de Payró a Landriscina. 
+
+
+Es como si esa primera parte correspondiera a una infancia más o menos arcaica, más o menos estable y más o menos simpática en la que lo fantástico crea un misterio, una inquietud que esquiva una mirada meramente vecinalista aunque los personajes sean queribles como parte de una comunidad sin grandes contradicciones ni enemistades. Pero, como si de pronto se echara a andar el motor de la Historia, Sigot introduce en Pronunciamiento el maniqueísmo. Al principio, el doctor Urich representaba a un alemán extravagante que embalsamaba bichos y ejercía de un modo más o menos irregular la medicina (incluyendo tal vez el aborto). Pero un día, Urich desaparece del pueblo y, años más tarde, llega un grandote rubio que se le parece y responde al nombre de Noordember, hombre culto que vive aislado en el campo, sabe de medicina, ayuda a los vecinos en lo que puede y se revela como un militante comunista, que organiza a los trabajadores y desafía a los propietarios. Se termina sabiendo también que Urich ha tenido algo que ver con la guerrilla, pero también que, después de una inundación, la actividad principal de los productores rurales de Pronunciamiento pasó a ser el cultivo de soja, que trajo consigo enfermedades misteriosas y letales. Es como si las primeras páginas del libro fueran una trampa tendida por Sigot a los lectores, al ser amable con gente que merecerá después su desprecio, mientras que Noordember y Urich se convertirán en héroes positivos. Al mismo tiempo, la tierra pasará a estar infectada, usurpada por la soja y un modo de la modernidad peligroso y repudiable. *Vacas* empieza siendo fantástica y costumbrista, pero vira hacia el ecologismo, las reivindicaciones sociales y se sitúa por encima de sus criaturas (salvo las que comulgan con la causa). Hay en la novela un Emilio Sigot, que se llama como la autora, que un día cena en casa de Noordember y se convierte en el pasador del mensaje que la novela termina adoptando. Después de estas mutaciones, *Vacas* se hace más chata, más previsible, más sentenciosa. Ese viraje, que parece dictado por lo ideológico, es también el modo que Sigot encuentra para alejarse de las historias que al principio describe con otra cercanía, con otra calidez, con otro humor. Cuando lo siniestro se revela como mortuorio, la literatura abandona lo abierto y queda atrapada en las consignas del siglo. Es cierto que la narración se redondea y adquiere un sentido retrospectivo y le confiere solidez. Pero no sé si eso es lo mejor que podría pasarle cuando decide ponerse seria.
+
+
+### *La mujer camello*, de Manuel López de Tejada (:e(m)r;)
+
+Esta novela fue finalista del Concurso Regional de Nouvelle 2018 y se publicó en enero de este año. López de Tejada, nació en 1959 y tiene varias novelas publicadas, aunque la más nueva tiene casi dos décadas. No las he leído, pero su reaparición me hace preguntarme qué clase de escritor era antes, porque *La mujer camello* tiene el perfume de lo inclasificable. Un científico decide fusionar a su mujer con un camello, en un experimento del que no se entiende bien el propósito. Aparentemente, la mujer quedará acostada arriba del camello, cuyas jorobas han sido reemplazadas por sus senos. Bueno, algo así. La idea es que el híbrido funcionará perfectamente como un ser único, en el que uno solo de los forzados socios deberá comer o pensar, aunque las cosas se terminan complicando un poco. 
+
+
+Me animo a decir que *La mujer camello* tiene tres características notables. Es desopilante, es ingeniosa y es precisa. Es decir, que el disparate que describe es impecable en su lógica interna y su comicidad es arrolladora. Narrada en primera persona por el sabio loco, este cuenta cómo lleva a su mujer (mucho más joven que él) a una pequeña isla del Caribe, donde solo vive el matrimonio con dos empleados. Allí la engaña hasta que llega la hora de dormirla y operarla, mientras el camello aguarda en el establo. El relato sugiere que el protagonista tienen el síntoma del viejo casado con una joven hermosa y que todo es consecuencia de los celos. Pero también de su megalomanía, que lo lleva a pretender que el experimento le dará una fama imperecedera en los anales de la ciencia.
+
+
+![](https://64.media.tumblr.com/693d9eaa46f4eb5d93924874576b3995/3b7fe1733e3fcbf1-91/s250x400/5f2203d975664c5d82720f037ba423bf61c2a3ef.jpg)Muy breve (apenas 70 páginas), *La mujer camello* invita a deslizarse felizmente por su delirio razonado. Se parece un poco a Kafka, cuyas ficciones fantásticas resisten la interpretación y dejan al lector acongojado frente a su propia aceptación de lo imposible. Es mejor recomendar este libro que contarlo y vale la pena evitar los spoilers para no privar al lector del placer de adentrarse en esta perfecta aventura literaria.
+
+
+### *El mosto y la queresa*, de Mario Castells (:e(m)r;)
+
+La nouvelle ganó el concurso en 2012 (Jurado: Gabriela Cabezón Cámara, Sergio Chejfec, Damián Ríos), cuando estaba restringido a la provincia de Santa Fe. Se publicó en 2012 y se reeditó en 2016. No es una exageración calificarlo como un libro clásico. Castells nació en Rosario de padres paraguayos y *El mosto y la queresa* está escrito en una lengua híbrida, que no es el castellano ni tampoco el guaraní, sino algo más complejo, que el autor explica antes del glosario que figura al final del libro. Copio: “He tratado de zanjar en la escritura una serie de problemas que atañen a la complejidad surgida por la interpenetración de estas lenguas en el habla, no sé con qué éxito. A esta complejidad (de hispanismos en guaraní y guaranismos en castellano), se le suma una serie de arcaísmos del castellano y un tímido intento de aprehender el nuevo jopara (variante muy popular del guaraní paraguayo, marcada por su avanzada castellanización a nivel de léxico y que no es más que el fondo que remonta a la superficie de la relación de tensión y beligerancia entre ambos territorios lingüísticos)”. 
+
+
+Tener a disposición dos lenguas y, más que eso, la compleja interacción entre ambas que las convierte en tres o en cuatro o en cien, sitúan la escritura en una especie de vergel, donde se multiplican las maneras de expresarse, los juegos entre idiomas y las variantes narrativas según la forma lingüística que se utilice. Así, si se hace con inteligencia y con gracia (más que apostando a un academicismo imposible), al lector (aun al hispanohablante exclusivo) se le ofrece la posibilidad de compenetrarse con una música tan familiar como desconocida. 
+
+
+![](https://64.media.tumblr.com/ec491a1c1fc1a6c4f843a839fa180db5/3b7fe1733e3fcbf1-6b/s250x400/f259a3ef6cb74d828f578bc5fd5ca0afdbc8f067.png)Es lo que hace Castells con la ayuda del glosario pero, sobre todo, con las aclaraciones que permiten seguir la lectura sin consultarlo: narra con la coquetería del que dispone de una variedad de adornos y vestimentas como las que el protagonista, Emigdio Rivarola, un joven galán muy querido por su madre pero amante del trago y la pendencia, luce cuando se prepara para visitar a sus novias. El libro alterna las lenguas pero no altera el placer de seguir las andanzas y las desventuras de Emigdio narradas por su hermano menor, que un día lo verá partir hacia la Argentina, donde terminará él también rehaciendo su vida y adaptado a una nueva realidad. Pero, mientras tanto, seguiremos las peripecias del héroe que sufre por amor, por celos, por despecho social en una aldea del Paraguay rural y feudal de los ochenta. Con ecos del Martín Fierro y de Los novios de Manzoni, El mosto y la queresa es una novela divertida, encantadora y caliente como los amores del héroe y libre con respecto al lenguaje como Emigdio lo es en sus costumbres de seductor irresponsable y enamoradizo. El libro (y por eso también es un clásico) narra el final de un mundo primitivo y local pero de una rara consistencia y también de una relativa armonía que no es la de la nostalgia por el pasado y la precariedad de una sociedad atravesada de contratiempos e inequidades (la de los años ochenta, en las postrimerías del eterno régimen de Stroessner), sino por un territorio profundamente amado por el que escribe en dos lenguas, pero también accesible para el que lee en una sola. *El mosto y la queresa* no inventa un partido de los justos y, cuando la inundación se lleva todo, la naturaleza resulta más aterradora y profunda que los desórdenes humanos. Pero el caudal de la vida termina desembocando en otra parte, en este caso en la madurez que los protagonistas viven en otro suelo en el que conservan la devoción por el país de la infancia. 
+
+
+  
+
+
+
+
+---
+
+Quintín
+-------
+
+ Quintín es fundador de la revista El Amante y ex director del Bafici. Vive en San Clemente del Tuyú. En Twitter es [@quintinLLP](https://twitter.com/quintinLLP)
+

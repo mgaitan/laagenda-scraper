@@ -1,0 +1,48 @@
+# Estado de gracia
+
+**Poeta y crítico literario, en**
+
+4 de septiembre de 2018 - Libros
+
+_por Gustavo Álvarez Núñez_
+
+Link original: https://laagenda.tumblr.com/post/177708458375/libros-estado-de-gracia
+
+![](https://64.media.tumblr.com/84d9e11c32b73aaec286c5129f4e586c/tumblr_inline_pelvdc8Gs01t6q87u_500.jpg)
+¿Dónde da comienzo el poeta, dónde el crítico literario y en dónde surge el docente? Como un dilema que en vez de paralizarlo lo atraviesa y lo empodera, Carlos Battilana (Paso de los Libres, Corrientes, 1964) recoge en *El empleo del tiempo (poesía y contingencia)* una colección de ensayos donde se cruzan glorias de la poesía (Rubén Darío, César Vallejo, José Martí) con voces no tan canonizadas (Liliana Ponce, Jorge Leónidas Escudero, Juan Manuel Inchauspe), lecturas refrescantes sobre Luis Alberto Spinetta y los hermanos Homero y Virgilio Expósito con un maravilloso testimonio de su amor por los colores del club San Lorenzo de Almagro.
+
+Sin embargo, si algo sobresale a lo largo de estas 190 páginas es el registro con el que Battilana –docente de Literatura Latinoamericana en la Universidad de Buenos Aires– bucea en objetos, conceptos y personalidades, vastos y disímiles. En ese tono entre afable y concreto descansa la lucidez con que aborda las diversas aristas que tienen a la poesía como faro casi excluyente. Y sin necesidad de citar al polaco Witold Gombrowicz y su aversión a que el tratamiento de la poesía se haga en términos poéticos, Battilana, más que arremeter, abre los brazos a los vientos de un compromiso ancestral, si ancestral es la vida de una persona para quien la poesía siempre estuvo presente.
+
+“Cuando empecé a estudiar en Puan, la gente decía que si estudiabas Letras no podías escribir poesía. Como un axioma. Pero la poesía siempre estuvo presente en mi vida. Lejos de la solemnidad aunque sí como una experiencia real. Además, posiblemente si no hubiera pasado por las aulas de Puan, no hubiera conocido a Sor Juana, o no hubiera leído con detalle a Dante o a muchos autores magníficos. Estudiar es una posibilidad más, no es una receta para ser poeta”, alega el autor de *El fin del verano* (1999) una tarde de invierno en un bar del bajo porteño con un café mediante.
+
+Y profundiza sobre su búsqueda poética: “En mi búsqueda poética, creo que lo que escribí estuvo a contracorriente de la poesía maldita, la figura del poeta como una figura transgresora. Si leen mis poemas, hablo de cosas que en ese momento no lo eran… Digamos, la experiencia de los hijos, de lo cotidiano, eso para mí era totalmente poético. Sin embargo, no en el sentido de registrar eso en términos de una experiencia o de una poesía que dé cuenta del momento, sino una poesía de mi subjetividad.”
+
+*El empleo del tiempo*, en ese punto, en cuanto reservorio de una subjetividad, traza en su acumulación un balance saludable entre los textos académicos (testimonios de presentaciones en congresos y jornadas, como los ensayos “El cuerpo docente” y “¿Cómo conocí a Rubén Darío?”) y las colaboraciones periodísticas (“Liliana Ponce: lugares inexplorados” o “Juan Manuel Inchauspe: actos mínimos”, entre otros, ilustran el cometido), un gesto amplio si se trata de intervenir en el campo de la poesía dura y pura. 
+
+¿De qué modo formatea a su cabeza una persona como vos para que cada práctica no se vea invadida por la otra?, le pregunto. Battilana me dice: “Durante mucho tiempo la poesía fue lo que me constituyó para poder pensar, para poder escribir. Es decir, el ensayo es una extensión del discurso poético. Siempre me gustó la teoría romántica que decía que la crítica es una suerte de despliegue del discurso poético. Siempre hay un germen crítico en el poema para que haya crítica. Sin embargo, no en el sentido del registro –no es que voy a escribir poéticamente–, sino que voy a hacer un despliegue de ese germen. Hoy para un poeta joven es natural escribir ensayos. Los últimos años tuve la suerte de publicar algunos ensayos, poesía, etc. Pero no fue una suerte de trabajo actual, sino que se fue armando a lo largo del tiempo”. 
+
+![](https://64.media.tumblr.com/84d9e11c32b73aaec286c5129f4e586c/tumblr_inline_pelvdc8Gs01t6q87u_500.jpg)Con cada nuevo libro Battilana confirma su atrapante madurez. A la hora de desplegar nombres que convergen en *El empleo del tiempo*, hay como un gesto deliberado en el recorte de ciertos poetas, una actitud por recostarse en voces no canonizadas o institucionalizadas, voces olvidadas o aún no sumamente reconocidas. Battilana se ataja: “No es deliberado, o sí… pero me interesan realmente esos poetas. No es un gesto. Me interesa, por ejemplo, Estela Figueroa. Siempre me gustó. Ahora tiene cierta consagración, es una poeta que es realmente de la transparencia. Ha gravitado en mi pensamiento, en lo que yo escribo. Liliana Ponce es muy buena. Escribe mucho y publica poco. Ese gesto es interesante. Jorge Leónidas Escudero es buenísimo, es un poeta que empezó a publicar a los 50 años, es impresionante. De algún modo, construye sobre el margen del canon. Creo que en el libro logré constituir una genealogía de autores que en el ámbito tienen cierta circulación pero no están en la élite. En cada uno de ellos hay una reserva de sentidos que van a decir algo”. 
+
+Uno de los rasgos que la poesía de Battilana ha apuntalado desde que publicó en 1992 *Unos días* es el de la transparencia. Un Everest desde el que su escritura ha modelado un acercamiento vibrante a hechos anodinos pero dotados de una urgencia y una belleza sumamente incandescentes. Ante esto, él tiene algo que decir: “La idea de sencillez en la poesía, ¿qué significa? Es un artificio. Pensar en la sencillez del lenguaje es un trabajo que me resulta totalmente fascinante. Alguien que construye desde la transparencia, con palabras convencionales que usamos todos los días, es algo que me atrae. Hay cierta afección física cuando algo me conmueve de un poema. Ahí se produce una ruptura temporal y reconozco en ese instante que el poema es bueno. Me gusta mucho la poesía lírica atravesada de materialidad. Esa combustión me interesa. Me gustan muchos poetas así, que puedan comunicar, que es lo más difícil, con palabras que tengan que ver con una suerte de convención pero que haya una torsión en el poema”. 
+
+En ese rescate de voces no tan consagradas a lo largo de *El empleo del tiempo*, uno lee también puentes con ese embeleso por la transparencia que cimienta su obra, una intimidad que, más que pontificar morbo, destila una sabiduría taciturna y acogedora. Una sabiduría que remite a la paciente construcción de un imaginario al costado del camino, una lateralidad que se ha fortalecido con lecturas y más lecturas. El autor de libros imprescindibles como *Narración* (2013) o *Un western del frío* (2015, que contiene el hit “El dulce porvenir”, cuyo inicio es trepidante y ginsberiano: `Cuando los mejores poetas de mi generación / curtidos por las drogas / la grasa y el vino excesivo / están haciendo pie / y pueden usar la palabra templanza / con toda propiedad´”) rememora: “En la época en que me reunía con los poetas de La Mineta –el núcleo duro de ese grupo confluyó luego en la revista 18 Whiskys–, yo leía mucha poesía italiana. Y cuando conocí la poesía norteamericana, a poetas como William Carlos Williams, pensé: `Qué buena ésta combinación del nihilismo y lirismo de tono bajo de la poesía italiana con cierto realismo objetivista ´. Sucedió algo similar con cierta experiencia carveriana al cruzarla con la mínima expresión de Giuseppe Ungaretti. Cosas así. Como un posible laboratorio. Esa experiencia de fines de los años 80 y parte del 90 fue interesante. Allí se congregaron poetas muy buenos como Durand, Casas, Edwards, Villa… De todos modos, mi participación era lateral y esa lateralidad fue a lo largo del tiempo un rasgo mío en todos los ámbitos. Creo que más que nada era un oxígeno”.
+
+El café ya se terminó y si bien tengo ganas de continuar ahondando en los hallazgos de *El empleo del tiempo*, las ocupaciones familiares nos exigen un final. Entonces, para finalizar, le pido a Battilana que se permita explorar el concepto de “acontecimiento poético” al que ha hecho mención varias veces en nuestra conversación: “En la primera parte del libro, que es un poco autobiográfica, el punto en común de todos esos artículos era que tenía que haber algo que fuera un acontecimiento poético, algo donde gravitara el orden de lo poético. Un ensayo como “Boedo”, donde hablo de San Lorenzo, trata de un poema que canta la hinchada, registro eso como algo poético. O, por ejemplo, cuando hablo sobre Expósito y Goyeneche, o hablo de mi hijo, ese era el alineamiento”.
+
+La reciente publicación de *Una mañana boreal* (hermosa edición del sello platense Club Hem que comparte con la mendocina Mercedes Araujo, *Así es el fuego*) corrobora algo que está en el aire en el ambiente de la poesía: Carlos Battilana está en estado de gracia. Cada libro que ve la luz confirma una vez más su atrapante madurez. Uno lo escucha y siente que está ante un poeta. Un poeta, a secas. Una voz. ¿Cómo es encontrar una voz? Tal vez es una pregunta que Battilana reescribirá cada mañana en que se enfrente al paraíso en la tierra que es la escritura para poetas de su talla. 
+
+  
+
+
+***Fotos: Hernán Rojas***  
+
+
+
+
+---
+
+ Gustavo Álvarez Núñez
+----------------------
+
+ Gustavo Álvarez Núñez es periodista, músico y poeta. Fue director editorial de *Los Inrockuptibles*. Publicó *Vidas epifánicas* (Mansalva, 2015) y cuatro libros de poemas. En 2016, bajo el alias de GAN, lanzó el álbum *Tierra baldía*. En Twitter es [@ganposta](https://twitter.com/ganposta?lang=es) 
+

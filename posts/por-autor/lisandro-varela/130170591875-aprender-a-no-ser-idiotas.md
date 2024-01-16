@@ -1,0 +1,1 @@
+../../130170591875-aprender-a-no-ser-idiotas.md

@@ -1,0 +1,348 @@
+# La escuela de la ruta
+
+**Un viaje de Bahia a Buenos Aires con El Negro en el Minino, su camión, entre mates y conversaciones, en busca de algo que quizás no quería encontrar.**
+
+23 de febrero de 2020 - Diario del domingo
+
+_por Mayra Arena_
+
+Link original: https://laagenda.tumblr.com/post/190981136355/diario-del-domingo-la-escuela-de
+
+![](https://64.media.tumblr.com/c6c9bbdc4aac4a94ef3da7cc80f35b03/425603aa50b41da2-b8/s500x750/80253efdc274fc79c1dbfcfb5b3d003ff3d8f3ea.jpg)**Martes**
+
+Estaba terminando de poner el lavarropas y justo me escribió el Negro, diciéndome
+si no lo acompañaba a Buenos Aires a descargar pescado en el Wal-Mart. El Negro
+es mi amigo más querido. Es camionero y, según dice, no podría dedicarse a otra
+cosa. Debe venir de San Antonio y, como pasa por Bahía, me junta en el Minino y
+lo acompaño. El Minino es el camión del Negro. Lo trata como si fuera un humano
+y lo mima como si fuese una mascota.
+
+El Negro es quince años mayor que yo, pero aparenta mucho más y cualquiera
+podría pensar que es mi viejo. Su vida entera pasa por su oficio. Ante
+cualquier cosa que vos le comentes, él te dice que no tiene idea, que él es
+camionero. Así y todo, las conversaciones más interesantes siempre las tengo
+con él y con Ruly, el amigo que nos presentó y con el que, cuando podemos
+coincidir, nos juntamos a comer. Hemos hecho varios viajes en los que le cebo
+mate calentando agua en la garrafita que lleva ahí mismo y filosofamos a lo
+pavote. 
+
+Feliz de que me agarre justo en mi día franco, le digo que pase y le
+pregunto si compro algo. Al pedo, porque jamás me dejaría poner un mango en
+nada. Su machismo de hombre rudo de la vieja escuela no se lo permite, es más
+fuerte que él. Pongo música y me meto a bañar porque en una hora me dijo que
+estaba acá y sabe ser puntual.
+
+Llega y estaciona al Minino en mi vereda. Reconocería el motor de ese
+camión entre mil camiones del mismo modelo. Mis vecinos ya lo conocen y le
+tienen algo de cariño, tiene esa simpatía natural de tipo que no le puede caer
+mal a nadie. Salgo justo cuando pega el salto y, ya en la calle, saluda a mi
+vecino de enfrente. Me da un abrazo tan fuerte que me ahoga un poco. 
+
+—Estás flaquitooo —le digo con tono de Susana Giménez.
+
+—Es que estoy haciendo la dieta de la mandarina —bromea. El Negro come
+más mandarinas que cualquier humano promedio y en esta época del año sabe tener
+siempre una bolsa con dos o tres kilos. No es flaco (creo que nunca lo será)
+pero para su corpulencia natural está delgado.
+
+—¿Cómo venís? ¿Querés pasar al baño?
+
+El Negro tiene una sola delicadeza: no caga en otro baño que no sea el
+suyo. Imaginate lo que sufre con los viajes largos, con lo que morfa y las
+cantidades de mate que consume. Aguanta lo que sea, pero, desde una vuelta que
+veníamos desde Comodoro y que no pudo más, pasó al baño de mi casa y después
+estuvo jodiendo un mes con que sentía “algo raro ahí”. Después se le pasó y de
+ahí en más, se permitió pasar al baño de mi casa, jurándome que ni en la casa
+de sus amantes gozaba esa confianza. 
+
+—Paso a cargar agua para el mate y rajamos. ¿Vos estás lista?
+
+—Sí, ya preparé agua, pero cargá el tuyo también así tenemos los dos —le
+señalo su termo. 
+
+Preparamos las cosas rápido y subimos al Minino. 
+
+—¿Cómo anda? —le pregunto por el camión. Ya me había acostumbrado a
+tratarlo como a una persona, como con esos amigos que tienen mascota y cuando
+los visitás estás obligado a acariciarlas.
+
+—Fenómeno, como siempre. El mes pasado lo hice lavar en Brasil, ¿sabés
+cómo quedó?
+
+—Ah, puto, me venís a buscar para Buenos Aires pero a Brasil te llevás a
+otra.
+
+—No seas boluda, no puedo llevar a nadie afuera. Tá lleno de controles.
+
+—Ya sé, te estoy jodiendo. Hablando de eso cómo anda la última… ¿cómo
+era? ¿La Andrea?
+
+—Me pegó un boleo en el culo.
+
+—Paaa batiste récord. ¿Y ahora?
+
+El Negro se puso serio. 
+
+—Te tengo que contar algo, pero te vas a cagar de risa.
+
+Me lo dijo tan serio que supe que no me iba a reír. El Negro es un tipo
+que cree que la tragedia es motivo de risa y eso es lo que me hace quererlo
+tanto.
+
+—Contame boludo. 
+
+Ya estábamos en la 51 —el Negro maneja como los dioses— asi que saqué el
+mate y lo llené por la mitad. Puse la yerba a tres cuartos y la sacudí contra
+mi palma para sacarle el polvillo. Me iba a limpiar contra el asiento, por
+reflejo, pero al instante me ubiqué: le llego a hacer eso al Minino y el Negro
+me baja a patadas en medio de la ruta. 
+
+—Ahí hay servilletas —me señala el Negro que me vio desorientada con la
+mano sucia.
+
+Me limpio, cebo el primer mate y lo miro, esperando.
+
+—Estuve pensando en vender al Minino. 
+
+—¿QUÉ?
+
+—Es una idea nomás. No puedo ponerle un precio asi que capaz es sólo la
+idea.
+
+—Te enamoraste.
+
+—Soy incapaz
+
+—¿Estás enfermo? —le pregunté preocupada
+
+—Yo no me enfermo, lo sabés bien.
+
+—Bueno… ¿qué pasó? ¿Te querés dedicar a otra cosa?
+
+—Arena… Sólo dos actividades puede hacer el camionero, tomar mate y
+chupar conchas. No servimos para nada. Ni para manejar.
+
+Repetía esa frase tantas veces que se me venía a la cabeza cada vez que
+escuchaba la palabra camionero. Intentaba ahora decirla con el tono jocoso de
+siempre, pero estaba distinto, algo le pasaba.
+
+—Bueno, contame así dejo de adivinar como una pelotuda.
+
+—Conocí una mina.
+
+—¡Viste!
+
+—No, no. Pará un poco. Es una piba bárbara… tuvo una vida jodida, medio
+así como la tuya.
+
+El Negro y sus mujeres rescatadas. Siempre que se enamoraba era de minas
+cascoteadas por la vida, y siempre soñaba rescatarlas de algo. De los ex
+maridos faloperos, de la miseria, de los vicios.
+
+—¿Y el Minino en qué molesta?
+
+—Es que no sé… Tantas horas acá arriba, mirando la nada… Es una mina tan
+piola, te caería bien —me miró por un segundo—. Y yo tengo ganas de estar con
+ella.
+
+—¿Eso no es estar enamorado? —le recriminé como si me debiera algo.
+
+—Yo no me enamoro más —me dijo
+sin sacar la vista de la ruta y me sentí para la mierda. En lugar de animarlo a
+que me cuente lo que le pasaba, lo corrí con reclamos. —Pero me gusta estar con
+ella… Y es una mina que ha sufrido tanto. 
+
+Era obvio que estaba hasta las manos, sino no pensaría en vender al Minino.
+Pensé en alentarlo, como corresponde, asi que me apoyé el termo en una pierna y
+mirando a la ruta, cambié totalmente el tono.
+
+—¿Te pondrías un negocito?
+
+—A ella le gusta la ropa. Quiere vender ropa en Buenos Aires. 
+
+—¿Es de allá? ¿Cómo la conociste? 
+
+El Negro chupó fuerte el mate e hizo ruido, ya no tenía agua. Me lo
+devolvió y se puso serio del todo.
+
+—La conocí en la calle —me dijo en tono bajo y entendí todo.
+
+—No va a ser ni la primera ni la última —minimicé.
+
+—No, más vale. A mí me chupa un huevo —movió el hombro como haciendo
+qué me importa y movía la cabeza, convencidísimo.
+
+Sonreí. Mi amigo estaba enamorado. No era la primera vez que andaba con
+una mina de la calle, ya había tenido otra que había conocido en White y le
+había pagado horriblemente mal. El Negro había vendido un 206 al contado y
+andaba con la plata arriba del Minino. Una vuelta fue a subirse y no estaba la
+plata. Y la flaca desapareció del mapa. Se cagó de risa un tiempo, pero en el
+fondo se había desilusionado fuerte porque en poco tiempo la había querido. El
+Negro es de corazón noble, confiado y terco como él solo. No le importaba la
+guita al punto que se le vencían los cheques sin cobrarlos. Pero siempre andaba
+buscando a la mujer de su vida, y se la confundía con cualquier loca que se le
+cruzaba.
+
+—Y bueno Negro, habrá que sentar cabeza.
+
+—Paraaa, tampoco me castrés. Yo a esta altura no me dejo gobernar por
+nadie.
+
+Me reí, pero no dije nada. El Negro era el hombre más pollerudo y
+gobernable de la tierra, pero con nosotros siempre se hacía el guapo. Lo
+dejábamos mentir, porque para qué son los amigos si no para dejar que te hagas
+el boludo con vos mismo.
+
+Llegamos a Azul y estacionamos en el paradorcito que está frente a la
+YPF. Ahí el agua para el mate es gratis y el café a los camioneros y
+colectiveros, no se les cobra. El Negro es recibido como alguien de la casa,
+como lo reciben en todas partes, porque es un tipazo con todas las letras. Lo
+miro e intento imaginarme a la mujer que lo conquistó. No lo toco ni amenazada,
+pero siento celos. Espero ganarme la confianza de esa mujer para no perder a mi
+amigo. Pasé al baño y cuando volví ya estaban cargados los termos. Saludamos y
+seguimos viaje. 
+
+—No entiendo cómo no meás.
+
+—Vejiga de camionero, Arenita. Contate algo, che. Me la pasé hablando
+yo.
+
+—No hay mucho para contar, parece que Grillo nos va a dar un franco más.
+
+—¿No sabe que los patrones no van al cielo?
+
+—Parece que él quiere ser el primero.
+
+Grillo es el dueño del restorán donde laburo hace tres años. Es un tipo
+de clase media que se nota que viene de abajo, respetuoso con las mujeres (al
+punto de la frialdad) y algo más amable con mis compañeros varones. A la hora
+de pagar es cumplidor como él solo y siempre tiene en cuenta las cosas que
+otros patrones ni registran. Cuando cerramos caja muy tarde se asegura de
+llevarnos a las que no tenemos movilidad y cuando alguno se enferma o tiene un
+problema nos pregunta cómo andamos de guita. Es piola, aunque por ser mina no
+habla conmigo como lo hace con mis compañeros, y eso me hincha un poco las
+pelotas.
+
+Seguimos charlando con el Negro de mi laburo, del estudio, de su nueva
+mujer, y no quise sacarle de vuelta el tema de la venta del Minino porque se
+iba a volver a poner serio. Cayó la noche. Llegamos a Las Flores y paramos en
+la que para mí es la mejor parrilla del mundo y comimos como dos degenerados. Mientras
+se escarbaba los dientes con la punta del cuchillo (siempre hace eso el hijo de
+puta) el Negro miró para afuera por el ventanal y volvió a ponerse serio, más
+serio que al mediodía. Afuera estacionaba un Scania impresionante y pensé que
+le daba nostalgia pensar en la vida que iba a dejar atrás. Pero no. Del Scania
+se bajó una morochita, flaquita, de unos 23 o 24 años. Manejaba un flaco lungo
+y encorvado, con barba de una semana, y entraron abrazados. Si será chico el
+mundo, era la flaca por la que mi amigo estaba por cambiar de vida.
+
+—Hija de re mil putas —susurró el Negro mirándola fijo.
+
+Se sentaron en una mesa. El Negro los miraba y la flaca lo vio, pero hizo
+como si no lo conociera. Al Negro se le pusieron los ojos vidriosos. Apretaba
+los dientes. Se levantó violentamente y se acercó a la mesa donde estaban los
+dos. Se agachó a la altura de la mina y le dijo algo (yo pensé que la
+ahorcaba). Se fue para el baño. Imaginé que la mina saldría atrás, pero no lo
+hizo. No hizo nada. Yo me quedé petrificada por un rato hasta que pensé en ir a
+buscar al baño a mi amigo. Me metí en el baño de tipos. Atrás de la puertita
+podía ver los pies, el Negro estaba descompuesto, sentado en el inodoro. 
+
+—Negro ¿estás bien?
+
+—Ya salgo.
+
+Esperé en el pasillo. Salió y estaba serio como nunca. 
+
+—¿Vamos? —me dijo como si nada
+
+Pagó en el mostrador y yo me acerqué a nuestra mesa y agarré las pocas
+cosas que habían quedado ahí. Mi celular, mi billetera. Salí atrás de él. Miré
+a esos dos como si me hubieran traicionado a mí y nos subimos al Minino. El
+Negro manejó tan rápido que me agarró miedo, a pesar de que sé que se sabe esa
+ruta de memoria. 
+
+**Miércoles**
+
+Llegamos a Buenos Aires a las doce y media y el Negro armó las camas del
+Minino en silencio. Como siempre, me acosté en la de arriba, que es la más
+cómoda y el Negro me la cede como el caballero que es. Ninguno durmió, pero
+ninguno habló en ningún momento. A las seis y media ya había amanecido, hice
+unos mates y tomamos en silencio. Al rato descargamos en Wal-Mart y al Negro lo
+vieron serio. Era raro, porque es un tipo tan cálido que te dan ganas de que se
+quede siempre cerca tuyo. Uno de los muchachos me mira y se hace un círculo en
+la cara, y me señala con la mirada al Negro. Era su forma de preguntarme qué le
+pasaba. Le hice una seña negativa, para que no hiciera preguntas. Ya eran como
+las nueve cuando los muchachos habían descargado todo —mi única colaboración
+fue cebarles mate— y salimos para Bahía. 
+
+Al mediodía pasamos por Las Flores y ni se me ocurrió pedirle a mi amigo
+que paremos a comer, pese a que es casi una religión entre nosotros. Paramos
+recién en Olavarría y ya las tripas me hacían una orquesta. Fui al baño y a
+cargar los termos y compré unos sánguches de milanga. El Negro no se bajó del
+camión. Que te quieran en todos lados también puede ser una desgracia. 
+
+Al volver a la ruta me dormí y me desperté cuando veníamos por Pringles.
+Miré la hora y me di cuenta que tenía que ir directamente a laburar. Agarré un
+espejito que tiene el Negro (arriba del Minino hay todo lo necesario para
+vivir) y me acomodé un poco los pelos y la cara. No estaba tan demacrada como imaginaba
+y me alivió un poco. Las propinas se las debo a mi simpatía, pero la presencia
+juega mucho. 
+
+No habíamos hablado en todo el viaje y el silencio era inhumano. Yo no
+quería decir nada, cualquier cosa hubiera sido incómoda, pero no me quedó otra.
+Antes de que encare para mi casa, le señalé
+
+—Dejame en el cruce que tengo que ir directo al restorán. 
+
+Manejó las cuadras que faltaban y al estacionar se quedó mirando el
+volante. 
+
+—No soy un cagón —me dice.
+
+—Ya sé, boludo, qué decís.
+
+—No me voy a cagar la vida por dos soretes.
+
+—Ya lo sé. No vale la pena. 
+
+Le pongo la mano en la espalda y me abraza tan fuerte que casi me ahoga,
+otra vez. Lo abrazo tan fuerte que rompo la coraza que lo protege, y, por fin, se
+quiebra. Como si fuera un cartón al que le están echando agua, siento como se
+va desarmando en los brazos. Me pesa. Me quedo inmóvil, muda. Abrazándolo. Me
+empapa el hombro de mocos. 
+
+—Soy un pelotudo, soy un pelotudo.
+
+Yo no le digo nada. Me angustia tanto su tristeza que no puedo hablarle.
+Pensé en faltar al laburo y ofrecerle mi compañía, pero no lo hubiera aceptado.
+El Negro es muy macho como para reconocer que está mal y yo soy muy amiga suya como
+para ponerlo en evidencia. No había parado de llorar cuando siento que se le
+empieza a mover el esternón, como quien ríe a carcajadas y, efectivamente, se
+estaba cagando de risa mientras lloraba. Me corro para atrás, sacándole el
+hombro de la cara y lo miro, me mira y me río de su risa. 
+
+—¡Me hizo cagar en un baño público! ¡Pendeja hija de re mil putas! 
+
+Largo la carcajada con él y nos reímos a lo bestia de la desgracia de mi
+amigo. Le seco las lágrimas mientras solloza y se ríe y hace chistes con que
+puede sentir los bichos metiéndosele en el culo.
+
+—Tengo que entrar a laburar. Vas a estar bien —le digo confiada
+mientras le agarro la cara con las dos manos. Le beso la frente y me bajo, con
+cuidado, del Minino. 
+
+Llegué al laburo relativamente temprano, saludé y saqué mi delantal de
+donde lo dejo siempre. Me lo anudé al cuello y me puse a bajar las sillas de
+las mesas. Cuando terminé me puse a fajinar las copas y los cubiertos. Estuvo
+tranqui, ni siquiera llenamos adentro. Cuando voy a cobrarle a la mesa 18, encuentro
+a las dos parejas discutiendo sobre si ir o no a los baños públicos. Les sonrío,
+pero me siento algo incómoda. Es agobiante lo monótono que es este mundo.
+
+
+
+---
+
+ Mayra Arena
+------------
+
+ Nació en Bahía Blanca, en la indigencia, y es estudiante de la Universidad Nacional de Tres de Febrero en Ciencias Políticas. 
+

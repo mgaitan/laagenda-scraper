@@ -1,0 +1,1 @@
+../../632173637123915776-diario-del-domingo-técnica-de.md

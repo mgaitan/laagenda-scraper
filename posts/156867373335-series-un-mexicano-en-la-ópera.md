@@ -1,0 +1,34 @@
+# Sexo, drogas y filarmónica
+
+**Protagonizada por Gael García Bernal, arranca la tercera temporada de**
+
+6 de febrero de 2017 - Series
+
+_por Guillermo E. Pintos_
+
+Link original: https://laagenda.tumblr.com/post/156867373335/series-un-mexicano-en-la-%C3%B3pera
+
+![](https://64.media.tumblr.com/ab27748e41ff77918f976b617dca5759/tumblr_inline_pjzvq4MkxW1t6q87u_500.jpg)*Sexo, drogas y… música clásica*. Así se titula el libro de Blair Tindall, una díscola oboísta de la Filarmónica de Nueva York quien –como Anthony Bourdain en *Confesiones de un chef*— reveló el lado oscuro de su particular y misterioso ambiente. Por supuesto, el libro hizo ruido por sus historias de egos en pugna, anécdotas de alcoba y descontrol vividas al ritmo de *Allegro moderato*. Pero eso es nada comparado a lo que sucede ahora con su versión televisiva, *Mozart in The Jungle*, una serie que protagoniza el mexicano-casi argentino Gael García Bernal, con intensas apariciones del gran Malcom McDowell como su contracara. 
+
+La serie está producida y dirigida por los primos Roman Coppola y Jason Schwartman (respectivamente el hijo y el sobrino de Francis Ford), emitida por la plataforma de streaming de Amazon y difundida para Latinoamérica por la señal Fox Life (también está disponible en Foxplay.com). El viernes último a las 22.30hs, el pequeño acontecimiento para los fans fue el estreno de la tercera temporada de una de las series más disfrutables, factibles en ser *maratoneada* (cada capítulo dura unos 28 minutos), y que conserva un tono alegre y ligero pero nunca obvio, y mucho menos estereotipado. Y esto es así, sencillamente, porque retrata un mundo interior del que poco se conoce. El adelanto (nunca spoiler) indica que los primeros 5 capítulos de esta tercera temporada (la mitad, exactamente) se desarrolla en Venecia: el excéntrico maestro Rodrigo pretende recuperar para la canción a una diva de la ópera (interpretada por Mónica Bellucci). Pero la pasión que mueve a los músicos se encarga de poner trabas en su camino. En el mismo tramo, en la ciudad reina del Adriático también aparece Plácido Domingo, quien se interpreta a sí mismo. No es la única celebridad relacionada con el mundo de la música clásica que en esta temporada se incorporó a la nutrida lista de nombres que pasaron por la serie para reírse de sí mismos, y de la pompa y solemnidad con que la música clásica es percibida desde fuera. Un breve repaso incluye al prodigio chino Lang Lang, al reputado concertista Emanuel Ax y el violinista Joshua Bell “haciendo” de sí mismos, además de los actores Dermot Mulroney –como un violonchelista bon vivant– y Jason Schwartzman como un aspirante a cineasta.
+
+Protagonizada por García Bernal, *Mozart…* es una comedia dramática (*dramedy*) en donde Gael cumple el rol de Rodrigo de Sousa, un joven director-prodigio latino que se parece mucho a Gustavo Dudamel, umúsico y director venezolano que se dio a conocer al mundo con *El sistema*, el programa de educación musical abierto a niños y jóvenes de clases populares. Con gran talento y mucho carisma, Dudamel es hoy una estrella del mundo clásico, un “maestro” codiciado por las orquestas más famosas del mundo (Nueva York, Berlín entre ellas), y actualmente Director Artístico de la Filarmónica de Los Ángeles. Mucho de su historia personal flota en la trama de la serie, aunque como suele suceder con las ficciones, el componente “colorido” viene por otro lado. 
+
+En charla telefónica con La Agenda, Gael, que en 2015 ganó el Globo de Oro por su protagónico, admite que “nunca antes le había prestado atención a la música clásica, pero ahora ingresó como tema central en mis conversaciones con amigos como Alfonso Cuarón por ejemplo.” Sobre el paralelismo con Dudamel, el chico pobre que se educó en la música clásica y se reveló como un crack en el siglo XXI, matiza: “Gustavo resultó una decisiva inspiración para este papel, tanto como (Vittorio) Monti, Claudio Abbado, (Leonard) Bernstein y (Herbert von) Karajan ”, agrega el hombre que actualmente, cuenta, reparte su vida entre Nueva York, México y Buenos Aires (donde viven sus hijos, fruto de una relación ya concluida con la actriz Dolores Fonzi).
+
+![ganchos](https://64.media.tumblr.com/3ae38e9aef175031e802f72dc31bf0f9/tumblr_inline_pjzvq5tNzC1t6q87u_500.jpg)Gael admite que la música clásica se impuso como tema de conversación con sus amigos.El punto central de este cruce entre realidad y ficción sucedió a fines de julio de 2015, en el célebre Hollywood Bowl, cuando Dudamel cedió la batuta a García Bernal para dirigir la obertura de las *Bodas de Figaro*, interpretada por la Filarmónica de Los Ángeles, para una escena vista en la segunda temporada de la serie. La ficción se involucró en la realidad. “Admiro a Gael desde que lo vi en *Diarios de motocicleta*; ahora lo considero un amigo”, declaró Dudamel al diario *Los Angeles Times* en ocasión de aquella filmación. “Me gusta que la serie capte la atención de un público que tal vez no considera a la música clásica parte de sus vidas. Cuando pensamos en hacer un concierto con un repertorio de Mozart en el Hollywood Bowl, lo llamé a Gael y estuvimos hablando más de una hora. Y salió así, naturalmente.”
+
+Con ritmo narrativo-visual de un videoclip de música pop y con mucha ironía propia de los Coppola (Sofía también dirige algunos capítulos), la serie narra las vicisitudes de un joven mexicano puesto al frente de la Filarmónica de Nueva York y de cómo lidia a diario con sus demonios interiores, con los egos de sus músicos y con la visión monetarista del directorio de la fundación que solventa a la orquesta. Subyace en la trama, además, una historia de amor por ahora no concretada con la bella oboísta de la orquesta (Lola Kirke, hermana de Jemima, la chica drogona de *Girls*). A ojos argentinos, como plus, emerge una curiosidad: el personaje carga termo y mate para tomarse unos amargos en varias escenas. *“Para tenerlo contento tenés que calentar el agua justo antes del punto de ebullición”*, comenta uno de sus asistentes. “Ahí queda claro que ahora estoy más argentino que mexicano” bromea García Bernal sobre la cuestión. Pero hay más. En una escena de la segunda temporada hay un recuento de una gira latinoamericana de la orquesta. En Buenos Aires le preguntan, *“Maestro, ¿qué opina de Messi?”*. En elaborado porteño, el personaje de García Bernal responde con brillo poético en la mirada: *“Messi es el Paganini discreto del mediocampo.”* Aplausos.
+
+  
+
+
+
+
+---
+
+Guillermo E. Pintos
+-------------------
+
+ Guillermo E. Pintos es periodista. Licenciado en Comunicación Social, trabajó en Página/12, Muchmusic, Canal 13, Hola y Miradas al Sur. Colabora en Rolling Stone y [Silencio](http://www.silencio.com.ar/). Nativo de Olavarría, vecino de Villa Urquiza. En Twitter es [@guillepintosE](https://twitter.com/guillepintose)
+

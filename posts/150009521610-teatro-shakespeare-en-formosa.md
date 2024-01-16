@@ -1,0 +1,38 @@
+# Shakespeare en Formosa
+
+**Maruja Bustamante reestrena la obra que la consagró, cerrando así una etapa de acercamiento al teatro experimental.**
+
+6 de septiembre de 2016 - Escenarios
+
+_por Marina Yuszczuk_
+
+Link original: https://laagenda.tumblr.com/post/150009521610/teatro-shakespeare-en-formosa
+
+![](https://64.media.tumblr.com/90b2299c9d8fb5462674b66211508ce2/tumblr_inline_pjzydrzupp1t6q87u_500.jpg)*Adela está cazando patos*, Shakespeare en Formosa, fantasmas a la hora de la siesta o tu telenovela preferida vestida de punk. El domingo 21 de agosto se estrenó la remake de esta obra de Maruja Bustamante en Espacio Callejón, ahora toda vestida de un negro que no es precisamente luto. Maruja es una autora que siempre corre algún tipo de riesgo, ya sea de reducir al mínimo lo teatral en el teatro como en *Dios tenía algo guardado para nosotros*, hecha en buena medida de poesía, o de hacer comedia con el humor de Olmedo mezclado con el romanticismo de Elvis en *Oso*, que pudo verse a principios de este año en El Estepario.
+
+En esta obra, que se estrenó por primera vez en el Centro Cultural Rojas en 2007, el riesgo es el de trabajar con el material más conocido posible, el más trillado, revestido de un prestigio insuperable y a la vez, culturalmente ajeno. *Adela está cazando patos* es una especie de Hamlet travestido en el cuerpo de una pendeja enfurecida (y “pendeja” no es una cuestión de vulgaridad sino de lenguaje preciso). Pero la pretensión de ser herederos de una cultura universal acá no existe: Maruja Bustamante se mete con Shakespeare y lo lleva al norte argentino en tono de telenovela (¿no hay, después de todo, tanto de *shakespeareano* como de tragedia griega en cualquier telenovela, en la lenta filtración de esos materiales a través de los años y la cultura de masas?), con la figura del Padre convertido en un duende con tacos, que desfila entre el glam y lo queer.
+
+![ganchos](https://64.media.tumblr.com/3b30f4de53feff2021670875a15c7e31/tumblr_inline_pjzydrnRbj1t6q87u_500.jpg) Teñida por la pérdida, la obra no trata de fantasmas sino de energía punk.Adela (Bárbara Massó) está furiosa, con una furia que se puede sentir, que se transmite a todos sus movimientos y le tensa la mandíbula. Escopeta en mano, se dedica a practicar puntería con los patos de los alrededores a la espera de un destino más útil para sus escasas habilidades con el tiro. Como *La ciénaga* de Lucrecia Martel, la obra de Bustamante se organiza alrededor de una pileta (muy bien resuelta, con un pelotero de esferas negras, como el centro de una fiesta negativa), donde una familia de rencorosos y villanos se refresca los calores, toma limonada y maltrata a la servidumbre, como corresponde al género (ya saben, los ricos también lloran pero no piden permiso). Hay una madrastra que es casi bruja de cuentos de hadas (Paula Schiavon), una mejor amiga enamorada de Adela, destinada a convertirse ante el rechazo en una especie de Ofelia (Yanina Gruden), un hermano que simula sentimientos fraternos pero resulta tan volátil como mujeriego (Diego Benedetto), y un sirviente dulce y bonachón (Julián Chertkoff), que se crió con Adela y su hermano, y aporta esa nota de amor entre clases irresistible –él, que es el único que parece tener un corazón puro–.
+
+Y luego, las grandes figuras masculinas, tan antagónicas en sus sexualidades como en el porte físico: el Chakal (Ariel Pérez de María), abundante y amenazador, con una clase de lujuria que se regodea por igual en las mujeres y las picadas de campo (el momento en que roza la espalda de Adela y recuerda el escote de su vestido de 15 es casi intolerable), pero sabe cantar seductoramente con voz cálida, y el padre de Adela, Pupuni (Luis de Almeida), que merece un comentario aparte. Híper maquillado en fucsia hasta la coronilla, con el cuerpo retorcido sobre unos tacos que lleva con dificultad y envuelto en una especie de velo negro de vedette, el padre murió en un boliche en circunstancias misteriosas, cuyos matices gay no invalidan, para la hija, la suprema necesidad de encontrar la verdad y tomar venganza.
+
+Así de grotesco, al tiempo que fiestero y cariñoso, el padre se le aparece a Adela en sueños a la hora de la siesta bajo la forma del Yasy-Yateré, ese duende de la mitología guaraní que recorre los campos para atraer a los niños, y acá solo quiere que la hija descubra la verdad sobre su muerte. Ese descubrimiento será, también, el de la verdad sobre su padre en vida, como punto de inflexión determinante para cualquier adolescente: el momento de saber que el padre no es lo que se creía sino otra cosa. Se trata de mirarlo con ojos nuevos y poder asumirlo como propio, en esa negociación ambigua entre el rechazo y el orgullo de conquistar el propio lugar en la cadena que anuda las generaciones.
+
+![ganchos](https://64.media.tumblr.com/e97e66d15b11240aa90456ae52a8b2db/tumblr_inline_pjzyds3gOr1t6q87u_500.jpg) Maruja se mete con Shakespeare y lo lleva al norte argentino en tono de telenovela.Aunque esté teñido por la pérdida, el más allá de *Adela está cazando patos* no trata de fantasmas melancólicos sino de energía punk, y así lo muestran en un momento Olivia y Pupuni mientras cantan “Pet Sematary” de los Ramones, y hacen de la tragedia de Shakespeare un estallido que tiene mucho que ver con ser joven, que todo te parezca una mierda y estar muy enojado. Y al mismo tiempo, hacen de lo dramático una experiencia atravesada por la energía de un recital punk, que sólo puede expresarse como ese grito que se funde con la música hasta que cantar y gritar sean una misma cosa. 
+
+Ese tipo de mezcla, o mezcolanza, por qué no –Shakespeare con los Ramones y “María va”, el territorio y el idioma guaraníes con la ciencia ficción en *Paraná Pora*, la música romántica y aterciopelada con el machismo más ramplón en *Oso*– es una marca de estilo de Maruja Bustamante desde ésta, que no es su primera obra, pero sí la primera que le dio notoriedad (de hecho, por la misma razón un fragmento de *Adela está cazando patos* se pone en escena en *Maruja enamorada*, el biodrama de Vivi Tellas y Bustamante en el que convertirse en escritora y directora de teatro representa quizás el mayor cambio y el más grande amor en la vida de Maruja).
+
+Parte del sentido de reponer la tragedia de Adela tiene que ver con marcar el cierre de una etapa, en cierta forma, de estos primeros años de una dramaturgia que lentamente se fue acercando a un territorio más experimental, como lo demostraron *Oso* y otras obras recientes que no trabajan con la peripecia. Todos los artistas que valen la pena tienen que destruir su propia máquina en algún momento; pero no todos se atreven, quizá porque ese cambio implica, a veces, asomarse al vacío. Maruja Bustamante está en ese trance, que todavía envuelve un montón de preguntas y ninguna respuesta, y lo explica así: “Creo que tengo que pensar si me interesa la peripecia o no, qué entiendo por tensión dramática, a quién le aporta la progresión en términos de acción. Siento que las obras de teatro son como reliquias, artesanías, ¿se estarán acercando a la ópera? ¿A una especie de muestra museística? ¿Debe tomar nuevas formas la escritura? O incluso, ¿debe seguir existiendo? ¿Qué pasa con la velocidad de la contemporaneidad y la escucha? ¿Y con la lectura? ¿Y la escritura detallada? ¿Y los discursos largos? ¿Hay espacio para poder comunicar algo de este modo? ¿Cómo se hace para revalorar el encuentro (lo único novedoso que le queda al teatro) en un presente virtual? No sé, tengo preguntas a resolver… que me angustian”.
+
+  
+
+
+
+
+---
+
+Marina Yuszczuk
+---------------
+
+ Marina Yuszczuk es escritora y doctora en Letras. Escribe en Página/12.En Twitter es [@myuszczuk](https://twitter.com/myuszczuk) 
+

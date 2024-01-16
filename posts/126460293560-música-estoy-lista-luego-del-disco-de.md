@@ -1,0 +1,46 @@
+# Estoy lista
+
+**Natalia Lafourcade ya no es aquella niña.**
+
+14 de agosto de 2015 - Música
+
+_por Micaela Ortelli_
+
+Link original: https://laagenda.tumblr.com/post/126460293560/m%C3%BAsica-estoy-lista-luego-del-disco-de
+
+![natalia](https://64.media.tumblr.com/6303c8803a919e4254c9022c2c87c61c/tumblr_inline_pjzzyf0D1C1t6q87u_500.jpg)Los 30 pueden ser sólo un número o todo un proceso de renovación de escamas. En 2002, cuando tenía 18 años, Natalia Lafourcade cruzó las fronteras de México con su hit “En el 2000”, donde decía buscar “un cerebro inteligente que no se emborrache el viernes”, y aseguraba no ser más una criatura inocente: “La de ese cuerpo extraño ahora siente el corazón”, cantaba vestida de rosa con cuellito, anteojos de sol de marco blanco, rodetes, labios oscuros y la guitarra colgada (una excepción entre las chicas pop del momento; Shakira, por ejemplo, ya se había quitado la suya, teñido de rubio y empezado 
+
+
+![natalia](https://64.media.tumblr.com/6303c8803a919e4254c9022c2c87c61c/tumblr_inline_pjzzyf0D1C1t6q87u_250.jpg)*La Raíz*En el medio sucedieron, entre otras cosas, distintas formas de amor. El resultado de una de ellas –el disco homenaje al músico y poeta Agustín Lara– merecidamente le devolvió a Natalia la atención de los países vecinos, que en gran medida la habían perdido de vista al comienzo de la era digital. Todo empezó en 2010 cuando la invitaron a cantar en los festejos por el Bicentenario en el DF, y buscando compositores célebres para rendir tributo, se reencontró con esos boleros que conocía por ósmosis, por el simple hecho de ser mexicana. Pero algo ocurrió entonces que la hizo escuchar de otra manera. Ella tampoco sabe explicarlo bien: fue magia. Porque no es que se identificó con las doncellas de los años ‘30 a las que el Flaco de Oro derretía con su voz y carisma; tampoco las reversiones que hizo de sus canciones son las de una nieta orgullosa. Natalia, muy consciente del poder erotizante de Lara, pero también de su ser bohemio y soñador, de su sensibilidad poética, cree que podrían haber sido grandes amigos. 
+
+
+Fue un proceso intrincado armar ese disco, que se lanzó en 2012. Natalia quiso interpretar las canciones a dúo con varones admirados, lo que implicó viajes y más demoras de las habituales, además de la adecuación de todos los arreglos para lograr conjuntos armoniosos, verdaderas reinterpretaciones. Después hubo que gestionar los derechos de los temas para reeditarlos, lo que fue un dolor de cabeza. Ella se estaba separando en ese momento, y varias veces pensó en abandonar el proyecto, pero entonces sucedían cosas que le daban confianza, como encontrarse un poema de Lara pegado en la pared de un bar o cruzarse con su estatua en Madrid, ciudad donde el Flaco fue muy querido. Sobre todo fue estimulante el entusiasmo de los invitados; Vicentico quiso elegir la canción, por ejemplo (participa en “Piensa en Mí”), y que Gilberto Gil dijera que sí fue señal definitiva de que la idea era buena: ese homenaje que une generaciones tenía que existir. 
+
+
+Agustín Lara tenía un rostro inconfundible marcado con una enorme cicatriz de guasón. Según el mito, una corista despechada le tiró una botella por la cabeza. Casualmente Natalia Lafourcade también tiene una cicatriz en la cara, pero mucho más discreta, que lleva desde los seis años, cuando el mismo día del cumpleaños un caballo le dio una patada en la frente. Fue en Coatepec, Veracruz, adonde llegó a los dos años cuando se separaron los padres. En otra coincidencia con Lara, parece que el jefe de familia era mujeriego. Chileno exiliado, hermano del escritor Enrique Lafourcade, el padre de Natalia es constructor de clavecines y un talentoso pianista y clavecinista que todavía hoy cuestiona que su hija nunca se haya decidido a tomar clases formales con él. La educación de Natalia, que toca varios instrumentos e igualmente puede trabajar con partitura, fue más progresista. Su madre, una creyente de que la música es vital para el cerebro, es creadora de un método de pedagogía musical para niños que experimentó con su hija durante la larga recuperación por lo del caballo. (La patada produjo daños neuronales irreversibles, de ahí que Natalia de repente olvide las letras de las canciones y le pida a su madre las indicaciones para llegar a Coatepec cada vez que va a visitarla, cree ella.)
+
+
+Una de las razones por las que Natalia decidió comprar una camioneta fue esa: poder ir a ver a su madre más seguido. Originalmente lo que quería era construir una casa con un domo-estudio para ver las estrellas mientras trabajaba, pero el proyecto era demasiado costoso. Hoy vive en el DF con un gato y una perra chihuahua llamada Frida que lleva a todos lados. Sus amigos, cuenta en un reality que filmó en 2012 para *Cosmo TV*, son todo en su vida, personas que vibran en su misma frecuencia y por eso el universo puso en su camino. Pisando los 30, las personas muy autoanalíticas pueden volverse nostálgicas y algo místicas; ella, una gran cuestionadora de sí misma y su carrera, un día fue a ver a un numerólogo, que le dijo algo que le quedó grabado: “No tengas miedo de ser Natalia Lafourcade”. Ahora, dice, no se toma su trabajo tan en serio, simplemente lo hace, lo disfruta y ya. “Haz menos escabroso tu camino, aventurera”, cantaba Lara.
+
+
+Antes y después del éxito internacional con “En el 2000”, Natalia integró dos bandas. La primera a los 14 años: Los Twist era el típico grupo de adolescentes “que gritaban y brincaban”, según el padre. A la segunda la formó durante el tour de aquel álbum solista: con La Forquetina lanzó el disco *Casa* (2005) pero la banda enseguida se desintegró por incompatibilidad de objetivos. Entonces Natalia quiso tomarse un tiempo, viajar, aprender inglés y explorar otros intereses como la pintura. Se fue a Ottawa, Canadá, donde terminó compartiendo una casa llena de músicos de distintos países. Tenía 21 o 22 años, y cargada de nuevas influencias compuso un EP instrumental con arreglos orquestales; *Las cuatro estaciones del amor* (2006) es una perla en el mar. De la misma temporada de inspiración surgió *Hu Hu Hu* (2009), un disco pop lo suficientemente enrevesado como para gustar en Japón. 
+
+
+*Hasta La Raíz*, que salió a principio de año, es como una comida en familia después de un largo viaje de mochila. Un disco de amor –de amor verdadero, doloroso– para poner a la hora del té, para regalar, para volver a escuchar dentro de muchos años y revivir momentos. Natalia, que tiene un feedback importante en las redes sociales, convocó a sus fans por Twitter a responder que entendían por “hasta la raíz”; más de 800 tuiteros contestaron, y unos 300 de ellos participaron de la filmación del video de la canción. A los 31 años, Natalia se cortó el pelo como Chan Marshall (Cat Power) cuando lanzó su último disco, y mantiene su figura grácil, viste últimamente con jeans tiro alto o shorcitos, remeras cortas y holgadas y calzado vintage. En el video, filmado en cenital en una sola toma, los fans la sostienen como si se hubiera lanzado del escenario y ella canta: “Pienso que cada instante sobrevivido al caminar, y cada segundo de incertidumbre, cada momento de no saber, son la clave exacta de este tejido que ando cargando bajo la piel”.
+
+
+Este disco se armó durante la gira de *Mujer Divina: Homenaje a Agustín Lara*. Natalia cuenta en entrevistas que se sentía inspirada y a la vez desafiada por el tan bien recibido tributo; después de años, tenía ganas de escribir, de hacer algo muy honesto y personal, pero tan amplio y acogedor que la llevara a cada rincón del país. Hubo canciones que tardó mucho tiempo en terminar y otras que compuso en una tarde bajo el sol, como “¿Para Qué Sufrir?”. *Hasta La Raíz* es la obra de alguien que ya entendió algunas cosas (“Nada es para siempre y hasta la belleza cansa, el amor acaba”) y puede hablar como una joven loba, con heridas de guerra pero los instintos sanos: “Hoy dejo que mi cuerpo se despierte, lo llevo, lo traigo, lo muevo y lo dejo ser”, canta en “Mi Lugar Favorito”. “Ya No Te Puedo Querer” suena como las viejas canciones pop latinas estilo Fey: “Ya no te puedo querer, ya no te puedo volver a construir. Es imposible borrar las cicatrices de amar y no saber soltar”, dice en un estribillo épico que pide un remix.
+
+
+Natalia tenía claro que quería hacer un disco de esencia pop, un disco joven, dice ella. Pero sus guías al componer fueron madres sabias como Chavela Vargas, Mercedes Sosa, Violeta Parra. Autóctono y siglo XXI, Hasta La Raíz reúne todo para ser el seguidor que le correspondía al homenaje a Agustín Lara, el sorprendente punto de inflexión en la carrera de Natalia Lafourcade, que finalmente está cumpliendo el viejo sueño de tocar en las salas más históricas de México. “Tierra abrázame, abrázame con tu luz. Escucha mis pasos caminar, mi alma respirar en tus brazos”, canta en el momento novelesco del disco, la balada “Palomas Blancas”, ella, la chica de la voz de pajarito, transformada como mujer y afirmada como una artista valiosa de la música popular latinoamericana.
+
+
+
+
+---
+
+ Micaela Ortelli
+----------------
+
+ Micaela Ortelli es periodista y traductora de inglés. En Twitter es [@micaelaortelli](http://www.twitter.com/micaelaortelli).
+

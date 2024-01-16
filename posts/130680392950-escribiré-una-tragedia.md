@@ -1,0 +1,55 @@
+# Escribiré una tragedia
+
+**‘Show Me a Hero’ es marrón, monocorde y melancólica. Es, también, bellísima. Es la democracia en acción.**
+
+7 de octubre de 2015 - No ficción
+
+_por Gustavo Noriega_
+
+Link original: https://laagenda.tumblr.com/post/130680392950/escribir%C3%A9-una-tragedia
+
+![{descripción de la imagen}](https://64.media.tumblr.com/13296e4d2ab647e8028147f42fb70f75/tumblr_inline_pk0layOsqc1t6q87u_500.jpg)**SHOW ME A HERO.****De David Simon.****HBO, 2015. Seis episodios.**
+
+**SHOW ME A HERO.  
+De Lisa Berkin.  
+Back Bay Books, 2000. 352 páginas.**
+
+S*how Me a Hero* es una nueva miniserie de HBO, pero eso la define sólo a medias. No es una película, no es una serie, cuenta un hecho real, se toma seis horas y finalmente cierra sobre sí misma. Tiene elementos claramente cinematográficos por un lado y proviene del linaje de las series por el otro, pero es diferente a todo lo que hayamos visto. De alguna manera es otro exponente de que la digitalización y las diversificadas nuevas formas de exhibición de un material audiovisual no solo nos libera de horarios fijos y tarifas puntuales sino también de los estándares convencionales de duración. 
+
+![tapa del libro](https://64.media.tumblr.com/df2dc5a3048f63e1ac60543bab72b966/tumblr_inline_pk0layTFIz1t6q87u_250.jpg)Solo así, con una estructura de varias horas, se podía relatar la historia de la extraordinaria batalla judicial y política para que la ciudad de Yonkers acepte la inclusión de viviendas sociales en las zonas más acomodadas,batalla que estuvo a punto de dejarla en bancarrota. La historia tiene un héroe, el alcalde Nick Wasicsko, y, como la cita completa indica (“Muéstrame un héroe y te escribiré una tragedia”, de F. Scott Fitzgerald), también un destino trágico. *Show Me a Hero* es una inmersión de seis horas en la política menuda de una ciudadrelativamente pequeña del estado de Nueva York pero sus enseñanzas pueden ser universales.
+
+Yonkers hoy apenas cuenta con 200.000 habitantes. Está ubicada al norte de la ciudad de Nueva York, justo donde termina el Bronx. Del otro lado del Hudson uno puede sobrevolar con el Google Earth el estado de Nueva Jersey y ver barrios residenciales espectaculares, con caminos serpenteantes que unen enormes y lujosos caserones. En Yonkers, en cambio, todo parece más modesto. La ciudad puede dividirse longitudinalmente en dos, usando como eje la carretera Saw Mill River: el este, donde viven los sectores más pudientes, y el oeste, con casas más humildes. La división social va acompañada de otra racial, con negros y latinos ocupando las zonas más carenciadas. Así era por lo menos en la década del ‘80, cuando un juez federal determinó que la ciudad debía edificar viviendas sociales en zonas donde la mayoría era blanca, es decir en el este.
+
+Todo había comenzado con una acción legal de la National Association for the Advancement of Colored People (NAACP), una de las ONG políticas más activas de Estados Unidos, contra la ciudad de Yonkers y su departamento de Educación. Originalmente se trataba de una denuncia de segregación de las escuelas de la ciudad, pero con el tiempo quedó claro que las escuelas de Yonkers estaban segregadas porque las viviendas de la ciudad lo estaban. “Los niños negros e hispanos iban a las mismas escasas escuelas porque las familias negras estaban forzadas a vivir en los mismos pocos barrios, y cualquier orden judicial para cambiar las escuelas debería también cambiar los vecindarios”, escribe Lisa Belkin en el libro periodístico del mismo nombre en el cual se basa la miniserie.
+
+El juez a quien le tocó el caso era Leonard B. Sand, un magistrado de familia opulenta, intelectual, “interesado en las batallas de ideas”, según Belkin. Luego de evaluar los argumentos de ambas partes llegó a la conclusión de que la segregación era evidente: 23 de las 34 escuelas públicas de la ciudad estaban compuestas casi exclusivamente por blancos o casi exclusivamente por negros y latinos. Deberían construirse viviendas públicas en el lado este de la ciudad.
+
+Pasaron algunos años de marchas y contramarchas hasta que el juez se cansó de las dilaciones y dispuso que la sentencia debía cumplirse, caso contrario establecía un sistema de multas diarias exhorbitantes que en menos de un mes dejarían a la ciudad quebrada, sin dinero para funcionar. Para los habitantes blancos del este de Yonkers se trataba de una intromisión estatal en sus vidas totalmente inadmisible: sus viviendas se verían desvalorizadas al compartir el barrio con gente de escasos recursos y malos hábitos y sus vidas correrían peligro. Para las minorías, en cambio, se trataba solamente de una discusión entre blancos sobre una sanción judicial que nunca se llevaría a cabo. El juez Sand, sin embargo, estaba determinado a llevarla adelante.
+
+![{descripción de la imagen}](https://64.media.tumblr.com/13296e4d2ab647e8028147f42fb70f75/tumblr_inline_pk0layOsqc1t6q87u_500.jpg)Isaac, un pragmático que se cree un idealista; y Carla Quevedo, su eje moral.Nada de esto que estamos contando es un spoiler: de hecho, la serie arranca en ese punto y sin todos estos datos el primero de los seis capítulos, con su estructura coral y la dosificación de la información, puede parecer poco claro. Sin embargo, a partir del momento en que Nick se convierte en el alcalde más joven de la historia de Yonkers y se da cuenta de que lo único que se puede hacer en la situación en que se encuentra es obedecer a la ley, *Show Me a Hero*, la miniserie, toma al espectador por las narices y con maestría narrativa y sensibilidad artística lo lleva sin paradas hasta su conclusión. El menudeo de la política local se entrelaza con lasvidascomunes de aquellos a quienes las viviendas públicas les van a dar un un nuevo rumbo, para bien o para mal. Con firmeza de carácter, la miniserie mantiene el tono sombrío y sereno durante las seis horas. El mérito, obviamente, es de David Simon, creador de *The Wire* y *Treme*, series libres en su deriva argumental y sin temores a la hora de sumar protagonistas. Pero *Show Me A Hero* es otra cosa, no es “otra serie de culto”, es una lección de política pública de sabor amargo no carente de luminosidad y esperanza.
+
+Para el espectador argentino, que tiene un master en cinismo político y que a veces piensa que *House of Cards* es realista y sutil, *Show Me a Hero* representa un desafío muy difícil de afrontar. No faltan en la miniserie demagogos, traiciones, ambiciones personales desmedidas, vanidades y trampas. Los claroscuros de la sociedad norteamericana (a los que conocemos muy bien porque nos los muestran los productos de entretenimiento norteamericanos), con su cuota de mezquindad y racismo, son el eje de la trama. Sin embargo, la serie muestra sin idealizar las enormes posibilidades del sistema republicano y de la acción política. No hay cinismo en *Show Me a Hero*, más allá de que algunos personajes puedan serlo y de que no haya idealistas puros.
+
+En primer lugar, hay que señalar que el problema de la ciudad es una imposición del poder judicial, atendiendo a la presentación de una ONG. En todo momento se trata de encontrar una solución política a un problema judicial. Lo que quiero decir es que la política se ve totalmente constreñida por la ley: nadie plantea ejercer algún tipo de influencia para quitar del medio al juez Sands o resolverlo de una manera no ortodoxa. La discusión es obedecer la ley o rebelarse ante ella por considerarla injusta. Quienes rechazan la resolución del juez Sands se encuentran con el problema de que resulta muy difícil en una comunidad organizada rechazar el imperio de la ley sin ofrecer una salida clara que reemplace a la consensuada previamente.
+
+De la misma manera puede decirse que lo que se ve en *Show Me a Hero* es a la democracia en acción: no siempre es agradable, no siempre es transparente, no siempre llega al mejor resultado, pero es un sistema extraordinario, una de las grandes invenciones de la humanidad. Los problemas de Estados Unidos son culturales e históricos: la forma en que han llegado al país las minorías (a la fuerza como esclavos o buscando “hacerse la América”) han modelado a través de la historia prejuicios y odios. Fueron siempre el estado de derecho, la deliberación pública y la imposición de la ley lo que han nivelado las cosas de una manera tal que un descendiente de la raza esclavizada se siente hoy en el máximo sillón en el Salón Oval. Ley y debate público: desde los padres fundadores hasta la instalación de un complejo edilicio en una ciudad pequeña.
+
+Sin la pátina épica de la lucha por los derechos civiles, *Show Me a Hero* muestra la tediosa lucha que implica para un país en donde impera la ley que se minimicen las dificultades derivadas de la marginación social o racial. A lo largo de los años que duró el conflicto los habitantes de Yonkers debatieron en público, votaron, se dejaron convencer o se mantuvieron en sus trece. Los vaivenes de la política fueron extraordinariamente ingratos con algunos y generosos con otros. El espectáculo de la democracia en acción es un gusto adquirido, como el café o el picante, muy diferente de la potencia estética de los fascismos, con sus magníficas concentraciones populares y el carisma del líder. *Show Me a Hero* es marrón, monocorde y melancólica. Es, también, bellísima. El espectáculo que brinda es mucho más maravilloso que el que Leni Riefenstahl montara para el tercer Reich, alguna exhibición norcoreana o cualquier acto populista contemporáneo en donde los individuos desaparecen en función de un dibujo más grande, como en una coreografía de Busby Berkeley. Requiere una mirada calma y sensible, que rechace la espectacularidad y le dé prioridad al paso del tiempo.   
+
+
+La forma en que la miniserie desarrolla su historia alude al mismo principio democrático que representa: cada personaje tiene su importancia y es interpretado por esa rara aristocracia hollywoodense que son los actores de reparto: desde el infalible Bob Balaban (como el juez Sands) hasta Catherine Keener (una vecina que cambia de bando), pasando por James Belushi (como el alcalde anterior a  Wasicsko), Alfred Molina (un demagogo sin escrúpulos) y hasta una ex estrella como Winona Ryder (la única política amiga de  Wasicsko), entre muchos otros. El liderazgo lo ejercen el ascendente Oscar Isaac, como el joven alcalde, y, en una actuación consagratoria, la actriz argentina Carla Quevedo, como su novia, la luminosa Nay, quizás el personaje que representa el eje moral de la miniserie. La elección de canciones privilegia a Bruce Springsteen, una superestrella con aspecto de persona normal y que le canta a las personas comunes.
+
+Democracia, división de poderes, imperio de la ley, elenco repleto de actores secundarios, todos ellos brillantes, tono sosegado, paciencia. A contramano de los tiempos que corren. Así se hacen los cambios, de a poco, sin grandes estridencias, sin locuras ni fanatismos.
+
+  
+
+
+
+
+---
+
+ Gustavo Noriega
+----------------
+
+Gustavo Noriega es periodista y crítico de cine. Conduce Preferiría No Hacerlo, de lunes a jueves a las 22 en La Once Diez. En Twitter es @gus\_noriega.
+

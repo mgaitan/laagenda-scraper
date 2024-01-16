@@ -1,0 +1,1 @@
+../../174209663900-pensamientos-laterales.md

@@ -1,0 +1,1 @@
+../../627339337247391744-tratando-de-no-perder-la-simpleza.md

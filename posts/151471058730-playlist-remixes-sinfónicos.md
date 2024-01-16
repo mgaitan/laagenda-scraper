@@ -1,0 +1,40 @@
+# Remixes sinfónicos
+
+**Fennesz trae a Buenos Aires sus mezclas de las sinfonías de Mahler; Biosphere remixa antiguas canciones para los fantasmas de Cracovia.**
+
+7 de octubre de 2016 - Playlist
+
+_por Jorge Luis Fernández_
+
+Link original: https://laagenda.tumblr.com/post/151471058730/playlist-remixes-sinf%C3%B3nicos
+
+![](https://64.media.tumblr.com/c88ecb5b544ae885faff36b016d1a1c2/tumblr_inline_pk0l8xZk3O1t6q87u_500.jpg)
+En 1997, cuando apareció *Hotel Paral.lel*, resultó como si, de pronto, un nuevo horizonte se desplegara ante los entonces estrechos confines de la electrónica pop. Los habituales loops de fricciones digitales se expandían como telas en donde el artista probaba colores, algunos chirriantes (inusitadamente chirriantes), y otros de una belleza desconocida, intrigante. En medio de eso aparecían partes de lo que –después se sabría– era una guitarra: una guitarra de-construida. Christian Fennesz no era el estereotipo de artista electrónico. Delgado, alto y de pelo largo, el vienés estudió etnomusicología de chico y a los ocho empezó a estudiar guitarra. A fines de los ochenta estaba tocando en bandas de rock. En verano iba a surfear en las playas de Bali y a la vuelta, en Viena, empezó a frecuentar clubes nocturnos del under como Blue Box, semillero de DJ y artistas, situado en el séptimo distrito de la capital austríaca. Allí conoció a Peter Rehberg, un DJ que mezclaba grooves de techno industrial y ambient. Rehberg estaba fundando el sello Mego, vehículo para vender al mundo la música producida en el under vienés, incluyendo la suya, rotulada bajo el alter ego Pita. Y así empezó la historia.
+
+*Seven Tons For Free*, de Pita, y *Hotel Paral.lel* de Fennesz fueron las estrellas de aquella temporada en Europa, la punta del iceberg de un movimiento que habría de llamarse *glitchedelia* (acrónimo de psicodelia y *glitch*: desperfecto). Y en 2001, con *Endless Summer* (un nada velado homenaje a los Beach Boys), la ola habría de llegar al resto del mundo. Con la fórmula laptop más guitarra, Fennesz se transformó en una *minor celebrity* de la música alternativa; colaboró con decenas de músicos y sus propios discos se volvieron mucho más ambientales, a veces hasta melódicos. Su participación en *Blemish* (2003), de David Sylvian, fue correspondida con un aporte del ex Japan vocalizando el track [“Transit”](https://www.youtube.com/watch?v=uNA7yrIysDg), de *Venice* (2004). Más recientemente, en 2013, Sylvian, Fennesz y el alemán Stephan Mathieu formaron el trío The Kilowatt Hour. 
+
+Muy posiblemente influido por la espectacular [9 Beet Stretch](https://www.youtube.com/watch?v=tzGKSWQ4GnM) del noruego Leif Inge, quien se tomó el trabajo de estirar las nueve sinfonías de Beethoven hasta una duración de 24 horas, sin alterar sus tonos para obtener una coherencia sincrónica ([según el crítico Kyle Gann](http://www.villagevoice.com/music/norwegian-minimalist-raises-beethoven-molto-adagio-bar-6408356), “hay partes vagamente familiares que se vuelven irreconocibles”), en 2011 Fennesz emprendió una similar de-construcción con la obra de Gustav Mahler, al cumplirse el centenario de su muerte. Pero como casi todo en la obra del vienés (nuestro contemporáneo), *Mahler Remix* es un trabajo fragmentario, y diseñado para ser reproducido en vivo junto a imágenes del video artista Lillevan. “Fue muy difícil trabajar con música que es de por sí perfecta”, dijo Fennesz. “Tengo un respeto enorme por el compositor y su música no podría mejorarse. Sólo tuve que tomar partes de su obra, aquí y allá.” 
+
+![ganchos](https://64.media.tumblr.com/2f2433b508c9b4e74b458ed20dd71519/tumblr_inline_pk0l8xcKH11t6q87u_500.jpg) Lillevan y Fennesz ponen en marcha Mahler Remix.A poco de las celebraciones por el centenario de la muerte de Mahler, Fennesz y Lillevan presentaron la obra en el RadioKulturhaus de Viena y *Mahler Remix* empezó a circular extraoficialmente en formato digital de descarga. Ahora, el sello Touch editó la obra en LP y CD, y el dúo salió a presentar *Mahler Remix* tal como fue originalmente concebido (la gira los trae el 19 de noviembre a Buenos Aires, donde serán el plato fuerte del Ciclo de Conciertos de Música Contemporánea). Para la obra, Fennesz reconfiguró fragmentos de las sinfonías de Mahler en cuatro movimientos. No es sorprendente que haya tomado el famoso [Adagietto](https://www.youtube.com/watch?v=IHEzhJDso_g) de la Quinta Sinfonía para el inicio; lo sorprendente es su transformación en una iridiscente supernova que irradia mareas celestiales, sin dejar irreconocible su origen. Seguidamente, secciones de distintas sinfonías se entrecruzan (siguiendo la primigenia idea de Charles Yves) con un resultado épico, y los fragmentos sampleados quedan relegados bajo una cadencia de glitchedelia.
+
+En el segundo movimiento, Fennesz se da libertad para interactuar los fragmentos orquestales con procesamientos de laptop; olas de melodía granular acunan los apenas distinguibles sampleos sinfónicos, como una versión new age de *Venice* o *Black Sea*, y cierran los distintivos rasgueos distorsionados del músico en su Fender Stratocaster. El tercer movimiento se desenvuelve en modo minimalista, con el loop de un fragmento ultra procesado, y deriva en un pasaje de ruido que cierra en un extraño maridaje de space rock sinfónico. El cuarto movimiento retoma el bellísimo pasaje de guitarra rasgueada, que se encuadra en un plano de saturación digital flanqueado por la senoidal de un pasaje sinfónico, totalmente desfigurado, resultando en uno de los momentos compositivos más perfectos del disco.
+
+El sello Touch dispuso los cuatro movimientos de *Mahler Remix* en su canal de YouTube, para ser escuchados en streaming o descargarse en forma gratuita:
+
+
+Otro músico electrónico que trabajó a partir de la obra de compositores clásicos (en su caso, Debussy y Monteverdi) es el noruego Geir Jenssen, alias Biosphere, uno de los tipos más idiosincráticos del ambient. Su flamante álbum *Departed Glories* (Smalltown Supersound) tiene un basamento igualmente conceptual y, como en el caso de Fennesz, se realizó a partir de fragmentos tradicionales pregrabados. La historia es fascinante como el disco. Durante el tiempo que vivió en Cracovia, Jenssen quedó impactado al descubrir lugares donde se había ejecutado a partisanos polacos en la Segunda Guerra Mundial. Su interés por los alrededores de Cracovia lo llevó a leer sobre su historia. Así se enteró de que en tiempos medievales, en medio del gran bosque vivió una reina, siempre oculta, a escondidas de los invasores. Jenssen entró a pensar en qué música aplacaría sus miedos, como también el de los partisanos asesinados. Y así concretó la grabación de este álbum, mayormente compuesto a partir de antiguas grabaciones folk de Rusia y Europa oriental, remezcladas y procesadas electrónicamente.
+
+De haber escuchado el álbum, difícilmente la reina habría levantado su ánimo, pero sin duda se rendiría al encanto de su misterio. La secuela “Aura in the Kitchen with Candlesticks” y “Departed Glories” contiene bucólicos pasajes de música tratada, con el sello de Debussy o el tardío período romántico de Brahms, en donde cada tanto emerge el perturbador gorjeo de una soprano que deja a la bruja de Blair reducida a una caricatura de Disney. El track final, “Fall Asleep for Me”, es una maravilla que reproduce la idea de un concierto de canto gregoriano a pleno sol, repentinamente oscurecido, en tinieblas, bajo un puente de vibraciones electrónicas. En sincronía con la edición de Smalltown Supersound, el propio Jenssen cargó el álbum completo en su canal de YouTube; así la reina, demás fantasmas y espíritus sensibles pueden armar su propia playlist en la dimensión virtual del Wi-Fi.
+
+  
+
+
+
+
+---
+
+Jorge Luis Fernández
+--------------------
+
+ Jorge Luis Fernández es uno de los editores de La Agenda. Colabora en La Nación, Ñ y escribe regularmente para Revista Veintitrés. Publicó una novela de ciencia ficción, *Cupol*. En Twitter es [@punkhuysen](https://twitter.com/punkhuysen) 
+

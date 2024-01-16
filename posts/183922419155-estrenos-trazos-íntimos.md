@@ -1,0 +1,43 @@
+# Trazos íntimos
+
+**El retrato de Julian Schnabel sobre Van Gogh es una película sensorial, no un melodrama; bocetos de su vida que desembocaron en cuadros.**
+
+4 de abril de 2019 - Estrenos
+
+_por Maia Debowicz_
+
+Link original: https://laagenda.tumblr.com/post/183922419155/estrenos-trazos-%C3%ADntimos
+
+![](https://64.media.tumblr.com/d957140b283d499290abf31f933e5db0/a4fd5c01c4423cce-a6/s500x750/a215129ff91719e51fc614b1a20c64c119e3bb4e.jpg)### *Van Gogh: en la puerta de la eternidad*, de Julian Schnabel (Estados Unidos/Inglaterra/Francia/Irlanda/Suiza, 2018), 111’
+
+![Katie Ledecky](https://64.media.tumblr.com/20318bc9c8d55980f50d10c8d5f2edfd/a4fd5c01c4423cce-d3/s400x600/ed0eed3e143d45cc2ece83f935899913271f8ba2.jpg)En la primera escena de *Van Gogh: en la puerta de la eternidad* no vemos al artista que pintó los girasoles más bellos de lo que parecen. Una cámara subjetiva e inquieta nos invita a ubicarnos en los zapatos de Vincent Van Gogh, descubriendo en una mujer que guía a un rebaño de ovejas una futura obra. “¿Por qué?”, le pregunta ella cuando quien, sin nunca saberlo, se convertiría en uno de los pintores más famosos del mundo le dice que quiere dibujarla. El sexto largometraje de Julian Schnabel intenta una y otra vez contestar preguntas, animándose a patear mitos que siguen girando alrededor de la vida de Van Gogh. Para el director de *La escafandra y la mariposa* (2007) y *Antes que anochezca* (2000) reconstruir la imagen de Van Gogh no es hacer un retrato más. 
+
+Su ópera prima, *Basquiat*, estrenada en 1996, comienza con un personaje hablando sobre Vincent, en 1979: “Todo el mundo quiere subirse al carro de Van Gogh. No existe un viaje tan horrible que nadie quiera hacer. La idea del genio no reconocido sudando tinta en un desván es deliciosamente absurda. (…) Iba a ser el más moderno de los pintores, pero todo el mundo lo odiaba. Nos avergüenza tanto su vida que la historia del arte es una compensación al abandono a Van Gogh”. En aquella película, incluso, actúa William Dafoe, interpretando a un escultor que trabaja como electricista en galerías de arte. Agujereaba paredes con el taladro y quien hacía de Basquiat le sostenía la escalera. 
+
+“Ya llegarás, ya llegarás”, le decía a Basquiat cuando éste miraba admirado los lienzos gigantes apoyados sobre las paredes. Veintitrés años, después William Dafoe se convierte en Vincent Van Gogh sin necesidad de cubrir su rostro de prótesis o ponerse una barba postiza. Más allá del parecido físico del actor con el artista, Van Gogh: en la puerta de la eternidad esquiva caer en la caricaturización del personaje, como suelen hacer la mayoría de los biopics de pintores. A Schnabel no le interesa el artificio, tampoco el realismo encorsetado en los supuestos hechos reales. Su preocupación reside en acercarse y acercarnos con su película a la experiencia emocional que vivimos al pararnos frente a un cuadro de Van Gogh: sensaciones que son complejas de traducir en palabras.
+
+“¿Se puede escribir todavía algo sobre Van Gogh?”, se preguntaba el escritor, artista y crítico de arte John Berger. La misma pregunta me hago yo respecto a Van Gogh retratado por la cámara: ¿se puede mostrar en el presente algo sobre él que todavía no conocemos? La historia del cine se ha hecho cargo del pintor de cabello color fuego una y mil veces: bajo la dirección de Vincente Minnelli en *Lust For Life* (1956), con un Kirk Douglas enérgico y viril; a través de la sensibilidad de Maurice Pialat y la interpretación de Jacques Dutronc en *Van Gogh* (1991); con el retrato de pocos minutos en blanco y negro que realizó Alain Resnais en 1948 con su singular estilo brutal; a partir de la mirada abarcativa y sentimental de Robert Altman, quien decidió en 1990 incluir a Theo en el título de la película, entendiendo que no hay Van Gogh sin su hermano Theo. Tim Roth fue Vincent, y también lo fue Benedict Cumberbatch. En 2017 los directores Dorota Kobiela y Hugh Welchman demostraron que no se había hecho todo en cine alrededor del nombre de Van Gogh: mientras todos los directores hasta la fecha miraron al artista holandés desde afuera, la película animada *Loving Vincent* se atrevió a mirar a través de los ojos de Van Gogh. Una anomalía que está fuera de la representación.
+
+Y lo que ningún biopic pudo hacer lo hizo la ciencia ficción: justicia. En el 
+
+
+[capítulo 10](https://www.youtube.com/watch?v=xzul1f_yI_M%0D%0A) de la quinta temporada moderna de *Doctor Who*, el guionista Richard Curtis, el director Jonny Campbell y el productor Steven Moffat, le dieron a Vincent ese momento que cierra una historia, una vida, una necesidad del atribulado pintor. Frustrado hasta el dolor por la indiferencia y el rechazo a su obra que experimentaban sus contemporáneos, y gracias a la capacidad de viajar en el tiempo del Doctor, su máquina poderosa, la Tardis, Van Gogh aparece hoy en un museo, en plena muestra de sus obras. Admiradas y disfrutadas por una multitud, que las entiende y las valora. Desbordado por un llanto que por primera vez no se apoya en la tristeza. En una de las más conmovedoras escenas de *Van Gogh: en la puerta de la eternidad*, el artista le dice a un cura, dentro del manicomio, que tal vez Dios lo hizo pintar para gente que aún no nace. Ese desfasaje en el que cree Vincent es tacleado por Doctor Who.
+
+Entonces, ¿por qué hacer otra película sobre Van Gogh? En principio porque *Van Gogh: en la puerta de la eternidad* no es una película más. La mirada de Schnabel es distinta a los largometrajes y cortometrajes, algunos valiosas y otros indefendibles, que narraron un costado del artista. La primera respuesta al interrogante lanzado es que en la película de Julian Schnabel vemos a Van Gogh pintar de principio a fin. Sean zapatos, flores o un ser humano. Más allá de que el director tiene una idea de la pintura más performática que clásica, el acto de mirar un objeto o un sujeto y trasladarlo al lienzo es protagonista en el relato. Dibuja con caña y tinta, mancha la tela blanca con óleo amarillo, retrata con pinceladas rápidas hasta lograr una imagen que no se parece a lo que ven los demás. Solo es fiel a su percepción de lo que tiene enfrente. *Van Gogh: en la puerta de la eternidad* es una película sensorial, donde importa más el ritual obsesivo que la acción. 
+
+No es un melodrama como lo han sido todas las películas de Van Gogh. Son bocetos de momentos en la vida del artista que desembocaron en cuadros. La trama pesa menos que la caja de pinturas que carga diariamente Vincent por el campo a la búsqueda de la luz perfecta para pintar. En la última carta que Vincent le escribió a Theo le dijo “solo podemos hacer que sean nuestros cuadros lo que hablen”. Y Schnabel comprende más que nadie esa frase, porque antes de ser cineasta fue pintor, uno de los artistas neoexpresionistas más llamativos de la escena neoyorquina de los años 80. Sus obras están presentes en el Metropolitan y en el Pompidou en París. No es necesario ser artista para entender cómo veía el mundo Van Gogh, pero sin dudas su mirada será desde otro lugar. En *Van Gogh: en la puerta de la eternidad*, Schnabel elige darle más espacio a Paul Gaughin (Oscar Isaac) que al hermano marchand (Rupert Friend). Porque quien se convertiría en referente máximo del fauvismo ocupa el rol de antagonista que envenena y vitaliza, al mismo tiempo, a Van Gogh. La soledad es palpable pero la competencia artística con Gaughin es protagonista en esta historia que, para sorpresa de todos, impacta con su desenlace.
+
+Tal vez esto ocurre porque Schnabel se siente cerca de ese conflicto a causa de la rivalidad que tuvo él mismo con Basquiat. Y aun con la inmensa distancia que separa a la primera película del director con la última prevalece la preocupación del vínculo entre el artista y su obra. “Nadie ve lo que yo veo y eso me asusta”, le dice Van Gogh a un médico luego de cortarse la oreja. A Schnabel le importa poco y nada el escándalo de la oreja cortada y todas las leyendas que colgaron del lóbulo que pretendió volverse más relevante que las imponentes pinturas de su dueño. El director filma *Van Gogh: en la puerta de la eternidad* para recordarnos que nadie ve de la misma forma un objeto o sujeto. Vincent representaba a su manera un árbol en papel, y Schnabel traslada a Vincent a la pantalla grande a través de su mirada intimista. Porque a la hora de narrar, de justificar hacerle espacio a otra historia, lo importante no es el tema sino lo que se quiere decir sobre él.
+
+  
+
+
+
+
+---
+
+ Maia Debowicz
+--------------
+
+ Maia Debowicz es periodista. Escribe en Suplemento SOY (Página 12), Haciendo Cine y El Amante. En Twitter es [@Maia\_Debowicz](https://twitter.com/Maia_Debowicz?lang=es%E2%80%9D%20%20target=) 
+

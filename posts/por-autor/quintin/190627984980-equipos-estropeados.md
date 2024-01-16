@@ -1,0 +1,1 @@
+../../190627984980-equipos-estropeados.md

@@ -1,0 +1,50 @@
+# Ocupaciones del nuevo siglo
+
+**Las redes sociales instalaron la idea de que cada día hay que involucrarse con algo nuevo: Pokémon, el devenir olímpico o las monjas del Sr. López.**
+
+21 de agosto de 2016 - Diario del domingo
+
+_por Martín Zariello_
+
+Link original: https://laagenda.tumblr.com/post/149271030270/ocupaciones-del-nuevo-siglo
+
+![](https://64.media.tumblr.com/674d7dad7894bc4791e9249076e59455/tumblr_inline_pk0l8flh6O1t6q87u_500.jpg)**Lunes**  
+
+Desde hace años tomo el colectivo 715/20 para ir al trabajo. En la jerga marplatense es conocido como “el batanero”, ya que su recorrido arranca en la ex Estación Terminal (donde ahora funciona el mega shopping de Aldrey Iglesias, el Burns local) y termina en Batán. El personaje principal del colectivo es un vendedor ambulante. Viajo en colectivos desde que tengo cinco años pero este tipo es el Maradona de su clase. El hombre sube, saluda a los pasajeros y da inicio a un show en el que se cruzan el monólogo existencial, el stand up y algo parecido a lo que en los años 30 se denominó *ensayo de interpretación nacional*. Si no saludamos, nos recuerda que es un ser humano y por educación deberíamos hacerlo. Si alguien pone cara de culo porque no le agrada que el tipo hable o pruebe los CD en su equipo, nos recuerda que el suyo es un trabajo como cualquier otro, que de algo tiene que vivir y que alguno de nosotros, algún día, por infinitas razones, también podemos convertirnos en un vendedor ambulante. Si alguien no acepta sostener durante unos minutos los CD o los auriculares que vende, el tipo nos pide que por favor lo hagamos, que no importa si no tenemos plata para comprar, pero que a su moral de vendedor ambulante le sirve que por lo menos sostengamos unos segundos lo que él tiene para vender. El tipo nos interpela, nos habla de su vida, de su ex esposa, de sus hijos, de lo mal o lo bien que le fue en el día, de lo difícil que es subir a un colectivo y enfrentar a una masa de personas amargadas que van o vuelven de un trabajo que casi seguro odian. Expone su cuerpo y a la vez nos expone a nosotros. Me hace acordar a un psicólogo lacaniano que siempre se daba cuenta de lo que yo no quería decirle. Cada tanto le compro auriculares. 
+
+**Martes**  
+ 
+Ayer entré al edificio y había una pareja de chicos discutiendo en el hall. La tecnología evoluciona, hay personas que parecen vivir dentro de las redes sociales y no tener contacto interpersonal. La era digital nos abruma. En vez de buscar amor nos resignamos a buscar pokémones, pero siempre van a existir parejas que se pelean en el hall de un edificio. Sintiéndome incómodo, intenté pasar rápido pero no pude evitar pispear qué estaba pasando. El chico hacía un esfuerzo indescriptible por no llorar; la chica lo miraba como quien mira a un insecto. ¿Por qué uno llega a discutir en el hall de un edificio? En mi experiencia recuerdo que, en general, cuando estallaba un problema imposible de solucionar se decidía que era mejor no verse más, o verse al otro día, pero inmediatamente sucedía algo que lo entorpecía todo: el viaje en ascensor congelaba la escena y la llevaba a un extremo casi insoportable. Al llegar al hall era imposible no discutir un poco más, sin importar la mirada impúdica de los vecinos. Y lo peor era que había que discutir en murmullos, lo que aumentaba la tensión. Era intolerable que la última imagen de la pareja fuese la de los dos descendiendo lentamente en un cubículo espejado. Hoy volví a cruzarme en el edificio a la misma pareja; reían a carcajadas y le contaban a la portera que habían encontrado un Pokémon en la esquina. 
+
+![ganchos](https://64.media.tumblr.com/1e3ba73c457aa398966e170daa331c29/tumblr_inline_pk0l8gtZKq1t6q87u_500.jpg)**Miércoles**  
+ 
+Hoy se retiró Manu Ginobili de la Selección de Básquet. Pese a que Mar del Plata es una ciudad con mucha cultura de básquet a mí nunca me interesó, así que sentí en carne propia la sanción moral de quedar fuera del hecho colectivo. No sé si a otros les pasa lo mismo. Los usuarios de redes sociales y medios virtuales instalamos la idea de que todos los días se debe hablar de un tema en particular y que, en forma implícita, todos o casi todos debemos preocuparnos, o interesarnos en participar. Un día es lo que dijo Gustavo Cordera; otro día, una causa de corrupción del kirchnerismo; otro día, el binomio Macri/Tinelli, o el cansancio de Del Potro. Si no hay nada para decir o el tema en cuestión nos es ajeno (o si, peor, la indignación que genera en los demás no se corresponde con la indiferencia propia) nos recae cierta reprobación: ¿cómo no va a interesarme que Ginobili se despida de la Selección? ¿Cómo no voy a indignarme con las monjas del convento? ¿Cómo no voy a agradecerle a Del Potro que juegue al tenis? A veces creo que la ideología de la actualidad es la sobreactuación. 
+
+**Jueves**  
+
+Hoy la lista aleatoria del Reproductor de Windows me regaló otra gema. La música suena mientras hago cosas así que muchas veces pasan canciones a las que no les presto atención, y no sé de quién son. En los últimos años bajé discografías enteras que ni escuché una vez (cuando hace un par de semanas cerraron el torrent Kickass y encarcelaron a su dueño, sentí que deberían meterme preso a mí también). En este caso, me llamó la atención un tema que sonaba a Joy Division en Argentina y no era Sumo. Cuando abrí la ubicación del archivo me encontré con una banda que conocía de nombre pero nunca había escuchado: Casanovas. El tema en cuestión se llama “Ella es un águila”. Además de eso es un clásico instantáneo, y se parece a Sumo porque el riff de guitarra es igual al de “Nextweek”. El disco es de 1986 y fue producido, por supuesto, por Daniel Melero. Se trata de una obra maestra que exuda la frescura y la arrogancia que sólo pueden tener los jóvenes inconscientes: un rockabilly postpunk que intercala espasmos fiesteros estilo Los Twist, con otros muy oscuros, violentos, propios del lado B de la primavera alfonsinista. Hace un par de años hubo una especie de reivindicación de Los Pillos. Supongo que los Casanovas se merecen la suya (tal vez la tuvieron y yo no me enteré). 
+
+![ganchos](https://64.media.tumblr.com/dd99b5918bd5529d65e38a5625336cd4/tumblr_inline_pk0l8hyzBw1t6q87u_500.jpg)**Viernes**  
+ 
+Ayer River enfrentó a Independiente de Santa Fe en el partido de ida de la Recopa que enfrenta a los últimos campeones de la Libertadores y la Sudamericana. La concreción del match se demoró tanto que River ya no es el último campeón de la Libertadores. Me dormí a los veinte minutos del segundo tiempo. Los culpables de que se le preste atención a estos partidos son los hinchas de Boca. Ellos fueron los que, cuando empezaron a ganar títulos internacionales (creyendo que la racha iba a ser eterna) se dieron cuenta de que nunca iban a alcanzar a River en torneos locales y, para tener supremacía en algo, comenzaron a darle una importancia insólita a cosas como la Recopa, la Interamericana, la Copa Master o la Copa de Oro Nicolás Leoz (!!!). Pero ahora que River empezó a ganar torneos internacionales y por lo tanto juega Recopas, Suruga Banks, Euroamericanas, etc., les parece que estas copas no tienen el valor como para enorgullecerse de ganarlas. Se acordaron muy tarde, amigos. Nobleza obliga aunque River gane la Recopa siempre me va a parecer que sólo alguien que entiende muy poco de fútbol y está muy pendiente de lo “internacional” puede pensar que estos idas y vueltas efímeros tienen más valor que un campeonato en el duro y acaso inexistente torneo local. 
+
+**Sábado**  
+ 
+Extraño la sensación de leer una novela y sentir que mi propia vida se convierte en el telón de fondo de lo que ocurre en ese libro, como si algunos autores tuvieran la facultad extraordinaria de hacer que nuestra vida pase a un segundo plano. Uno está hablando con amigos, en el trabajo, mirando la tele o comprando un vino en el Chino, pero en realidad está pensando en el devenir del sordomudo de *El corazón es un cazador solitario*. Estoy en un periodo en el que no puedo leer libros enteros; cuando quiero leer, lo que hago es elegir varios libros a la vez y abrirlos en cualquier página. Y casi siempre encuentro algo genial, o que creo genial, para justificar el delito ético de mi nueva estrategia como lector. En ese plano, lo mejor es elegir libros de misceláneas. Bioy Casares decía que los libros de misceláneas eran para personas cansadas que no tenían la disciplina necesaria para bancarse un libro entero. Hoy abrí una biografía de Marlon Brando y me enteré de algo sugestivo: una vez secuestraron a su hijo y para que lo encuentren Brando contrató a un detective al que le faltaban las dos manos.
+
+![ganchos](https://64.media.tumblr.com/5520d1f2e7a13e54bcff62146b1fd3bc/tumblr_inline_pk0l8hQI921t6q87u_500.jpg)**Domingo**  
+ 
+Creo que fue sobre el filo del milenio que en Much Music pasaban un programa cuyo conductor era un ciego que contaba sus experiencias en el mundo a través de historias sentidas y contundentes. Nunca volví a ver el programa y a veces me pregunto si existió, pero hubo un episodio en que el ciego viajaba a Mar del Plata y en un momento se acercaba a la vereda del Hotel Hermitage, donde se encuentra el denominado Paseo de la Fama, que cuenta con las huellas de distintas celebridades de la farándula local e internacional. El conductor ciego (lo remarco porque esa era la situación que alimentaba a la sustancia epifánica del programa) probaba el tamaño de sus manos en el molde de las de Charly García. Siempre me quedó grabada esa imagen. Es una de las mejores cosas que vi en la tele. El otro día pasé por el Paseo de la Fama y como no había nadie alrededor hice lo mismo. Lo que más me llamó la atención, sin embargo, fue que al lado de la baldosa de Charly están las manos de Carmen Barbieri y abajo ¡las de Willem Dafoe! Es una explicación bastante gráfica de lo que es Mar del Plata. 
+
+  
+
+
+
+
+---
+
+ Martín Zariello
+----------------
+
+ Martín Zariello es narrador y bloguero. Es autor de ‘Sobre el rock’ y ‘En realidad quería hablar de otra cosa’ (Puente Aéreo Ediciones). Su blog es Il Corvino.
+

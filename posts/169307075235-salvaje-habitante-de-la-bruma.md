@@ -1,0 +1,40 @@
+# Salvaje habitante de la bruma
+
+**Enemigo de la paciencia desde antes de sumergirse en la ansiedad, Chacón se cruzaba con sus libros sin condescender a esperarlos. Murió el lunes.**
+
+4 de enero de 2018 - Free shot
+
+_por Juan José Becerra_
+
+Link original: https://laagenda.tumblr.com/post/169307075235/salvaje-habitante-de-la-bruma
+
+![Free shot](https://64.media.tumblr.com/1b605d43cc140744f4222581e45a4415/tumblr_inline_pk0ct4T8OU1t6q87u_500.jpg)
+
+Pablo Chacón era un detective salvaje. Ya en la decisión de moverse de un lado a otro desde los veinte años y por un objetivo indeterminado, a espaldas de las horas productivas, con amigos incidentales que llegaban como luces y se iban como brumas en el desierto, estaba asegurándose su porvenir de soledad y noches que terminan en la noche siguiente. 
+
+Vayamos a buscarlo allí donde esté vivo, que es el gancho que puede rescatar al réquiem de su oleaje de grandilocuencia. O sea: nada de Mozart. En esa memoria diurna Chacón aparece en una esquina de La Plata (4 y 49, una especie de plataforma de fin del mundo donde durante muchos años no hubo nada), hace mil años, rodeado de un grupo de discípulos. ¿Qué era él entonces? Un gran lector joven, y un consumidor de libros preciosos que solía liquidar en las librerías de usados a primera hora del día, cuando se le acababa la nafta súper de la madrugada. De ese mercadeo conservo un ejemplar de Barthes por Barthes, de editorial Kairós, subrayado sobre regla en tinta roja y negra. Lo compré usado y cuando lo abrí leí su nombre escrito con su caligrafía de mujer pequeña y vi en los subrayados (que subrayaban casi todo) la enfermedad de la lectura y el enloquecimiento de la interpretación que no se ha decidido del todo al acto de discriminar y, por lo tanto,  se entrega a calcar en la lectura lo que escriben los otros.
+
+Chacón era un distribuidor de nombres de la segunda mitad del siglo XX: Laurie Anderson, Phillippe Sollers, Tom Waits, Jaques Derrida, Gilles Deleuze, Paul Bowles, los beatniks. Música y aventuras en inglés, prosa francesa del pensamiento. Ese rango de gustos o necesidades le daba un perfil de extranjero, habitante de un mundo sin argentinos que no fuesen excepciones: un poco de Borges (ahí: a la distancia), o el programa Peor es nada de Jorge Guinzburg y Horacio Fontova, que le cubría como un antibiótico de amplio espectro la infección de la gravedad. Entonces éramos tres habitantes (junto con L.V) en un departamento oscuro cuyo recuerdo no puede alegrar a nadie pero que, sin embargo, se ilumina como comedia inmobiliaria si se reconoce que allí se batió el récord mundial de punitorios y cartas  documento en contra bajo los cuales Chacón –ya baqueano en pagar con libros- perdió olímpicamente su biblioteca.   
+
+En 1991 abandoné el departamento, me casé en la Catedral de La Plata (no juzguen, por favor) y le pedí a Chacón que fuera mi testigo. Sólo su presencia podía diluir las piedras arcaicas de semejante teatro. Entonces Chacón fue a la Catedral durante varios días, hizo un curso de introducción al padrinazgo de fe en las catacumbas y tomó apuntes sobre el interesantísimo paso a paso del Método Billings. En la ceremonia, su cara de ángel degenerado se salía de la vaina recortado como una caricatura alrededor de su traje gris, antes de deslizarse a lo Maradona ’86 hacia una fiesta que terminó cuando él se fue.
+
+![](https://64.media.tumblr.com/1b605d43cc140744f4222581e45a4415/tumblr_inline_pk0ct4T8OU1t6q87u_500.jpg)Sobre cómo narrar pedía consejos con el único propósito de desoírlos.
+
+Después pasaron veinte años de mucho lenguaje (mails diarios, llamadas telefónicas a horas desesperadas) y pocos encuentros, generalmente en San Telmo, donde la conversación de fondo era siempre la misma. Yo: “dejá de tomar esa mierda, te lo pido por favor”. El: “te lo prometo, te lo prometo”. Por debajo del afecto incondicional que toda la vida sentí por él y sus debilidades, operaba el miedo. Su amor a la oscuridad y a la totalidad (versión positivista de la Nada), probado mil veces en su adicción que no era tanto a la noche en vela como al día después (es decir al hemisferio depresivo que cubre la llegada del día con su baño de hielo), así como su tremenda disciplina para la autodestrucción que llevó a cabo mediante un plan sin desmayos, impedía acompañarlo hacia donde fuese que estuviera yendo, siempre un paso más adelante que los demás.
+
+Como saltos hacia arriba ocurridos en la continuidad insobornable de la melancolía, Pablo Chacón entrevistó a mil personas, reseñó mil libros y publicó los suyos, algunos de los cuales tuve el gusto de leer “en seco”, como Digestión lenta, Insuficiencia y Nudo de piedra, todos ensayos sentimentales sobre las variantes de padecer el amor a las profundidades interiores y la idea de que la enfermedad es el único hilo de la vida. Sobre cómo narrar pedía consejos con el único propósito de desoírlos. Enemigo jurado de la paciencia desde mucho antes de sumergirse en la droga de la ansiedad, Chacón se cruzaba con sus libros sin condescender a esperarlos un solo minuto. Un verdadero poeta maldito no se embarca en el Courier puerta a puerta del Método, no calcula, incluso no escribe si al hacerlo debe pagar con la vergüenza de la integración.
+
+La onda de Chacón era escribir todo, valga la inocencia. Escribió literalmente sobre cualquier cosa, desde sindicalistas pesados hasta terapia de aromas, pero su escritura padeció la debilidad de la poesía, o más bien la atracción por el acto poético, errático y romántico, es decir por lo poco que pueda decirse en palabras de todas las inmensidades que rodean al hombre que escribe.  
+Hay que retroceder hasta su primera poesía confesional, que se clava en la intimidad “novelesca” (El grano del invierno, de 1994), para entender por qué ardió como lo hizo. Y sobre todo hasta El espía (1997): “Al viejo ya le veo el compás reconcentrado/ la mente/ como una habitación vacía/ y alta/ entre nubes”. La grandeza de la derrota es una poesía que se hace sola. Basta saber esperar para ver que la vida tiene su literatura épica en la pérdida por rotura o desgaste. “Olvidar lo que pasó/ vender la casa/  entregar las llaves/ el gato/ borrar la agenda:/ empezar de cero/ es una ilusión que puede cultivarse un tiempo”. 
+
+Lo vi por última vez en mayo de 2015. Quedamos en encontrarnos en el Club de Pescadores de Mar del Plata, donde se hizo un FILBA. Lo esperé como a un barco y lo vi llegar espectral, piropeando chicas y abatido por el malestar general de su existencia. Estaba en la casa de un tío, sin Internet, al borde de perder el trabajo, entablando relaciones imposibles con mujeres problemáticas y angustiado por no poder continuar una novela de espíritu autobiográfico en la que la negrura de los recuerdos lo llevaba hacia atrás. Le dije que hiciera el esfuerzo de traer los recuerdos hacia delante. Me contó un episodio de fines de los años ’90. Un dealer al que le debía plata lo llevaba de acá para allá y le convidaba cosas. Era el reaseguro para soñar con la posibilidad remota de cobrarle la deuda. Se sumó X, un tercer detective salvaje al que Chacón nunca había visto en su vida. Los tres emprendieron el caravaneo durante un par de noches. Al cabo cayeron, como la gacela al estero infestado de cocodrilos, a una pizzería de Corrientes. Se sientan. De pronto ven que X apoya la cabeza en una columna y ya no cuenta el cuento. Chacón y su acreedor se turnan para ir al baño y desaparecen. A los dos días, los diarios reportan el hecho del hombre solitario que murió en una pizzería. Le dije que ya mismo tenía que ir a escribir esa historia, que era la de una tragedia del pasado, o sea: una comedia negra servida en bandeja. Pero me contestó que lo había intentado y el recuerdo lo lastimaba (todavía estaba viviendo en él). Quedamos en vernos al día siguiente, y todavía lo estoy esperando
+
+
+
+---
+
+Juan José Becerra
+-----------------
+
+ Juan José Becerra es escritor, ensayista y crítico cultural. En Twitter es  [@jbecerra2012](https://twitter.com/jbecerra2012?lang=es). 
+

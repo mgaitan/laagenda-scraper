@@ -1,0 +1,173 @@
+# Será una fiesta
+
+**A pocas horas de entrar al quirófano, otra vez aprender a dormir, aguantarse las ganas de verlo hasta que las tetas me gusten tanto como para mostrárselas.**
+
+11 de octubre de 2020 - Diario del domingo
+
+_por Camila Sosa Villada_
+
+Link original: https://laagenda.tumblr.com/post/631524108603211776/diario-del-domingo-ser%C3%A1-una
+
+![](https://64.media.tumblr.com/71eff03f71beb31e5e16315a356346e1/d14128fc297dfc39-b3/s500x750/8f873490bb467a179f8b7be29cba97e995e67eb2.jpg)Querido diario: 
+
+He decidido ponerme
+las tetas. No sé si recuerdes, pero allá por el 2016 ya había hecho el intento,
+me había acercado a la idea y andaba con unos ahorros encima y tenía un duelo
+que hacer, porque Pepito ya no estaba en mi vida, estaba cruzando el atlántico
+en su querida Barcelona, iniciando para siempre un viaje distinto al mío. Y no
+sé por qué el bichito de las tetas prendió entonces, después de mi Oda a las
+tetas, cuando me di cuenta que extrañaba el poder que daban unas tetas y eso
+que las que yo tuve eran de goma espuma, ya sabés, eran hijas de un colchón que
+me traje de la calle. En esa época, los nuevos ricos de la cuadra arrojaban
+todo tipo de lujo a las veredas, como si sus casas no resistieran ni el asomo
+de un deterioro, como si en sus casas, los muebles viejos, los artefactos
+viejos, las lámparas pasadas de moda, se rechazaran absoluta e
+irrevocablemente, como si despreciaran cualquier dejo de humanidad. Que es un
+jarrón rajado, un sillón con una pata coja, más que el rastro de los humanos en
+las escenografías del mundo. Y yo recuerdo ese poder, algo sobrenatural que
+experimentaba bajo los corpiños al salir a la calle con mis tetas de títere
+berreta. Una se sentía como una bola de fuego, las tetas eran la boca de un
+dragón, algo que ponía un espacio entre el mundo y nuestra conciencia. Las tetas
+hacían lugar, daban aire y se podía respirar y acontecía, en la mirada de
+algunas personas, una tristeza que se los chupaba hasta instantes irrecuperables
+en sus vidas. No el amamantamiento, qué obviedad diría entonces, no. De ninguna
+manera es ese recuerdo. Es el recuerdo del amor. Cuán involucradas están las
+tetas siempre en el reinado del amor. Los pezones son prácticamente un espacio
+en carne viva. Y mientras escribo esto, afuera una mujer aúlla como si quisiera
+arruinarle la noche al barrio, como si quisiera que dios se enterara de su
+desgracia. Ay, las mentiras dichas para que no las toquen, a mis tetas falsas,
+digo. El tiempo espeso de la humillación cuando no respetaban el límite e iban
+más allá, hasta la mentira de unas tetas de goma espuma del color de la
+amargura. Pero no son tuyas. O como cuenta la Claudia Rodríguez en un poema,
+que un cliente le dice: “Ay qué tetitas tan chiquitas”.
+
+Después ya sabés, Cris
+Miró y Batato Barea murieron al poco tiempo de ponerse las tetas. Era injusta
+la vida en ese entonces, mirá que hay que ser malquerido para no dejar
+disfrutar de sus tetas a una persona. Entonces me hago un fantasmita, para
+castigar este deseo, el deseo de ser rellenada como la pechuga de un pavo con
+375 centímetros cúbicos de cada lado, de una baba espesa que imita la textura
+de los pechos de las mujeres de cierta edad. Me imagino que después de ponerme
+las preciosas tetas que planeo ponerme, el fantasma de la vanidad se lo cobra
+con mi vida. Y estará bien, el cadáver será joven y no moriré pobre. 
+
+También pienso en que
+mi mamá cuenta que no quise tomar la teta. Que la leche se le fue porque no
+quise tomar la teta. Soy, lo que se dice, una beba de fórmula, me alimentaron
+con un polvo que suplantó la comida de mi mamá. Tal vez por eso encuentro que
+su comida es la más deliciosa del mundo y eso que he comido mucho y variado.
+Nos mantuvimos distanciadas de ese erotismo y ahora, su lasagna seguramente
+sabe mejor que su leche. 
+
+Te confieso que luego
+del fracaso de mi intento tetánitrónico allá en el 2016, fue finalmente un
+alivio, algo liberador. Cuando el dólar se fue al doble o al triple, en junio
+de ese año, y no pude ponerme las tetas porque los precios se pusieron
+imposibles y me deprimí y no sé por qué, fue el año en que hablé del primer
+abuso que sufrí cuando tenía apenas diez años. Se lo conté a mi analista. Y
+luego se lo conté a Paco Giménez, mi maestro de teatro, mi pequeño Pai Mei, el
+dulce rigor del teatro y recuerdo con los ojos llenos de lágrimas cómo lo vi
+llorar durante ese almuerzo en que fui con mi pequeña vida abierta como una
+boca dando un grito y le conté de un beso que me abrió en canal y me dejó
+partida para siempre. Lloró con ese gesto de quien quiere tragar la pena y
+tiene la garganta cerrada. Esa es tu fuerza, me dijo. Y me tomó las manos y
+lloró un poco más y una piedad más enorme que el amor me inundó entonces y lo
+quise mucho porque lo sentí herido como yo ofreciéndome sus lágrimas sagradas,
+porque son las lágrimas del hombre que me enseñó un lugar desde dónde pararse a
+leer el mundo. No sé cómo una cosa llevó a la otra, pero el no haberme podido
+poner las tetas me llevó a hablar de esto que tenía en el cuerpo desde hacía
+tantos años, mordiendo, clavando su líquido, el goteo de su veneno. 
+
+Y pasó el tiempo y me
+ocupé en pensar otras cosas y una mañana, caminando por Santa Fé, él me dijo:
+¿Sabés qué tendríamos que hacer para deconstruirnos vos y yo? No, no sé, le
+respondí yo. Y él dijo: Tendrías que regalarme una flor. Y yo quise regalársela
+pero nos íbamos de compras porque esa noche cantábamos y fue preferible
+caminar. Y me dijo: no te operes las tetas, Camila. Tenés unas tetas hermosas. Son
+hermosas tus tetas así como son. Y todo ese paseo fue como un bocado de eso que
+la gente llama amor, un chasquido de dedos dentro de una acústica insondable y
+eterna. Y todo ese viaje y esos conciertos en que lucíamos como venidos de una
+caravana, y era imposible sustraerse a ese encanto.
+
+Y cuando me reencontré
+con el amor de mis amores, el de ahora, el de todas estas páginas, él tenía una
+relación tímida y adolescente con mis tetas. No es que fuera muy talentoso, no,
+era más bien obstinación, aprendizaje, como todo lo que hace en su vida, con la
+determinación de aprender algo. De modo que en esos revolcones dignos de
+¡Átame!, el insistió con su lengua y encontró que ellas le respondían, que le
+decían cosas obscenas y pecaminosas, que eran como clítoris laxos muy muy
+sensibles. Y ya no fue importante el asunto de la silicona. Hasta que me crucé
+a Lola y sus tetas me dejaron atónita y su felicidad era como una bestia que
+danzaba a su alrededor, feroz y perfecta y fui mordida por ella. Pero no era
+tan solo el asunto del escote, era su felicidad, era la alegría que esas tetas
+le daban. La alegría de la juventud, la alegría de saber que no hay pezón que
+no participe de un acto de amor, al menos una vez en la vida y que ese momento
+es un bautismo. La Lola y sus tetas eran todo lo que estaba bien en el país, en
+la avenida Colón al 900, en Alberdi, bajo la gloria de este smog y de estos
+edificios desoladores. Quién no codicia una alegría como esa, alguna vez. 
+
+Y al tiempo dije, me
+gustaría recibir los cuarenta con tetas, pero no te pongas mucho, mirá que sos
+actriz, no te pongas mucho que vas a perder tu estilo, te diría hasta que son
+sexys tus tetitas, pero sí mi amor opérate, ponete una buenas tetas y recibite
+de travesti de una buena vez. Y Las Malas dieron sus frutos en pesos y le pedí
+el contacto de su cirujano a la gran Lola del pueblo y aquí estoy, a punto de
+ser abierta, a punto de suturar una parte divina de mi pasado, cuando le rezaba
+a la virgen, triste marica de pueblo, por un par de tetas. Con esos bigotes
+ralos que a escondidas te arrancabas con la pincita de depilar de tu mamá. 
+
+Se habrá tratado del
+tiempo. No lo sé. Pero las cosas llegaron y mi paciencia se trató de seguir la
+vida, de ir para donde la vida iba sin pensármelo mucho. Las cosas sucedían y
+tarde o temprano, algo del pasado, como la mística de un adolescente campirano,
+se cose a la gloria de ser quien soy, con toda esta mierda que arrastro, con
+todo este resentimiento maldito y con todos los colores de los que soy capaz,
+todas las formas de belleza que puedo hacer con las manos. Y aquí estoy, a
+pocas horas de entrar al quirófano y me apresuro para escribirte, para que
+ninguna lectora se quede sin su bocado de carne travesti echada al mostrador,
+así como a tantos y a tantas les gusta, así escupo que estoy a pocas horas de
+estar en esta misma cama con mis señoras tetas, hijas de Las Malas, compradas
+en buena ley, rubíes, piedras preciosas, camilita con tetas, otra vez a esos
+asuntos de aprender a dormir, de aguantarse las ganas de verlo hasta que las
+tetas me gusten tanto como para mostrárselas a él y dejarlo seguir creciendo,
+ese cachorrito que me encontré en la calle y traje a vivir conmigo una vez a la
+semana. El hombre que me ama cuando se emborracha o está casi dormido, el
+hombre que me ama mientras duerme. El hombre para el que poso con un gesto
+aristocrático y guarro, una ecualización muy fina que logro cuando me encuentro
+con él. Y te mentiría si no te dijera que estas tetas son un poco para él, son
+un juguete nuevo para nuestro amor, para mi amor con él, son la alegría de ser
+travesti y hablar con otras travestis y preguntarles, oiga comadrita cómo es
+que le fue asté con las tetas y oír las respuestas más maravillosas del mundo,
+el amor mismo hecho tetas, todas las travestis conspirando por mis tetas y mis
+amigas y mis amigos, todos deseando que lo de mis tetas salga bien. Que disfrute
+mucho de mis tetas. 
+
+Y pienso en que las
+travestis somos la especie más bella que existe sobre la tierra, después de los
+lapachos y los perros. Que nos merecemos las tetas y los amores que nuestras
+hambreadas imaginaciones inventen. Que así como lo deseamos, tiene que ser. Es
+palabra de dios. 
+
+PD: Todo este fin de
+semana estuve entre sus brazos. Vino a despedirse de sus antiguas amantes.
+Hicimos el amor como si no hubiera mañana. Tres, cuatro veces por noche. Hacer
+el amor con él es muy parecido a escribir. Aunque mientras estoy en cuatro
+patas para él, posando como una vieja estrella porno que encontró alguna
+insinuación de elegancia en su camino, sé con todo mi cuerpo, con las
+terminaciones nerviosas de mi culo enamorado, que esto no es más que el libro
+de nuestro amor. Incluso las tetas. Es el libro de nuestro amor el que
+escribimos desde hace tantos años.
+
+Y tú querido lector,
+cuando leas esto, sabrás que hace tres días tengo mis tetas nuevas y que será
+una fiesta. 
+
+
+
+---
+
+Camila Sosa Villada
+-------------------
+
+ Nació en 1982 en La Falda (Córdoba). Tiene tres libros publicados: La novia de Sandro, El viaje inútil y Las malas. Fue prostituta, mucama por horas y vendedora ambulante. En Twitter es [@lanoviadesandro](https://twitter.com/lanoviadesandro) 
+

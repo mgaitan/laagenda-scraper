@@ -1,0 +1,36 @@
+# Desde lejos no se ve
+
+**Como su chispeante protagonista (Daniel Craig),**
+
+12 de diciembre de 2019 - Estrenos
+
+_por Maia Debowicz_
+
+Link original: https://laagenda.tumblr.com/post/189626353510/desde-lejos-no-se-ve
+
+![](https://64.media.tumblr.com/92711d213cc150ed56fe9a3ade6c5c41/7958e9b630c19b0a-cf/s500x750/e110c569f164a7e6591566ef71fabefb54fafdf4.png)### *Entre navajas y secretos*, de Rian Johnson (Estados Unidos, 2019), 130´
+
+  
+
+
+En 1814, el mismo año que George Stephenson construye su primera locomotora y Napoleón Bonaparte es enviado al exilio en la isla de Elba, Edgar Allan Poe inaugura el género policial con las aventuras de su detective Auguste C. Dupin. Protagonista de los cuentos *Los crímenes de la calle Morge*, *La carta robada* y *El misterio de Marie Roget*. Con esos relatos, y el personaje del detective científico y perspicaz, el escritor norteamericano no sólo funda el policial, también el subgénero del “policial de enigma”. Y en esa acción le abre la puerta a la parodia, de manera voluntaria o accidental. No es casualidad la fecha: este personaje nace con el avance de la ciencia criminalística como forma de investigar y resolver crímenes. En 1892, Sir Arthur Conan Doyle populariza este género y este perfil de investigadores con su Sherlock Holmes. Elemental, Watson. Que pese a protagonizar apenas una docena de relatos y algunas novelas quedó en la historia como la cristalización del detective excéntrico, de moral estricta. Obsesivo, caprichoso, desconcertante y capaz de ir desenredando los misterios en base a deducciones impensadas. Bien a tono con el furor por el positivismo científico, donde la gente de ciencia era mostrada superior al resto. 
+
+Dentro de ese mundo y sus leyes hubo varias modernizaciones del género del policial de enigma, como las historias del Padre Brown del inglés G. K. Chesterton. Sin embargo la más exitosa e influyente fue  Agatha Christie, cuando en los años 20 presentó a su detective Hercule Poirot. Una suerte de Sherlock Holmes, pero amable, que se hace el despistado y resuelve los casos más extraños. Con un singular tono jocoso e irónico que envuelven al detective y su ayudante, Christie renueva el género retorciendo aún más los crímenes y sus resoluciones. Con libros como *Asesinato en el Orient Express*, aquella novela en la que todos los sospechosos son culpables del asesinato. Pero, más allá de los engranajes narrativos, a Christie lo que interesaba era describir a una nobleza decadente y falta de fondos y una burguesía resentida dispuesta a matar por un poco de dinero.
+
+Rian Johnson se hace el famoso peinado recogido de Agatha Christie para crear en *Entre navajas y secretos* a su propio detective, Benoit Blanc. Interpretado por un Daniel Craig afilado como el cuchillo que cortará la garganta de la víctima: Harlan Thrombey (Christopher Plummer). Un escritor millonario de 85 años que carga con el interés desmedido de sus respectivos herederos. Un desfile de familiares miserables que giran ávidos alrededor de su fortuna como abejas en un panal. Personajes encarnados por actores no solo con exceso de carisma, sino también con un pasado cinematográfico y televisivo tan pesado que arrastran consigo los cadáveres de los íconos pop que han amado interpretar.  Jamie Lee Curtis luchando contra Michael Myers en *Halloween*, Don Johnson con su camisa floreada y pelo al viento persiguiendo narcotraficantes en *Miami Vice*, Toni Colette luciendo un vestido blanco en *La boda de Muriel*, Michael Shannon y su reciente papel de torturador de monstruos en *La forma del agua*, Chris Evans defendiendo el bien en su traje de Capitán América. Y, a un costado de los beneficiados monetarios, también está Frank Oz, el hombre que le dio forma y voz a Yoda, y a tantas criaturas de Los Muppets. No es una elección menor: el espectador se pierde en esos rostros que protagonizaron películas que vimos una y otra vez hasta aprender los diálogos de memoria. 
+
+
+
+Johnson, el director, nos distrae para que no descubramos la verdad que se esconde entre los objetos de antaño que brillan en el plano. La puesta en escena se nutre de esculturas de bronce y muñecos con gestos inquietantes. Alfombras persas y bibliotecas de madera oscura. Los encuadres están llenos de información, de datos valiosos que revelan el crimen. Johnson no hace trampa, es prolijo y dedicado como la joven enfermera de Harlan, Marta Cabrera (Ana de Armas). Un personaje clave en la historia. El director de *Looper* (2012) y *Los estafadores* (2008) no esquiva un tema que suele estar presente en el policial de enigma (o ‘'whodunit’’): el desprecio por las clases bajas y los inmigrantes. Al contrario, lo enfrenta y actualiza. Marta nació en Paraguay. Solo Harlan, su paciente y amigo, recuerda cuál es su país de origen. El resto de la familia comenta entre conversaciones que es de Uruguay, mientras otros dan por sentado que creció en Brasil. Johnson nos sienta en los ojos de una inmigrante discriminada por una familia rica en pleno gobierno de Trump. Es, sin dudas, la película más política del director que fue odiado por una horda de fanáticos cuando estrenó en 2017 *Star Wars: Los últimos Jedi*.
+
+En la primera secuencia un par de enormes perros corren en cámara lenta hacia la cámara. Detrás de ese trote salvaje se encuentra la mansión de ladrillos a la vista donde ocurrirá un crimen que tendrá, como en una novela de Agatha Chistie, mil y un vueltas de tuerca que nos tumbarán al piso con la fuerza que lo harían los perros entusiastas de Harlan. En esa imagen, una de las pocas filmadas en exteriores, se condensa el gran enigma y su resolución. Pero no es la única, la decoración de la casa habla por sí sola. Y uno tiene que ir encontrando esas pistas como si estuviéramos buscando a Wally y su sweater a rayas rojo y blanco en medio de una playa veraniega. En uno de los primeros cortos de Johnson también se oculta la explicación de *Entre navajas y secretos*:  [Evil Demon Golfball from Hell!!!](https://www.youtube.com/watch?v=e79yMomxHwQ), filmada en 1996, retrata a un joven que luego de asesinar a un hombre es perseguido por la pelota de golf de la víctima. Un objeto que pica y pica a su alrededor provocando que todos lo miren. Una posible versión de *El corazón delator*, de Edgar Allan Poe, donde el asesino no sabe convivir con los remordimientos. Aquel excelente cortometraje tiene como director de fotografía a Steve Yedlin, la misma mirada obsesiva que compone en fila para un lado y para el otro en cada plano de *Entre navajas y secretos*. Donde el centro de la trama es señalar a un culpable. Como el personaje chispeante de Daniel Craig, el Sr. Blanc, esta película coral es caballerosa y delicada. Graciosa sin que al enigma se lo devoren los chistes. Es, desde *Evil Demon Golfball from Hell!!!,* su film más potente y redondo. Capaz de hipnotizar al espectador con el sonido que despide una tecla de piano. La pelota de golf que coprotagonizó su corto de 1996 también está presente en *Entre navajas y secretos*. Solo hay que saber verla y escuchar. 
+
+
+
+---
+
+Maia Debowicz
+-------------
+
+Es periodista. Escribe en Suplemento SOY (Página 12), Haciendo Cine y El Amante. En Twitter es [@Maia\_Debowicz](https://twitter.com/Maia_Debowicz).
+

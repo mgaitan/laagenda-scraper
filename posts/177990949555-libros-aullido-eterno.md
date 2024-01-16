@@ -1,0 +1,43 @@
+# Aullido eterno
+
+**La edición de**
+
+12 de septiembre de 2018 - Libros
+
+_por Walter Lezcano_
+
+Link original: https://laagenda.tumblr.com/post/177990949555/libros-aullido-eterno
+
+![](https://64.media.tumblr.com/0e7dffa73fa1534c976dd9d4e52bc8ed/tumblr_inline_peymci4tuJ1t6q87u_500.jpg)
+Estamos en 1948. Precisamente en el East Harlem de Nueva York, una ciudad que no tiene ningún aura romántico ni arty ni glamoroso. Más bien es un territorio barato donde conviven pobres y bohemios y algún que otro artista sin suerte. Un poeta todavía desconocido que responde al nombre de Allen Ginsberg no está muy contento con su vida. Trabaja cerca de su casa en una redacción que no le importa y tampoco le paga mucho, tiene algunos problemas familiares que incluyen demencia materna y padre sobreprotector, sus bolsillos están casi vacíos de forma crónica porque se lo gasta todo por las noches con sus amigos insaciables que responden a los nombres de William Burroughs y Jack Kerouac y –tal vez lo más importante y lo que en verdad le quita el sueño- sus poemas no tienen la complejidad, la vibra, la chispa, el encanto, cómo sea: no tienen la relevancia y la trascendencia que él espera para sus textos. A pesar de que el extraordinario poeta-faro de su generación, William Carlos Williams (un dato nada menor: Ginsberg nació en Paterson), halagó algunos de poemas, como por ejemplo “La hora del almuerzo del albañil”, y lo instó a que publique su material, él siente que su relación con la poesía no termina de despegar. 
+
+¿Qué hacer? Se lo preguntó Lenin y esa tarde de 1948 mientras regresaba a su departamento también se lo preguntó Allen Ginsberg. No había ninguna respuesta posible a la vista. ¿Seguir escribiendo? ¿Dejar la escritura? ¿Enloquecer? Para esto último todavía faltaba. Lo que es seguro es que luego de hacerse esas preguntas, el poeta se acostó, se puso a leer y tuvo una visión con un poema de William Blake, de quien Ginsberg era un verdadero fan, y su escritura desde ese momento pudo, finalmente, alcanzar una altura inigualable. Muchos años después describió así esa visión: “Al mirar por la ventana, a través de la ventana y hacia el cielo, me dio la súbita sensación de que estaba contemplando las profundidades del universo contemplando aquel cielo antiguo. El cielo me pareció súbitamente muy antiguo. Y se trataba del mismo lugar antiguo del que estaba hablando [el poema de Blake], el dulce clima dorado, ¡y de pronto comprendí que aquella experiencia era eso! Y que yo había nacido para poder experimentar ese momento preciso, para entender de qué iba todo.” 
+
+La aparición en la mesa de novedades de la monumental y necesaria antología *Allen Ginsberg Esencial* (Anagrama) representa la puesta al día –para contrarrestar la levedad y sedentarismo millennials y el cinismo obligatorio de la época- de una vida realmente extraordinaria puesta en función de llevar adelante la inquietud decidida y de hacer real una vida que tenga la esencia, el pathos, el dictum de la poesía. 
+
+Es en la construcción de ese camino, que duró más de siete décadas en el planeta tierra, que Allen Ginsberg (1926-1997), y su poesía y su participación dentro de lo que fue el movimiento Beat, que su Obra vitalista puso filtrarse en el corazón mismo de la cultura popular del siglo XX y del siglo XXI. 
+
+En el capítulo dos de la temporada número siete, Bart Simpson destruye el centro de mesa feminista que su hermana Lisa había armado para el Día de acción de Gracias y luego se fuga del hogar. Mientras la policía lo busca, Lisa sube a su cuarto, triste, y escribe un poema. Sus primeras líneas son: “He visto las mejores comidas de mi generación destruidas por la locura de mi hermano.” Esta es una cita directa a *Howl*, el poema que le dio trascendencia mundial a Allen Ginsberg y quizás sea uno de sus poemas más reconocidos. Y comienza así: “Vi las mejores mentes de mi generación destruidas por la locura/hambrientas histéricas desnudas/ arrastrándose por las calles de los negros al amanecer en busca de/ un colérico pinchazo”. 
+
+Esta intertextualidad es solo una de los tantos puentes que la poesía de Allen Ginsberg pudo edificar con los modos de vida que parecen estar por afuera de los alcances de la literatura. Pero no es tan simple como suena porque también lo vemos a Ginsberg en un 
+
+![Katie Ledecky](https://64.media.tumblr.com/14bf11afdb7e516aef9f6173a8bd47ef/tumblr_inline_pey6myxBmy1t6q87u_400.jpg)*No Direction Home**Allen Ginsberg Esencial*¿Realmente de qué está hecha la vida de un escritor? ¿Qué pasa ahí, por afuera de los libros y la producción que termina en un papel publicado? Después de todo: ¿hay algo más que eso? Si los *Diarios de Emilio Renzi* de Ricardo Piglia, y todos los buenos Diarios en general intentan responder este cuestionamiento, este ladrillo que reúne los diversos intereses de Ginsberg (las piezas de un rompecabezas complejo) también puede arriesgarse a responder sobre las maneras que adquiere la vida de alguien que dedica sus días a la literatura. Desde esta perspectiva, hacer un recorrido por sus *highlights* poéticos (*Howl*, *Kaddish*, *The Fall of America*, entre otros), sus canciones, sus ensayos (verdaderos y emocionantes panfletos libertarios), los fragmentos de sus *journals*, su imprescindible correspondencia con sus compañeros de la generación Beat (pero también con otras mentes lúcidas como el legendario Ferlinghetti y Robert Creeley, entre otros), sus entrevistas (reveladoras por ir al hueso del trabajo creativo y un taller literario portátil en sí mismos) y sus fotografías (una de las cuales se utilizó como tapa de la preciosa edición nacional de los *Diarios* de Jack Kerouac de Editores Argentinos, lo que es una muestra más de que su arte sigue vivo y rompe las barreras territoriales-cronológicas) significa reconstruir una vida donde todas las piezas se ensamblan para conforman una existencia que buscó aquello que enunció el poeta Mario Santiago Papasquiaro (haciendo un cover de un texto de Gilberto Owen) y luego utilizó de epígrafe Roberto Bolaño en *La pista de hielo*: “Si he de vivir que sea sin timón y en el delirio”.
+
+![ganchos](https://64.media.tumblr.com/34b6b338fd9aba80d5a9ed7d00c7f099/tumblr_inline_pey6mzyAob1t6q87u_500.jpg)Beat & Pop. Robbie Robertson, Michael McClure, Dylan y Ginsberg.La utilización de las drogas como combustible posible para crear y expandir la consciencia, el rol del Estado en la vida cotidiana de los ciudadanos, los viajes y los desplazamientos como modos de aprendizaje paralelo a las institución educativa, la lectura y la familia, los amigos como Maestros, las elecciones individuales respecto de la sexualidad y el género, el desprecio por el linaje y la herencia, despilfarro indiscriminado del dinero para llevarse a la tumba nada más que recuerdos, y un largo, larguísimo, etcétera, son algunas de las temáticas que podemos encontrar en *Allen Ginsberg Esencial* pero que en la voz y la forma sonora de un poeta adquiere una relevancia mesiánica, avasallante y, sí, totémica. No por nada estamos frente a un fan de Walt Whitman, que –como sabemos- era grande y contenía multitudes. Ese es el tono que pudo y supo conquistar Ginsberg para sus mejores poemas y cuando quiere decirle al mundo (utilizando el género literario que se le cante en el momento) que la manera que encontró de existir fue fundiendo obra y vida, arte y rutina, consciencia y creación, belleza y poesía. 
+
+Mientras que *Allen Ginsberg Esencial* da vueltas por todas las librerías, tiene lugar en estos momentos una suerte de invasión Beat en nuestro país. ¿Es que acaso Argentina es la conexión latinoamericana de esa generación que nació en los ´50 y que se resiste a desaparecer? Esto sucede ahora: la editorial Cuenco de plata se empecina, saludablemente, en poner al alcance de todos dos de las obras más complejas de William Burroughs (*Ciudades de la noche roja* y *Los chicos salvajes*), la editorial Editores Argentinos ya publicó los Diarios tempranos de Jack Kerouac, y volvió a las librerías la correspondencia impresionante entre Ginsberg y Kerouac. Pero no es lo único. Acaba de aparecer la reedición de la obra beat por excelencia de estas tierras: *Sobre Sánchez* (Mansalva) de Osvaldo Baigorria.
+
+¿Qué nos dice todo este movimiento editorial que nos inunda? La enseñanza es clara y ya la enunciaron los Infrarrealistas en los setenta (el movimiento creado por Roberto Bolaño & Cía. y que eran hijos de los Beats): “Déjenlo todo, nuevamente láncense a los caminos.” 
+
+  
+
+
+
+
+---
+
+Walter Lezcano
+--------------
+
+ Walter Lezcano es periodista, narrador y docente. En Twitter es [@lezcanowalter.](https://twitter.com/lezcanowalter) 
+

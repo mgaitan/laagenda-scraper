@@ -1,0 +1,50 @@
+# Libros de dientes afilados
+
+**Dos nuevas editoriales se abocan por completo a publicar antologías de horror, retomando una tradición que hizo fuerte Elvio Gandolfo.**
+
+28 de julio de 2016 - Literatura
+
+_por Gustavo Nielsen_
+
+Link original: https://laagenda.tumblr.com/post/148093948080/literatura-libros-de-dientes
+
+![](https://64.media.tumblr.com/1badf7ff084f8400543daa7c399ea012/tumblr_inline_pjzzxqwP6u1t6q87u_500.jpg)
+Qué buenos los tiempos en los que el miedo era simplemente literario. A mí me pasó primero con Quiroga. Mi hermana Fernanda me regaló *Cuentos de amor, de locura y de muerte* porque se lo pedí, y la misma noche que cumplí siete años leí “El almohadón de plumas” y “La gallina degollada”. El libro se me escurrió de las manos hasta el piso. 
+
+La siguiente experiencia de horror la tuve a los diez, cuando leíamos con el gordo Espinosa en los recreos los *45 cuentos siniestros* recopilados por Samuel Wolpin y Elvio Gandolfo para Ediciones de la Flor. Esa antología debería volver a publicarse: aún hoy puedo contarles unas treinta de sus historias, de memoria y sin temor a equivocarme con las tramas. Son pavorosas de verdad. La elección, según le escuché decir a Elvio unos veinte años después, fue rigurosa: pusieron solamente los cuentos que les daban mucho miedo. Se trata de clásicos de la historia literaria mundial. La contratapa dice: 
+
+*“¡Atención señores! Pasen y lean: en este libro verán la cueva de las maravillas, puertas que, extrañamente, no crujen al cerrarse y afiladas garras que se ciernen sobre la afiebrada imaginación de sus víctimas. Hombres que mueren en los pozos donde fueron a eludir la muerte y cohetes interplanetarios donde sólo el que no sube se salva. Estos y otros prodigios lo mantendrán en vilo página a página, porque son provocados por antiguos magos, hechiceros de la palabra que sabrán hacerles notar que lo siniestro lo es por el parecido con lo cotidiano. Pasen y lean, señores. Pasen y lean.”* 
+
+Años más tarde, y esta vez junto a su otro amigo Edu Hojman, Elvio se las vería negras al intentar componer otra antología para Planeta, únicamente formada por relatos locales, titulada *El terror argentino*. Ahí sale un cuento mío entre uno de Chernov, otro de Walsh, Castillo, Shua, Lamborghini, Arlt. Allí soy un vecino nuevo de la gallina que tanto me asustó en mi infancia, la degollada 
+
+![Kendrick](https://64.media.tumblr.com/03948eb65feb23745f0062d56c84aa04/tumblr_inline_pjzzxqwpwl1t6q87u_250.jpg)Opino igual. La escritura de ficción es un ejercicio de manipulación. Tengo que hacerte llorar en un cuento triste, reír en uno humorístico y que te cagues en las patas en uno de terror. Los escritores no contamos más que con palabras. El cine, por caso, es fascista a la hora de prepararte para que atiendas. Cobran una entrada, apagan la luz, amplifican las imágenes y los sonidos hasta aturdir, te atan al asiento con la cuestión de la continuidad (el tiempo que fuiste al baño o cabeceaste de sueño, te perdiste la peli). Cortázar dice que el lector de ficciones firma un contrato tácito con el escritor: le cree, se interesa, se engancha, sigue leyendo. Por eso la literatura de horror debe asustar. 
+
+Hace ya dos años que hacemos en Porto Alegre una jornada nocturna de escritura de cuentos de terror. La inventamos con Jussara Rodrigues, una de las ejecutivas de la Feira do Livro. Titulamos al engendro 2FRNKNSTN. Consiste en pasar una noche encerrados en una biblioteca abandonada, sin luces, fantasmal, para escribir un nuevo *Frankenstein*. Se dan pautas de juego: los escritores convocados intentan armar una historia. Pasaron por el evento Guadalupe Nettel, Federico Andahazi, Max Mallman, Duda Falcao y yo también (Fogwill odiaba a los antólogos que se incluían en la propia antología, pero más de una vez lo hizo, lo vi). Los resultados se publicaron dos veces en la editorial Desouro Box, en unos volúmenes góticos. La jornada es maravillosa, con alcohol y comida en continuado, algún recital perdido de piano a las cuatro de la mañana y un desayuno copioso. La oscura biblioteca sólo se ilumina por pantallas de laptops y celulares o algunas velas, hasta que salen los primeros rayos de sol. El evento supera los resultados: todavía no leí ningún cuento demasiado bueno salido de esa noche, incluyendo los míos, que fueron malísimos. 
+
+Diga que uno, como es lector de género, siempre anda perdonando a los que hablan de zombis, apariciones, brujas y otras yerbas. Así es este mundo clase B. Yo, que me la doy de exquisito al calificar cine mundial y siempre termino comparándolo todo con Tarkovsky y Buñuel, cuando me toca el cine de género puedo decir “*Reptilicus* es una gran película”, sin que la voz me tiemble. 
+
+![ganchos](https://64.media.tumblr.com/1badf7ff084f8400543daa7c399ea012/tumblr_inline_pjzzxqwP6u1t6q87u_500.jpg) La colección Pelos de Punta tiene una revisada y cuidada antología de cuentos de terror.
+Una película puede decepcionar, pero el género nunca. Eso tienen de infantil los géneros: el aficionado revuelve donde sabe, de antemano, qué va a encontrar. Como en la búsqueda del tesoro en los cumpleaños de niños: si nadie da con el regalo, la mamá trae el paquete y reparte la chuchería. Los libros de 2FRNKNSTN salieron solamente en portugués, aunque el proyecto que teníamos con Jussara contemplara su salida en la Argentina. El problema fue que no conseguimos editor acá. Los que consultamos se volvieron atrás porque no le vieron futuro. El error fue que no consultamos ni a los hermanos Marcos, de Muerde Muertos, ni a Narciso Rossi, Rubén Risso y Luciana Baca, de Pelos de Punta. 
+
+Patricio Chaija es el responsable de la selección y notas de *Osario común*, por los Muertos. Son diecisiete cuentos. Salieron hace un tiempo en una “Summa de fantasía y horror”. Mariana Enriquez está ahí. Pablo Tolosa, Alejandra Zina, Alberto Ramponeli, José María Marcos. El trío de editores de Pelos aumentó la apuesta del osario: decidieron publicar trece libros con trece autores cada uno. Rossi jura que no sabía en lo que se estaban metiendo. Me muestra parte del todo: ya hay nueve publicaciones exhibidas en tres cajas. El resto se verá en la presentación el sábado 27 de agosto a las 19 en El Bardo, bar cultural, Cochabamba 743, adonde también habrá sorteos y sorpresas que prometen ser… ¡horripilantes! Los muchachos (y la chica de San Pedro, que faltó a la entrevista) habían hecho una presentación anterior de las primeras cinco ediciones en el Espacio Mu, en diciembre del año pasado. 
+
+Los libros son preciosos, a primera vista parecen videos, tienen ilustraciones gancho que vienen más del cine de terror que del campo literario. Las selecciones de cada volumen son temáticas: *Entre dientes*, *Sangre fría*, *Mala muerte*, *Mano dura*. Hasta hay un volumen, *Taco aguja*, en el que trece mujeres hablan de trece espantos de corte femenino. Los escritores trabajaron por encargo, mediante consignas disparadoras. 
+
+Cuando les pregunto si los cuentos asustan, los editores dudan levemente, como si no les importara demasiado o mi pregunta fuera una pavada. Tanto a Chaija como a Rossi o a Risso (me doy cuenta de que tienen los apellidos *anagramados-/i>; empiezan a darme miedo) el detalle no les importa demasiado. Son de una generación que ha aprendido a reírse del horror, un post *Scream*, por decirlo de alguna manera. No obstante, cuando les pido que elijan los cinco mejores cuentos de la colección y digan el por qué, coinciden fácilmente en los títulos por la única razón de ser los cinco que más asustan. “Carnada para bogas”, de Walter Cozza y “Libros juntando polvo”, de Cristian Godoy (muy bueno), del tomo dos; “Letra muerta”, de Ignacio Irulegui del tomo tres; “Los hombres van a la guerra”, de Tomás Downey del tomo siete y “Las solitarias”, el excelente cuento de Agustina Bazterrica del tomo ocho.* 
+
+![ganchos](https://64.media.tumblr.com/8cdea49d899cd7baa8be52051cbe7506/tumblr_inline_pjzzxrCCqZ1t6q87u_500.jpg) Las ilustraciones vienen más del cine de terror que del campo literario.Rubén (por las dudas, no voy a volver a escribir el apellido de estos tipos, me causa una desconfianza infernal) opina que ahora el horror asusta menos que antes, y que el paso desde la literatura (que solamente puede dar climas) al cine (que cuenta con el imprevisto de los sustos), fue superado en la actualidad por los videojuegos, en los que además sos protagonista. Entiendo su criterio cuando me explica que es amante de Lovecraft. Definitivamente, dice, videojuegos de rol como *Amnesia* causan pánico. Es un juego en el que no tenés arma, en el que a lo sumo podés esconderte o correr. Me cuenta además de otra proeza argentina creada por el programador Agustín Cordes –prologador, además, del volumen *Vía Muerta*– con un escenario estilo *Evil Dead*, de Sam Raimi, pero como si estuvieras en la casa junto a Bruce, el protagonista del film. 
+
+Narciso (lector: no busques para atrás cómo se apellida este individuo, y menos que menos lo digas en voz alta; ¡puede ser un conjuro del mal!) opina que es muy difícil asustar hoy con un cuento, pero que los cuentos de esta colección incomodan a los lectores. Eso es suficiente para él. Dice ser un tipo muy curioso pero medio miedoso, de esos que andan con cuidado por la vida. Y que por eso le gusta tanto la literatura de horror: cuando se termina de leer, el miedo queda ahí, encerrado en el libro, y en su cabeza flota solamente una sensación. El género terror le da seguridad, en su necesidad básica de asustarse. “Cierro el libro y chau”, dice. 
+
+  
+
+
+
+
+---
+
+ Gustavo Nielsen
+----------------
+
+ Gustavo Nielsen es arquitecto, dibujante y escritor. Como arquitecto realizó obras en Buenos Aires, Córdoba, San Luis y Montevideo. Ha publicado varios volúmenes de ficción, entre ellos *La otra playa*, Premio Clarín de Novela 2010. Nielsen escribe en el suplemento Radar, de Página/12, y tiene una columna semanal, Milanesa napolitana, en el Suplemento Literario Télam. Además lleva los blogs [Milanesa con papas](http://milanesaconpapas.blogspot.com.ar/) y [Mandarina](http://mandarinasdulces.blogspot.com.ar/)
+

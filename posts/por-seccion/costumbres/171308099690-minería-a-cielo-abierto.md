@@ -1,0 +1,1 @@
+../../171308099690-minería-a-cielo-abierto.md

@@ -1,0 +1,41 @@
+# Ligeramente anormal
+
+**En**
+
+5 de octubre de 2016 - Libros
+
+_por Facundo Arroyo_
+
+Link original: https://laagenda.tumblr.com/post/151384494475/ligeramente-anormal
+
+![Pipo Lernoud](https://64.media.tumblr.com/95b98ca089ab7d49e86a1acc6ee7382e/tumblr_inline_pjzylpM1QF1t6q87u_500.jpg)Debería saberse de Pipo Lernoud que es uno de los ideólogos del rock argentino. No son muchos. Se le suman Tanguito, Miguel Abuelo, Javier Martínez, Pajarito Zaguri y Moris, si respetamos las generaciones. De este reducido, en tanto compositores, Pipo es único en su especie. De náufrago a poeta, de compositor a hippie (con gran influencia de la generación beat), de transeúnte por el mundo calmo a ecologista, de periodista a líder de la comunicación contracultural en Buenos Aires. Pasos que no se propuso como superación, sino como una integralidad vital de un mundo zarpado de incertidumbres. 
+
+
+![Yo no estoy aquí](https://64.media.tumblr.com/6b07bd480f43b73cf0768f012e1c31ff/tumblr_inline_pjzylpOnvb1t6q87u_250.jpg)*Expreso imaginario**Canta rock**La Mano**Yo no estoy aquí* es el resultado de una vida imparable. Una nueva forma de autobiografía, otra manera de contar sin desgrabarse, un gesto laboral más artesanal, de archivo. Un libro definitivo de una generación que se formó en el aire. Un milagro de texto capaz de adjuntar múltiples experiencias de comunicación en formatos que expresan distintas edades. Desde una carta a su madre escrita en el desierto africano a la publicación de un post en su Facebook. Una idea pensada en 1968 que en 1996 se autodebate y se transforma en otro elemento orgánico. Una fruta, quizás. O una canción para Ariel Minimal enviada a través de muchos mensajes de texto. Pipo lo resume en el apartado que junta algo de su actividad digital: “Cuando descubrí la red social, encontré un medio para difundir las mismas ideas que motoricé toda mi vida”.
+
+Anarco pacifista individualista. Es un resumen atorrante que suele hacer Lernoud sobre sus inclinaciones a la hora de plantear un mundo. El anarco pacifismo también lo ejercía Donvi Vitale (gran aliado y amigo en las peores épocas) aunque no se hayan puesto de acuerdo durante los últimos años políticos de Argentina. El anarco peronismo de Pablo Marchetti ya se siente más distante por hablar, básicamente, de una doctrina fuerte en el centro de la escena. Eso no quita que Pipo no se haya reído con *Revista Barcelona*, eso no quita que la experiencia de *Barcelona* no esté inspirada, entre otros elementos, por las metodologías germinadas del *Expreso Imaginario* y MIA, las dos pandillas contraculturales resistentes de la última dictadura cívico-militar. Además de este centro atómico de ideas expresadas desde muy temprana edad en canciones y manifiestos, Pipo abandonó la escuela y se lanzó al naufragio de algunas nuevas formas de existencia. Hippie y poeta, ecólogo del mundo con base -finalmente- en Buenos Aires, protagonista y superador del after falopa, educación callejera –negación de las instituciones y una frase de su madre: “Te mandé a las mejores escuelas y, al final, te terminó educando Tanguito”-, ejercicio de la contracultura a través de la literatura, la música, las artes plásticas y los circuitos alternativos en estado de ebullición. Recuerden, hay un global algo injusto pero sintético: anarco pacifista individualista.
+
+En base a ese caldo ideológico hay en el libro grandes hallazgos por fuera de los logros que siempre le remarcan a Lernoud. Por ejemplo, el que entró a último momento, un documento médico que muestra los resultados de un encefalograma que le hicieron. Su madre buscaba respuesta a la “indisciplina” de Pipo en la escuela (lo echaron de todos lados). Parte de la divertida descripción, a veces la ciencia médica puede ser la mejor payaso del circo, decía: “Marcada inestabilidad con paroxismos de tendencia desrítmica y con hiperpanea forzada” y un remate letal que asegura: “Ligeramente anormal”. La fecha del resultado podría evidenciar algún buen comienzo: 26-XI-1960.
+
+En el año 1973, Luis Alberto Spinetta cantaba que cuiden a sus hijos, que cuídenlos de drogas, que nunca los repriman. Y es cuando el sumun experimental del rock argentino empieza el primer regule de su explosión lisérgica. En ese mismo momento Pipo casi que se funda como periodista y vuelve al país para escribir en *Tiempo divino*, una revista existencial. Miren cuál fue el título de su primera nota: “¡La solución al problema de las drogas!”. Pipo aclara que esa revista la fundó para que sea órgano de difusión de la Misión de la Luz Divina del Gurú Maha Raj Ji. 
+
+Otro de los documentos que se destacan por su publicación y, por ende, su pase a la inmortalidad, es el texto que leyó Miguel Abuelo en el casamiento de Lernoud en 1984. Basado en textos de los indios Pieles Rojas como “El universo es una rueda medicinal” y “Alce negro habla”, en los que se traduce la visión del mundo como una red de seres vivos conectados e interdependientes; están las fotos, también, que muestran de qué manera se interpretó: hoja oficio en mano izquierda, micrófono en la derecha y una musculosa blanca de red protegida por un pequeño saco. También hay otra foto de Miguel bailando con la mamá de Pipo. Una noche más en el Stud Free Pub, el lugar elegido para la boda. Sí, esta historia siempre estuvo en el centro de la escena. 
+
+![Miguel Abuelo y Pipo Lernoud](https://64.media.tumblr.com/30a082e6a16488829a7ca90bba062676/tumblr_inline_pjzylqYnmS1t6q87u_500.jpg) 1984: Miguel Abuelo en el casamiento de Pipo. Las amistades que Pipo refleja en *Yo no estoy aquí* también producen puentes, una dialéctica del big bang, historias que fueron y vinieron en tiempo y espacio para poder crecer. De sus primeros amigos involucrados con el rock argentino a los hippies náufragos de Europa (algunos nombres ya se materializaron en sus cosechas). De la convivencia con el Mahatma Adhararand Ji a la de la comuna de la revista *Luta & Prazer*, de Brasil. Hay, en este camino, una transfusión generacional en pos de esas relaciones. Por momentos, descubrís en el libro un festejo desde el interior del Parakultural ideado por Omar Viola y luego stalkeás el disfrute pleno de las canciones de Sofía Viola (su sobrina) que Pipo puede hacer desde el CAFF (Club Atlético Fernández Fierro) ya fuera del libro, porque la historia sigue, y el registro también.
+
+Entrando al siglo XXI a Pipo se le rompió la computadora y, casi como un reflejo del sol, se pasó al mundo smartphone. Nunca más pudo volver a otro formato que no sea el de su nuevo compañero satelital. Hace todo desde ahí. De principio a fin, las aventuras de Lernoud fueron registradas, tanto en cartas escritas con distintos colores (lapiceras, lápices, pinceles) como en aparatos tecnológicos. La historia es el viaje. “Yo era poeta hasta que llegó Facebook”, dice en una de sus publicaciones del año 2014. Chistea, experimenta, sigue. Este registro, en parte, es la posibilidad de que una historia ambulante pueda ser contada.
+
+A las experiencias, hallazgos y metodologías de uno de los referentes culturales más importantes del país, el periodista Martín E. Graziano las ordenó por formatos y de manera cronológica. Fue editor, cómplice y guía de oficio contemporáneo. Empieza por las canciones que ideó junto a Miguel Abuelo y los demás en los años ‘60 y termina con sus posteos de Facebook y las últimas composiciones de estos jóvenes años, principalmente las de *Planta Madre*, una película dirigida por Gianfranco Quattrini que recupera tanto el sonido como las ideas y las formas de La Cueva y los años del naufragio. Otro elemento, proyecto, que conforma la dialéctica de un caminante de la tierra, el que lleva su cántaro canción, ligeramente anormal, que aún sigue andando entre nosotros, por los lugares más estimulantes de la cultura y que, cada tanto, anota algo en su pequeño cuaderno digital. Algún aprendizaje del pasado para una certeza del presente. Una semilla en la tierra para un almuerzo desnudo.
+
+  
+
+
+
+
+---
+
+ Facundo Arroyo
+---------------
+
+ Facundo Arroyo nació en La Plata, 1985. Es periodista e investigador musical con algunos títulos de Comunicación. Está trabajando en libros junto a Sergio Pujol y Juan Manuel Mannarino. En twitter es [@faq\_arroyo](https://twitter.com/Faq_Arroyo). 
+

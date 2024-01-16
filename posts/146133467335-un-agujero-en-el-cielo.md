@@ -1,0 +1,54 @@
+# Un agujero en el cielo
+
+**A los 46 años murió Ricky Rúa, miembro fundador y uno de los cantantes de Los Brujos, banda emblemática de la primera mitad de los años ‘90.**
+
+18 de junio de 2016 - Obituario
+
+_por Esteban Rial_
+
+Link original: https://laagenda.tumblr.com/post/146133467335/un-agujero-en-el-cielo
+
+![Ricky Rúa](https://64.media.tumblr.com/bc3676aa101aa2bf6eb9e02bceeacef7/tumblr_inline_pjzrhikEzn1t6q87u_500.jpg)El fin de semana más largo del año empezó con la dinamitante noticia del fallecimiento de Ricky Rúa, miembro fundador y uno de los dos cantantes de Los Brujos, y a continuación las esperables explicaciones sobre la importancia de una explosiva banda de amigos zonasureños cuya vuelta al ruedo hace un par de años marcó algo así como la inauguración del retronoventismo como corriente dominante dentro la dispersión que nos une y atraviesa.
+
+Pero aunque un poco de contexto resulte justo y necesario, no es esta la ocasión de detenernos en Los Brujos de ayer y de hoy, sino de focalizarnos en Ricky, luminoso ser humano de carne y hueso al que sus conmocionados compañeros de brujería definen como “Amigo Genio Performer” en el breve comunicado oficial vía redes sociales, mediante el cual le anunciaron al mundo su partida en plan “Go! Alien Go!”. Ahí señalan que “su misión lo requiere atento a su viaje intergaláctico” y agregan que “nos dejó su legado estético, artístico e invaluables acciones que vivirán en nuestra obra por siempre”, para finalizar deseándole un esperanzador “buen viaje”.
+
+Horas después, junto a familiares y amigos, Los Brujos restantes despidieron sus restos mortales en el cementerio de Recoleta entonando la bellísima “El dragón”, en una soleada y dolorosa mañana de viernes feriado.
+
+[San Cipriano by Los Brujos](http://quevuelvanlosbrujos.bandcamp.com/album/san-cipriano)
+
+Tanto la crítica erudita de ayer y hoy como el boca a boca de toda la vida coinciden en postular a Los Brujos como paradigmáticos exponentes y hasta pioneros del rock alternativo argentino: sin entrar en detalles ni abusar de un anecdotario demasiado exuberante, Los Brujos nacen hacia 1988 en Turdera, fruto de la fusión de un par de bandas, Salto al Vacío y Los Pastrellos, de dos primos hermanos guitarristas, Gabriel Guerrisi y Fabio Pastrello respectivamente. En los reacomodamientos propios del caso, Ricky dejó de tocar la batería y pasó a compartir el frente del escenario micrófono en mano junto a Alejandro Alaci, con Quique Ilid como baterista y Gabriel Manelli al bajo (Gabo de los Babasónicos, fallecido en 2008), que luego dejaría su lugar a Sergio Moreno.
+
+Sintetizando al máximo lo que todo el mundo se supone sabe o debería saber, Los Brujos tuvieron en “[Kanishka](http://quevuelvanlosbrujos.bandcamp.com/track/kanishka)” un hitazo rompedor modelo '91, telonearon a Nirvana en Vélez y a Iggy Pop en Obras, publicaron tres discos titulados nada más ni nada menos que *[Fin de semana salvaje](http://quevuelvanlosbrujos.bandcamp.com/album/fin-de-semana-salvaje)*, *[San Cipriano](http://quevuelvanlosbrujos.bandcamp.com/album/san-cipriano)* (con producción de Daniel Melero) y *[Guerra de nervios](http://quevuelvanlosbrujos.bandcamp.com/album/guerra-de-nervios)* (en el cual invirtieron la friolera de 400 horas), tocaron incontables veces en todo tipo de circunstancias y hacia 1998 decidieron colgar sus disfraces y cortar por lo sano. Durante esos tres discos Ricardo Rúa, alias Ricky, supo llamarse Wilson R-Q, Majula, Mala Yi y Elle Iluminatti.
+
+![Ricky Rúa](https://64.media.tumblr.com/bc3676aa101aa2bf6eb9e02bceeacef7/tumblr_inline_pjzrhikEzn1t6q87u_500.jpg) “Una persona naturalmente encantadora, el colega ideal para la vida social cultural.” Muchísimos años después, hacia 2014, volvieron a tocar en vivo y en directo y a continuación editaron *Pong* (recuperando viejas grabaciones con Gabo al bajo en cuatro temas), para que tanto los simpatizantes de antes como las famosas nuevas generaciones con inquietudes e hipersensibilidad eléctrica pudieran disfrutar de su música y puesta en escena, incluyendo pases de magia latentes y actualizantes, trajes a medida y una energética alquímia única en su especie; y en eso estaban, y en eso seguirán, con el amigo Rúa aportando desde otro plano cósmico.
+
+Aunque probablemente hayamos coincidido y tal vez charloteado en otros rincones urbanos y suburbanos de corte rockero más o menos post punk durante la famosa década de los '90, supongo que la primera vez que hablé con Ricky Rúa, a nivel empezar a conocerlo, reconocerlo, adoptarlo y quererlo, fue hacia finales del siglo pasado en la disquería especializada Alta Fidelidad, ubicada en la muy coqueta galería Larreta. Por entonces era un espacio relativamente abandonado por la oferta y la demanda pura y dura, una apuesta arquitectónica sumamente paqueta en plan clásico & moderno retrovanguardista con venecitas (y salida a Florida y a San Martín), en donde sucedía algo que se llamaba Diseñadores de El Bajo. Por entonces Ricky ya era un ex Brujo, y si estaba por ahí era porque Vero Ivaldi (su chica, su novia, futura esposa y madre de su retoño Fermín, el amor de su vida, y además la histórica vestuarista de la banda y una de las más geniales diseñadoras de indumentaria de su generación) tenía su local junto a otras jóvenes promesas de la moda argentina, una constelación de nombres y apellidos propios que pocos años después terminaron abriendo sus locales en Palermo.
+
+Ya desde nuestros primeros intercambios verbales mezclando tópicos en plan cualquierista suburbanero en lo se supone era la pomada de la pomada porteña, supe algo en lo que casi todos los que lo trataron antes, durante y después saben: su extraordinaria afabilidad total y excelente humor, picante pero respetuoso, su seriedad a la hora de ponerse a laburar y una caballerosidad ejemplar, casi lo opuesto a la caricatura del rockero que la va de estrella en plan Pomelo. Arriba del escenario Ricky fue un animador salvaje capaz de alternar trances robóticos, danzas chamánicas y espasmos esqueléticos o lunáticos (nunca dejó de ser baterista), pero en el día a día era una persona naturalmente encantadora, el colega ideal para la vida social cultural y esas cosas, además de novio fiel y dedicado en plan escudero de su dama, claramente la estrella del emprendimiento al que dedicó buena parte de su vida y obra extramusical.
+
+Tiempo después, Vero Ivaldi abrió un local en Gurruchaga casi Honduras, mientras yo desperdiciaba mi vida en una juguetería pseudoartesanal con amigos con problemas en Armenia y Gorriti, y entonces fuimos más vecinos que nunca, con varia gente linda en común, pero (salvo mis socios jugueteros) casi ninguno zonasureño, lo cual une mucho en plena pavada palermitana. Cuando nos veíamos, era fijo preguntarnos por Diego Perri, el disquero anfitrión de Alta Fidelidad, que no es el mismo Diego Perri que hace prensa por todo lo alto y es hincha de Independiente, sino un Diego Perri hincha de Racing, mucho más corrosivo, otro que sabe sobre la movida sureña de finales de los '80 mucho más que yo y que casi cualquiera.
+
+A continuación y post Cromagnon, me fui a vivir a Madrid, donde en agosto de 2007 nos volvimos a ver porque Vero participó de la Pasarela Fashion en la capital de España que me hiciste mal y sin embargo te quiero. Ahí sí nos compartimos mucho más tiempo y mejor que nunca, casi todo el que mi flexibilidad horaria laboral me permitió. Madrid es una excelente ciudad para que argentinos residentes y argentinos visitantes profundicen su nivel de diálogo y amistad, y supongo que si me atreví a aceptar escribir estos párrafos en estado de shock cuando me los pidieron es por esa vuelta de tuerca madrileña. El tipo que conocí y del que me hice amigo siendo un ex Brujo, si no es el chabón con mejor onda que yo haya conocido, entonces le pega en el travesaño y entra, y cada vez que le pregunto a alguien me dice algo parecido. Vivió 46 años mejorándole el tono vital a las personas que lo rodeaban. Eso es una vida plena, el resto es anecdótica.
+
+Durante estos años sin ponerse el traje de Brujo, Ricky siguió haciendo música con el mismo pulso e impulso: a finales del siglo XX y primeros años de siglo XXI estuvo al frente de Biónica (sí, Biónica, como Tan Biónica pero sin el Tan) un grupo con quienes grabó dos discos robóticos y distorsionados, biónicos.
+
+En el primero de ellos, *[Ceros humanos](https://t.umblr.com/redirect?z=https%3A%2F%2Fsoundcloud.com%2Fbionica-ceros-humanos%2Fsets%2Fceros-humanos-1996&t=YzU3YTc4Yjc1MDhlNTU3M2I0MjYyMmFhMDM1MTM0NDk2Zjg5ODg2ZixXTktMQVc2Ug%3D%3D&b=t%3AXDz46txpppLgDp7rJlWQpw&p=https%3A%2F%2Flaagenda.tumblr.com%2Fpost%2F146133467335%2Fun-agujero-en-el-cielo&m=1&ts=1705438871)* (1999), formaba parte de la banda Sergio Moreno (el único ex Brujo que no fomó parte de la vuelta), y ahora mismo, agotado mental y emocionalmente, lo recuerdo exhibido en Alta Fidelidad. Luego hicieron *[Orden](https://t.umblr.com/redirect?z=https%3A%2F%2Fsoundcloud.com%2Fbionica-ceros-humanos%2Fsets%2Forden-2005&t=ZGY0ZGZiMDgwMDRmZmQwY2RmNzQ1MWVlYWIwZDNlYWE4MTZlNzY3MSxXTktMQVc2Ug%3D%3D&b=t%3AXDz46txpppLgDp7rJlWQpw&p=https%3A%2F%2Flaagenda.tumblr.com%2Fpost%2F146133467335%2Fun-agujero-en-el-cielo&m=1&ts=1705438871)* (2005), que hasta donde sé no tuvo edición física pero tampoco lo juraría.
+
+Luego de Biónica (a los que vi en vivo en El Podestá, sobre la calle Armenia, obviamente muy bien vestidos por Vero Ivaldi), Ricky volvió a sentarse en una batería en Bola de Fuego, y ya para el 2009 se sumó como baterista a El Otro Yo, en donde ya estaba su compañero Brujo Gabriel Guerrisi. Ahí tocó hasta principios del 2014. Nunca vi en vivo a El Otro Yo con Ricky, ni a Bola de Fuego. En otras palabras, nunca lo vi tocar la batería.
+
+Ya en estos últimos años, con la vuelta de Los Brujos, nos volvimos a cruzar. Yo laburando como entrevistador camarita GoPro en mano, él recibiendo tratamiento de estrella junto a sus compañeros, a los que fui conociendo por separado, con Vicki Zapata administrando la entrada y salida de periodistas, ellos explicando que más que la primera banda de los '90 se consideran la última de los '80, ese tipo de cosas. Los vi y saludé en su regreso en el Centro Cultura Recoleta cerrando un festival Emergente, dando cátedra de catarsis y electroshock, más elegantes que nunca, con Vero Ivaldi feliz de la vida y una audiencia hipnotizada. Desde entonces, no fui a ninguno de sus shows en Vorterix, en una Fiesta Clandestina, en La Trastienda. Siempre pensando que la próxima iría.
+
+Ricky Rúa querido, fue un inmenso placer haberte conocido. Mandá saludos por ahí, que Dios te tenga en su Gloria.
+
+  
+
+
+
+
+---
+
+Esteban Rial
+------------
+
+ Esteban Rial es periodista y cantautor. Es cronista en *[Generación B](http://www.generacionb.com/)* y guitarra rítmica en [Perdedores Pop](https://perdedorespop.bandcamp.com/). En Twitter es [@rialesteban](https://twitter.com/rialesteban). 
+

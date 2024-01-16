@@ -1,0 +1,1 @@
+../../188420512515-triángulo-isósceles.md

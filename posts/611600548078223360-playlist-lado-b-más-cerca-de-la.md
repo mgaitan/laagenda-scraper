@@ -1,0 +1,45 @@
+# Más cerca de la revolución
+
+**A 9 años de su muerte, Gil Scott-Heron vuelve a oírse en**
+
+6 de marzo de 2020 - Playlist Lado B
+
+_por Lucas Garófalo_
+
+Link original: https://laagenda.tumblr.com/post/611600548078223360/playlist-lado-b-m%C3%A1s-cerca-de-la
+
+![](https://64.media.tumblr.com/fa3e5ccc7fa7ebf0f081a08dcbe825a7/52cc73f98009ddae-56/s500x750/b48fc186d441b441b8078b0483bfb2e73e8bc5ef.jpg)### Gil Scott-Heron / Makaya McCraven – *We’re New Again: A Reimagining by Makaya McCraven* (XL)
+
+![Katie Ledecky](https://64.media.tumblr.com/1b356806c1d79968b40a00926e1ce432/52cc73f98009ddae-6c/s400x600/29ed02a6013054d4d5a80325f1d4f6ff3f37ad45.jpg)
+ “Ahora todos dicen que desaparecí”, le dijo el músico y poeta estadounidense Gil Scott-Heron a un periodista inglés en febrero de 2010, un año antes de su muerte y un día después de la salida de *I’m New Here*, su primer disco en 16 años. “Debe ser un poder que no sabía que tenía. ¿Vos viste desaparecer a alguien, alguna vez? Eso significa que soy un superhéroe, ¿no?”. Más allá del chiste (y de la habilidad verborrágica de Scott-Heron para ningunear con elegancia), la verdad es que para un montón de raperos el tipo sí era un superhéroe, y que por eso Richard Russell, el fundador del sello XL (el mismo de Adele, Radiohead, los White Stripes y más), lo fue a buscar a Nueva York en 2006, más precisamente a la cárcel de Rikers Island.
+
+Si nunca escuchaste hablar de Gil Scott-Heron, es normal, aunque el día de su muerte algunos de los artistas más populares del mundo lo recordaron públicamente, como Thom Yorke o Eminem, que dijo: “GS-H influenció a todo el hip-hop”. Fiel a su fama de cascarrabias, él renegaba del mote de “Padrino del rap” que le habían endilgado, y se consideraba más bien un “bluesólogo”. Pero alcanza con escuchar *Small Talk at 125th and Lenox*, su disco debut de 1970, para entender por qué los raperos lo aman: es un álbum sencillo y minimalista en el que un poeta recita rimas filosas sobre una base de congas, con la actitud desafiante y el humor ácido que definiría el sonido del género en los años siguientes. “La revolución no va a hacer que tu boca se vea más sexy/La revolución no te va a dar una afeitada al ras/La revolución no va a hacer que te veas cinco libras más delgado/Porque la revolución no será televisada, *brother*”, dice en “The Revolution Will Not Be Televised”, su tema más famoso y una frase que ya es parte de la cultura popular y se volvió más masiva de lo que el propio Scott-Heron sería jamás.
+
+¿Por qué no fue más famoso? Probablemente porque se hizo adicto al crack, y porque, a pesar de que a él no le gustara admitirlo, tenía una tendencia irreversible hacia la desaparición de la esfera pública. En 2010, un periodista del *New Yorker* lo llamó a la casa pensando que no iba a estar, pero Scott-Heron atendió y dijo: “¿Dónde más va a estar un cavernícola sino en su caverna?”. Cuando salía, en general era para drogarse durante días en hoteles del Bronx de su confianza (Monique de Latour, su novia entre 1997 y 2000, contó que ella tenía que sobornar a los conserjes para que le dijeran en qué habitación se escondía). A veces lo arrestaban y él daba el nombre de su hermano para que no lo fueran a buscar cuando faltaba a la citación de la corte. “Tuviste un montón de oportunidades para conseguir ayuda, pero parece que no te importara”, le dijo un juez en 2001, antes de sentenciarlo a tres años de cárcel por posesión de cocaína. Y no, no le importaba.
+
+Por eso en 2010 nadie esperaba la salida de *I’m New Here*, un disco posible únicamente gracias a la voluntad de un fan como Richard Russell, que había crecido en los suburbios de Londres escuchando soul y había quedado obnubilado al descubrir *Pieces Of a Man*, el segundo LP de Scott-Heron, un clásico del jazz-funk editado en 1971 (en esa época, Russell tenía apenas un mes de vida). El fundador de XL se encargó de producir todos los temas del álbum de regreso, al punto de que Scott-Heron dijo: “Este es un disco de Richard. Lo único que yo sabía cuando entré al estudio era que él tenía muchas ganas de que eso pasara. Si podés hacer algo para que alguien cumpla un deseo que tenía desde hace mucho, y eso no te perjudica ni te daña, ¿por qué no hacerlo? Los sueños en los que aparecés no son los tuyos”.
+
+Como su perfil de diletante trasnochado permite suponer, Scott-Heron creía en las apariciones y los espíritus, y quizás por eso su presencia en *I’m New Here* resulta más bien fantasmal. En lugar de rodearlo de una banda, Russell prefirió poner a su héroe a recitar relatos más o menos autobiográficos acerca de la familia, el miedo y el estado del mundo encima de composiciones de música electrónica ambiental y minimalista, como si además de presentarlo a una nueva generación hubiera querido medirlo contra sus herederos. Así como Kanye West había sampleado la música de Scott-Heron en sus composiciones, esta vez era Scott-Heron el que cantaba sobre un sample de West en “On Coming From A Broken Home (Pt. 1)”, un homenaje a la abuela que se hizo cargo de su crianza en la ciudad de Jackson, Tennessee. Es un disco que exhibe perfectamente la profundidad y el humor del que Scott-Heron era capaz en sus observaciones a la vez cotidianas y trascendentales, y tiene la característica particular de sonar como si fuera un álbum de remixes, lo cual le suma un componente más de extrañeza, como si hiciera falta.
+
+![ganchos](https://64.media.tumblr.com/592603b5ebcaf1c1a01f9b0626b8b4f6/52cc73f98009ddae-0b/s500x750/a8bf8388f90401fcfcd16fef5bef22d680fe9328.jpg) Scott-Heron, el renegade padrino del rap.Ahora, diez años después de ese lanzamiento (y nueve después del maravilloso *We’re New Here*, el verdadero álbum de remixes a cargo del músico y DJ inglés Jamie xx, un experimento todavía más electrónico y menos dependiente de la voz de Scott-Heron, que para ese entonces ya había fallecido), el encargado de volver sobre *I’m New Here* para encontrarle nuevos significados es el baterista de jazz Makaya McCraven, conocido por sus particulares métodos a la hora de producir, que consisten en samplear a los músicos de su banda tocando en vivo para luego crear patrones rítmicos con la técnica del *cut & paste* típica de los primeros discos de hip-hop. 
+
+El disco nuevo se llama *We’re New Again*, y lo único que conserva de las dos versiones anteriores son las voces de Scott-Heron. Por lo demás, McCraven vuelve a poner a esta leyenda del soul de protesta en el contexto de la improvisación de una banda de jazz, al mismo tiempo que diseña sus composiciones como un productor de rap, superponiendo los dos ejes a través de los cuales se desarrolló la obra del homenajeado. Mientras que en el disco original Scott-Heron parecía estar haciéndole un favor a Russell, esta vez McCraven se pone absolutamente al servicio de Scott-Heron, algo que probablemente al viejo no le hubiera gustado demasiado (pero ese es otro tema). 
+
+La versión de “New York Is Killing Me”, por ejemplo, que originalmente había sido construída por Russell con un sonido que emulaba palmas y poco más, acá incluye piano, contrabajo, coros y varias capas de percusión latina. “Running”, un relato asfixiante y hermoso sobre la incapacidad de escapar, acentúa la sensación de desesperación con un bajo espiralado y un beat seco de hip-hop (en este tema, Scott-Heron dice: “Porque no puedo escapar de eso a lo que le temo/ No sin dejar en evidencia el miedo que tengo/Por vos y por todo lo lindo que me causás/Y porque pronto me vas a ver corriendo/Y porque en ese momento te vas a enterar de por qué corro/En ese momento te vas a enterar/Porque no te lo pienso decir ahora”. Tremendo, ¿no?). 
+
+La contracara es “I’m New Here”, un tema juguetón -y un cover de Bill Callahan de su época al frente de la banda indie Smog-, que McCraven plantea como una balada de folk sereno, ideal para el tipo de declaraciones amables del narrador: “Conocí a una mujer en un bar/Le dije que yo era difícil de leer pero casi imposible de olvidar/Me dijo que yo tenía un ego del tamaño de Texas/Bueno, soy nuevo acá y me olvido/¿Eso significa que es grande o es chico?”, y también: “No importa cuánto te hayas desviado/Siempre podés pegar la vuelta”. 
+
+En uno de los interludios del disco original, grabados por Russell durante charlas casuales entre tomas en el estudio, Scott-Heron se refiere explícitamente a sus creencias esotéricas. “Creo que los espíritus son tus padres y sus padres, y sus padres y sus padres, y que ellos viven en tu sangre, y que andan por tu cuerpo constantemente, porque quieren que vos vivas para poder vivir a través tuyo. Y están todo el tiempo tratando de decirte cosas, y si pudieras simplemente dedicar cinco minutos a escucharte a vos mismo, los escucharías”. Hoy que el propio Scott-Heron pertenece al universo de los espíritus, su voz sigue resonando, incluso entre el ruido ensordecedor del free jazz que McCraven le dedica en “Blessed Parents”. 
+
+  
+
+
+
+
+---
+
+ Lucas Garófalo
+---------------
+
+ Lucas Garófalo es periodista, especializado en cultura y tendencia orientado a nuevos formatos. En Twitter es [@lucasg](https://twitter.com/lucasg?lang=es) 
+

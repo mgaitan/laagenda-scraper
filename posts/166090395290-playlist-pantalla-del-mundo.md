@@ -1,0 +1,38 @@
+# Pantalla del mundo nuevo
+
+**En**
+
+6 de octubre de 2017 - Playlist
+
+_por Pablo Strozza_
+
+Link original: https://laagenda.tumblr.com/post/166090395290/playlist-pantalla-del-mundo
+
+![](https://64.media.tumblr.com/062421a1861aa6b6d724e85c30759ee7/tumblr_inline_pk00t0WLpx1t6q87u_500.jpg)
+El evento ocurrió en una noche de sábado de mayo de 2006, se desarrolló en un viejo galpón aledaño al Shopping Paseo Alcorta, y se denominó Saldias Warehouse. Allí, entre un montón de clubbers que esperaban las presencias de Hernán Cattaneo y Deep Dish, LCD Soundsystem salió, tocó y ganó. A más de una década de ese recital en donde la propuesta dance punk de los neoyorquinos desconcertó a la mayoría de los asistentes de la mano de su cencerro, su nervio y el magnetismo de James Murphy, muchos recuerdan ese concierto al que, a ciencia cierta, no fueron, en un caso similar al de Mano Negra en Obras o Queens Of The Stone Age en Cemento. Un fenómeno que no sólo aplica a la Argentina ni a estos últimos años: según contó el crítico estadounidense Greil Marcus, lo mismo le pasó a él con los shows británicos en los que Roxy Music registró *Viva!*, su disco en directo, que él pudo presenciar y que, con el tiempo, “multiplicaron” la cantidad de público. Un antecedente rockero de la post verdad tan en boga en esta época. 
+
+Y es que esa mentira aplica de manera perfecta al debut homónimo de James Murphy y los suyos (2005) desde la letra de [“Losing My Edge”](https://genius.com/Lcd-soundsystem-losing-my-edge-lyrics), en donde el narrador de la canción se jacta de haber sido parte de los grandes acontecimientos laterales de la historia del rock, como los primeros recitales de Suicide en Nueva York y Can en Colonia, por ejemplo, para terminar su periplo con una lista de “bandas que hay que escuchar”: una puesta al día alternativa de la mítica lista que Nurse With Wound incluyó en el sobre interno de su disco *Chance Meeting on a Dissecting Table of a Sewing Machine and an Umbrella*, que supo ser el santo y seña de entendidos y que hoy es un link de [Wikipedia](https://en.wikipedia.org/wiki/Nurse_with_Wound_list)
+. Un disco de meta rock hecho y derecho (ahí está “Daft Punk Is Playing at My House”, como segundo caballito de batalla que confirma esta afirmación), que escapaba a la moda hípster que empezaba a invadir Brooklyn con nervio rockero y contemporáneo, y que delineaba una era en donde la Nueva Yotk post Rudolph Guiliani volvía a desplazar a Londres como capital musical del mundo, con The Strokes como adalides del sonido post Velvet Underground / Television, Sonic Youth como clásicos alternativos y el dance punk de nuestros amigos de LCD, The Rapture y Yeah Yeah Yeahs como herederos light tanto de la No Wave como de la Danceteria de Larry Levan y el dub house de Arthur Russell. 
+
+*Sound of Silver* (2007) y *This Is Happening* (2010) consolidaron a Murphy como un acto que de a poco sumaba gente a su baile, pero sin llegar a esa masividad que deseaban en secreto. Por eso, en el momento que anunciaron su separación, el cartel de *sold out* en el Madison Square Garden actuó de manera similar a ese *Adiós Sui Generis* de 1975 con el Luna Park agotado: un show al que había que ver, un grupo que fue la banda de sonido de una época que se disolvía, una película que registrara ese instante, más allá de que la del dúo de García y Mestre fuera una porquería y que *Shut Up and Play the Hits* (2012) tenga ese registro irónico de mostrar el día después de Murphy tras separar a su grupo. Una postura (la irónica) que actuaba como signo de los tiempos y que dejaba la puerta abierta a una vuelta, ya que son pocos los grupos de rock (The Beatles, The Smiths, The Jam, The Clash, ABBA) que pueden mantener su palabra y no regresar a arruinar ese hermoso recuerdo que mantienen quienes supieron oírlos en tiempo y no hacer de la nostalgia un deporte. 
+
+Pero este *American Dream* lanzado hace unos días ubica a LCD Soundsystem como la antítesis del papelón que vienen protagonizando los Pixies de un tiempo a la fecha, y los coloca del mismo lado que excepciones como Pere Ubu y/o Television: anomalías que confirman la regla de que segundas partes, en el universo del rock and roll, nunca son buenas. *American Dream* muestra todo lo bueno que tiene Murphy para decir en letra y música, y los confirma como un clásico del siglo XXI, de la mano de su astucia sonora y de su talento como letrista. 
+
+Suicide, Talking Heads, Joy Division, el David Bowie berlinés y el de *Scary Monsters*, el primer New Order, el Brian Eno pop de sus cuatro primeros discos solistas, The Fall, Krrafwerk, Devo, y la lista continua: *American Dream* obliga al escucha a actuar como una suerte de Sherlock Holmes para detectar donde aparece la cita homenaje y cantar pri para descolocar a quien no se dio cuenta de la referencia. Claro que esas muestras dan cuenta de la melomanía de Murphy y que son intachables, lo que hace que la crítica se babee ante una “snake guitar” que remite al Robert Fripp del “Fashion” de Bowie (“Change Yr Mind”), o detrás de ese “Oh Baby” que recuerda a la dupla inolvidable que conformaron Alan Vega y Martin Rev, por citar sólo un par de muestras. Pero si bien se ve un gesto retromaníaco en este proceder de Murphy también, gracias a un swing que aparece manejado de forma contemporánea, se puede hacer otra lectura: que todas esas influencias aún pueden sonar a un futuro no superado dentro del rock, lo que abre el debate hacía otro lugar: ¿por qué ocurre eso? 
+
+No le corresponde al neoyorquino dar una respuesta; la defensa de ese retro es una obligación en tanto, como bien dice hoy [Simon Reynolds](http://www.rollingstone.com.ar/2061859-seis-claves-para-entender-el-presente-de-la-musica-segun-simon-reynolds), el último single de The War On Drugs suena a Dire Straits y en cuanto se siga subestimando el valor del R&B y del hip hop en fusionar vanguardia y ventas, más allá de que *American Dream* haya llegado al primer puesto de Billboard con la cucarda de tener mínimas pasadas en las plataformas de streaming, tal como consigna el [*New York Times*](https://t.umblr.com/redirect?z=https%3A%2F%2Fwww.nytimes.com%2F2017%2F09%2F11%2Farts%2Fmusic%2Flcd-soundsystem-american-dream-billboard-chart.html%3Fmcubz%3D0&t=ODQ5YWUyZmY2MDY5Y2FjZTFhYjk1ODc5MDkwNzQ3ZjYyMmFiNGEwMixiT2xLak9xVw%3D%3D&b=t%3AXDz46txpppLgDp7rJlWQpw&p=https%3A%2F%2Flaagenda.tumblr.com%2Fpost%2F166090395290%2Fplaylist-pantalla-del-mundo&m=1&ts=1705438274).
+
+Y es que Murphy, a su modo, encarna a ese perdedor al que, como bien supo retratar [Lou Reed](https://genius.com/The-velvet-underground-rock-and-roll-lyrics), el rock and roll le salvo la vida. “Solía bailar solo por mi propia voluntad, solía esperar toda la noche las transmisiones de rock”, dice en “I Used To”, y la identificación para la generación pre Internet es imbatible. Lo mismo ocurre con las descripciones de lo que supone ser hoy un estadounidense en el tema que titula el CD (en una veta similar a “North American Scum”) y “Call The Police”, con ese ajuste de cuentas en forma de canción para su ex socio en el sello DFA Tim Goldsworthy que es “How Do You Sleep?” o con el homenaje a Bowie que es “Black Screen”, en donde se lamenta, sin nombrarlo, del poco trato que le dispensó al Duque Blanco cuando éste aún estaba vivo y lo invitó a colaborar en *Blackstar*. Detalles que dan cuenta de un hombre otro tiempo, que recuerda sin ira y sin caer en la nostalgia de que todo tiempo pasado fue mejor, pero que duda de que el mañana lo sea. 
+
+  
+
+
+
+
+---
+
+Pablo Strozza
+-------------
+
+ Pablo Strozza es periodista de rock. Fue editor de *Rolling Stone*. En la actualidad escribe para *Inrocks*. En Twitter es [@pstrozza](https://twitter.com/pstrozza) 
+

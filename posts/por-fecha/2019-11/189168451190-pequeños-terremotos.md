@@ -1,0 +1,1 @@
+../../189168451190-pequeños-terremotos.md

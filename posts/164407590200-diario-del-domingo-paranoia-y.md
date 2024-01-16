@@ -1,0 +1,60 @@
+# Paranoia y soledad
+
+**Dicen que hay una letra de Charly para todo lo que pasa en la vida, incluso para el bullying que acarreó ser presidente de mesa en las PASO.**
+
+20 de agosto de 2017 - Diario del domingo
+
+_por Martín Zariello_
+
+Link original: https://laagenda.tumblr.com/post/164407590200/diario-del-domingo-paranoia-y
+
+![](https://64.media.tumblr.com/35ee7e15d33e89004ba3f1a08ecf533c/tumblr_inline_pjzt06UjaR1t6q87u_500.jpg)**Lunes.**   
+
+Ningún error del gobierno se acerca al hecho de haberme designado como presidente de mesa en las PASO del domingo. No debe existir en el país una persona menos apta para ese puesto que yo. Antes tuve que realizar un curso de capacitación electoral por vía digital. Fue muy instructivo, el único problema es que seguramente fue confeccionado por suizos, no por habitantes que viven en suelo argentino. La teoría está en La Quiaca. La práctica en Ushuaia. Se supone que tenés que llegar antes de las siete y media, entonces llegué y cuarto. Me atendió un policía con cara de dormido y me dijo que vuelva más tarde porque no había llegado nadie. Se supone que tenés un delegado de la justicia electoral que te asesora para despejarte dudas (mientras lo escribo no puedo evitar una carcajada). Todavía estoy esperando que aparezca y me despeje las dudas. Se supone que tenés un suplente que te asiste durante la jornada para poder ir al baño o comerte un sandwich. Todavía estoy esperando que aparezca (fui al baño a las cinco de la tarde). Se supone que los materiales (urnas, actas, certificados, boletas, etc.) llegan a las 7 y media. Llegaron ocho menos cinco cuando la gente empezaba a hacer cola para votar. Rápidamente entendí todo: ¡me habían mandado a la guerra con un tenedor! Yo estaba en un lugar donde era sapo de otro pozo, donde no entendía los códigos y donde todas las pelotudeces que aprendí en mi vida (cuyo tenor puede resumirse en saber el orden cronológico de la discografía de Spinetta) no servían para un carajo. Cuando empecé a abrir los sobres con los votos, mientras una docena de fiscales me miraban como a un insecto al que están por diseccionar para luego meter en un frasco y clasificar, no sé por qué, probablemente porque soy un exagerado, recordé lo que alguien me dijo hace muchos años: “El Matadero” está bueno hasta que te lo hacen a vos. Solemos hablar de lo “kafkiano” como si fuera una alegoría del mundo real. El domingo entendí que es al revés. 
+
+**Martes.**   
+
+Es un lugar común decir que hay una canción de Charly para cada situación de la vida. Lo que uno no sabe es que hay canciones de Charly incluso para cuando sos presidente de mesa. Al momento de abrir los sobres recordé ese verso de Serú Girán: “Si las papas están calientes/ ¿Por qué tengo que ser yo el que dé el primer mordiscón?”. Mi versión favorita de ese tema es la que hace Charly en *Influencia*, de tesitura disco, pero especialmente una que canta en un recital en vivo en el viejo programa de Pergolini, *¿Cuál es?*, donde en vez de decir “Yo sólo soy uno más en la Tierra” dice “Yo sólo soy una más en la mierda”. Siempre se pensó que ese tema hablaba del encuentro que tuvieron algunos músicos argentinos con un secretario de Viola, en 1981, pero esa reunión ocurrió un año después de *Bicicleta*, donde sale originalmente el tema. Sin embargo, con el antecedente de “Botas locas” o “El fantasma de Canterville”, como Kafka, se puede decir que Charly habla en forma metafísica del enfrentamiento entre el individuo y el Estado o entre el individuo y la ausencia del mismo. El problema del Estado es que no tiene equilibrio. Es como una novia que desaparece una semana y después se queda a vivir en tu casa diez días. 
+
+![ganchos](https://64.media.tumblr.com/35ee7e15d33e89004ba3f1a08ecf533c/tumblr_inline_pjzt06UjaR1t6q87u_500.jpg)**Miércoles.**   
+
+Siguen las esquirlas de las PASO. Los militantes (especialmente los de Unidad Ciudadana pero ahora también los de Cambiemos) están revisando telegrama por telegrama porque el escrutinio resultó dudoso. Cuando encuentran un error (no me refiero a las mesas donde Cambiemos o Unidad Ciudadana tienen 0 votos sino a tachaduras, cuentas mal hechas, espacios en blanco donde debería haber un número o ausencia de firmas) suponen que se trata de fraude y piden que el presidente de mesa vaya preso. Me pregunto quién me va llevar cigarrillos. Probablemente mi vieja. Hay algo denominado “empatía” que en este país agrietado (lleno de vigilantes que van a tomar cerveza y en el espacio de opiniones del Facebook del bar se quejan porque la camarera tardó en traerle papas fritas) ya no cuenta. La idea de que una persona que tiene otro trabajo, tiene otros intereses y se mueve en otro contexto llegue al día de las elecciones transformado en un empleado público capaz de interactuar con militantes con años de folclore político por haber leído unos folletitos para suizos es una falacia indescriptible, y la prueba de un sistema perverso que pareciera que adrede ubica a una persona sin herramientas en el puesto de “presidente”. Pero estas herramientas no son sólo estar canchero para cortar troquelados, llenar expedientes o saber cuándo es voto recurrido (que si no lo hiciste nunca es muy complicado), sino también para soportar la presión del momento y no desbordarse. Conclusión: por más que puedan haber existido manipulaciones concretas, es más excitante pensar que hubo fraude (de los dos lados) y no que hubo autoridades de mesa sin la capacitación, ni el temperamento ni la asistencia adecuada del Estado para sobrellevar la obligación civil con comodidad. No sé si hubo fraude electoral, lo que seguro hay en este país es fraude cerebral y todos tenemos una cuota de responsabilidad. 
+
+**Jueves.**   
+
+Me llama la atención el grado de adaptabilidad que tenemos para recibir con algarabía cualquier tendencia que nos haga sentir parte de un hecho colectivo. El año pasado, por ejemplo, millones de personas en el mundo, sin saber por qué, salieron a cazar pokemones. Ahora es el turno de Sarahah, una aplicación de origen árabe que hace furor en el mundo. Lo único que entendí, después de leer algunos artículos sobre el tema, es que permite que personas “allegadas” te digan, en forma anónima, cosas que no se animan a decirte en la cara. Por supuesto, como todo lo vinculado al anonimato, lo más usual es que te digan que sos feo o un estúpido o las dos cosas juntas. También está la posibilidad de que alguien se anime a declarar su amor a través de Sarahah, aunque, ¿hay algo más absurdo que una declaración de amor en la que la otra persona no sabe quién sos? Pero lo más raro es la naturalidad con que los usuarios aceptan que, porque está de moda, deben recibir mensajes que en un gran porcentaje van a incluir palabras hirientes (desde ya uno de los problemas de la aplicación es que propicia el bullying). ¿Qué es lo próximo? ¿Pararse en una esquina con un cartel que diga “Golpéenme”? ¿Ir a la cancha de Boca con la camiseta de River? ¿Gritar “Viva Macri” en una reunión de La Cámpora? Se atribuye a Oscar Wilde la idea de que lo importante no es que hablen bien o mal de uno, sino que hablen. A mí no me termina de cerrar. 
+
+**Viernes.**   
+
+Desde hace unos quince años soy fan de Pez, la banda favorita de los que no sabemos bailar y nos dejamos la barba antes de que se pusiera de moda. La primera vez que los vi fue en el canal Music & Country, donde interpretaban algunos temas de *Convivencia Sagrada*. Después empecé a comprarme sus discos y a verlos cada vez que venían a Mar del Plata. Los vi en la Vinoteca Perrier, en La Mula Plateada, en el teatro Diagonal, en Casa Rock, en Liverpool. La mayoría de estos lugares ya no existe. Cuando me enteré de que Fabián Casas les escribía algunas letras entendí que Pez era la posta. La discografía de la banda es tan ecléctica y extensa que logró inventar un público nuevo para el rock argentino, tendiente a dividirse en parcelas antagónicas. Quienes seguimos a Pez somos una mezcla de hippies, punkies y metaleros. Ahora acaban de editar *Pelea al horror*, un disco urgente, en el que Fabián Casas vuelve a escribirles letras y que combina las diferentes facetas sonoras a las que la banda nos tiene acostumbrados. El tema que más me pegó esta vez se llama “1986”. La letra parece una relectura de *Juvenilia* desde la perspectiva de Ariel Sanzo (El artista antes llamado Ariel Minimal), aunque tengo entendido que Miguel Cané no fue al Parakultural. 
+
+**Sábado.**   
+
+En 1998 mi hermana tuvo su primer trabajo. Yo tenía trece o catorce años. Cuando cobró su primer sueldo me dijo que eligiera algo y ella me lo regalaba. Elegí *Ok Computer*, la obra maestra de Radiohead que ahora mismo está cumpliendo veinte años. Es una de las mejores decisiones que tomé en mi vida. Y uno de los mejores regalos. En mi primer año en Letras, en 2004, fui a un taller dirigido por Ana Porrúa sobre la poesía de los 90. Leímos a Laura Wittner, a Daniel Durand, a Juan Desiderio, a Martín Gambarotta, a Martín Rodríguez. Hasta ese momento creía que la poesía era Rubén Darío, pero se notaba que estos tipos habían escuchado rock. Al finalizar la cursada debíamos elegir a uno de los poetas para realizarle un pequeño reportaje por mail. Elegí a Fabián Casas porque “Sin llaves y a oscuras” me parecía genial. También fue una de las mejores decisiones de mi vida. Esta semana estuve enfrascado leyendo *Los diarios de la edad del pavo*, que funciona como el demo de *Ocio*, la novelita que por esos mismos años Casas escribió y corrigió con la paciencia de un samurái que es; sin duda, la novela que debería tener todo escritor antes de publicar algo. La trayectoria de Casas invierte el orden del mandato de Osvaldo Lamborghini: primero escribió, después publicó y en *Los diarios* encontramos a un Casas cachorro. Su voz autoral, que debe ser de las más poderosas que surgieron en la literatura argentina en los últimos 20 años y de la que tanto nos cuesta despegarnos a muchos de sus fans, todavía no estaba del todo sólida, y eso es lo que más impacta del libro. Lo que hay son embriones de ese mundo de referencias (Zappa, San Lorenzo, la figura de la madre) y de esa fraseología metafórica implacable, como cuando dice que el efecto del lexotanil se asemeja a una pradera en la que el viento hace ondular flores… de plástico. Creo que Lali, la novia de Casas por ese entonces, es el mejor personaje femenino de toda su obra. El joven Casas no la describe demasiado, no se sabe mucho de ella a lo largo del libro, pero justamente ese carácter inenarrable es lo que le otorga más fuerza. “Parece que soy un ser detestable, megalómano y hostil” escribe Casas cuando termina el último cuaderno de los diarios. Y en la elección consciente de esa perfecta sucesión de adjetivos negativos comienza a nacer el escritor que hoy conocemos y que tanto queremos. 
+
+![ganchos](https://64.media.tumblr.com/ec3f5b624fb752174e27ba3e2101f278/tumblr_inline_pjzt07mTsb1t6q87u_500.jpg)**Domingo.**   
+
+Esta semana me salió todo mal. Quise ser un buen presidente de mesa y los fiscales generales me hicieron bullying. Los de la inmobiliaria me avisaron que a partir del mes que viene se termina el contrato firmado hace dos años y el alquiler costará más de lo previsto. Me dijeron que soy un egocéntrico incapaz de ponerse en el lugar del otro y no a través de Sarahah. Se me rompió el monitor y estoy escribiendo en una notebook prestada en la que mi ser no se halla. Quise ver el partido de River vs Atlas por Internet y no encontré streaming. Invité a mi mejor amigo a pasar un fin de semana de locura en Mar del Plata y le tuve que decir que mejor no viniera porque me estaba por morir. Si no empieza a suceder lo que dice el poeta voy a estar en serios problemas: 
+
+“Que suba lo que crece,   
+
+lo que se aparta, aparte,   
+
+lo que vino, se encuentre,   
+
+lo que se fue, se vaya,   
+
+aquí voy yo”. 
+
+  
+
+
+
+
+---
+
+Martín Zariello
+---------------
+
+ Martín Zariello es narrador y bloguero. Es autor de ‘Sobre el rock’ y ‘En realidad quería hablar de otra cosa’ (Puente Aéreo Ediciones). Su blog es Il Corvino.
+
