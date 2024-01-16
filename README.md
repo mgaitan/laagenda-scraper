@@ -15,8 +15,8 @@ Sitio nuevo: https://laagenda.buenosaires.gob.ar/. Sitio antiguo: https://laagen
 
 ## Cómo usar el archivo. 
 
-Los articulos se guardan en la carpeta `posts/` en formato mardown (.md). 
-Tambien estan "linkeados" desde subcarpetas `posts/por-autor/` `posts/por-fecha/` y `posts/por-seccion/`
+Los articulos se guardan en la carpeta [posts/](https://github.com/mgaitan/laagenda-scraper/tree/main/posts/por-autor) en formato Markdown (`.md`). 
+Tambien estan "linkeados" desde subcarpetas [posts/por-autor/](https://github.com/mgaitan/laagenda-scraper/tree/main/posts/por-autor), [posts/por-fecha/](https://github.com/mgaitan/laagenda-scraper/tree/main/posts/por-fecha) y [posts/por-seccion/](https://github.com/mgaitan/laagenda-scraper/tree/main/posts/por-seccion)
 
 
 ## Cómo utilizar el scraper
