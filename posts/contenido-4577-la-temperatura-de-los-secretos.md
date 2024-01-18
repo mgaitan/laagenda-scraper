@@ -1,0 +1,71 @@
+# La temperatura de los secretos
+
+**Little Fires Everywhere es un drama ambientado en los años 90 que expone el racismo y la xenofobia en una ciudad acomodada de los Estados Unidos.**
+
+28 de marzo de 2021 - ESTRENOS
+
+_por MAIA DEBOWICZ_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4577-la-temperatura-de-los-secretos
+
+
+
+Las llamas trepan la tela de las delicadas cortinas. Arde un violín, las ruedas de una bicicleta, el walkman que atesora un casete de Marvin Gaye, un oso de peluche, un par de zapatos y una galleta de la fortuna que rueda sin develar el destino que esconde en su interior. Los hipnóticos créditos iniciales de Little Fires Everywhere resumen, con un desfile de objetos que se convertirán en cenizas, la trama de la miniserie producida y protagonizada por Reese Witherspoon: la tensión inflamable que hay en una sociedad que trata de ocultar su cara más racista y xenófoba. Ambientada en 1997 en el noroeste de Ohio, Little Fires Everywhere comienza por el final, exhibiendo una mansión destruida por el fuego. La familia que hasta hace minutos vivió bajo esos techos ahora calcinados observa conmocionada cómo quedó su casa. Sentada en la parte trasera del camión de bomberos se encuentra Elena Richardson (Reese Witherspoon), envuelta en una manta y con la mirada perdida. “Los muchachos dijeron que cuando entraron había pequeños fuegos por todas partes”, le dice un policía asegurando que el siniestro no fue un accidente. Fue un hecho intencional. “Si no fue Izzy, entonces, ¿quién fue?”, pregunta el oficial luego de acusar sin dudarlo a la oveja negra de esa familia que parecía perfecta. A partir de ese interrogante, el relato retrocede en el tiempo hasta pararse en ese mismo barrio, 4 meses atrás de esa fatídica Navidad.
+
+
+
+
+Es agosto de 1997 y, camino al trabajo, Elena descubre la invasión de un Volkswagen sucio y destartalado, con dos personas durmiendo adentro. Es una postal que contrasta con el impoluto paisaje suburbano de Shaker Heights: una ciudad de gente pudiente donde, por reglamento, la basura debe permanecer detrás de la casa para no dar mala imagen. En los asientos delanteros de aquel auto verde que escandaliza a Elena se encuentran Mia Warren (Kerry Washington), una madre soltera coprotagonista de la miniserie, y su hija de 15 años, Pearl (Lexi Underwood). Son dos mujeres afrodescendientes de bajos recursos, que llegan por tierra a Shaker Heights con poco equipaje, envueltas en una bruma de interrogantes que despiertan la curiosidad de Elena, una madre, esposa y amiga que se muestra intachable cada vez que muestra sus dientes blancos perfectamente alineados. El contacto entre Elena y Mia enciende la mecha del futuro estallido.
+
+
+
+
+Narrada en 8 episodios de 60 minutos y dirigida por Lynn Shelton, Little Fires Everywhere adapta el best-seller de 2017 escrito por Celeste Ng, una escritora estadounidense y descendiente de padres hongkoneses, que vivió su adolescencia en Shaker Heights. Cuando Mia y su hija adolescente llegan a este lugar, Elena les muestra su segunda propiedad, que tiene en alquiler. Es una bella casa con dos habitaciones y un invernadero por 300 dólares por mes, pero con un poco de rebaja, si se comprometen a cortar de forma rigurosa el césped cada dos las semanas. En Shaker, por reglamento, el césped no puede medir más de 15 centímetros. Pero cuando Elena les advierte que los contratos son anuales, Mia desiste de la oferta porque, debido a su vida nómade, solo puede alquilar por mes. El trato no se lleva a cabo hasta que, al salir de la casa, Elena observa con un poco de asco el Volkswagen que guarda las valijas de las nuevas visitantes. Es en ese momento donde se invierten los roles, y es Elena quien acepta las condiciones de Mia. “¿Sabes que se sintió bien? Ayudar. Es hermoso saber que tus acciones afectan la vida del otro. Y de eso se trata la vida. Hacer cosas buenas por gente buena que agradece su amabilidad”, le cuenta Elena, orgullosa, a su marido Bill (Joshua Jackson) y sus cuatro hijos mientras comen fideos. En esa pequeña charla de sobremesa, la guionista Liz Tigelaar expone el egocentrismo de una de las protagonistas: ayuda a quienes tienen menos para sentir poder sobre el otro.
+
+
+
+
+El racismo invisible
+
+
+
+
+La manera más transparente de presentar a un personaje es a través de su rutina. Elena se despierta cada mañana a las 6, se pesa y anota en un cuaderno lo que marca la balanza. Levanta a sus cuatros hijos, prepara el almuerzo para cada uno y un café para su marido abogado. Es tan ordenada que tiene días fijos para tener sexo con su cónyuge: los miércoles y sábados. Mia es lo opuesto: aparentemente libre y espontánea, pasa sus días entre su profesión de artista y su trabajo de mesera en un restaurante chino. Para ella, el sexo no tiene por qué ser más que sexo y no existe nada más valioso que la dignidad. Su hija, Pearl, no tarda en vincularse con los hijos de Elena. La primera vez que entra a la mansión de la familia Richardson queda impactada por sus dimensiones y el lujo que envuelve cada ambiente.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/43729/9aeddc7b-f777-43d4-968e-80ca14cdfade.jpg)
+
+
+
+
+Elena y Mia, una llama de mecha corta.
+
+
+
+
+Distribuida en Argentina por Amazon Prime Video, Little Fires Everywhere es un melodrama que expone los contrastes sociales entre dos familias. Los melodramas siempre se montaron sobre los temas sensibles de sus épocas: las herencias, las paternidades y maternidades, las adopciones, los secretos de familia. Esta miniserie toma todos esos elementos y los ambienta en los años 90, con música de Alanis Morisette y The Cardigans, en unos suburbios acomodados que en apariencia son abiertos de mente e igualitarios. Sin embargo, detrás de las frases bonitas y de corrección política que integra el reglamento de bienvenida de Shaker hay situaciones de racismo cotidianas que, sin ser sangrientas, no dejan de ser violentas. Lo primero que hace Elena luego de alquilarle su propiedad a Mia es ofrecerle trabajo doméstico en su casa. Al principio, Mia se ofende y rechaza la oferta. “¿No sería más racista no ofrecerle nada por su piel?”, le comenta Elena desencajada a su marido. Como tantas otras veces, esta mujer en apariencia perfecta se sale con la suya y Mia termina trabajando para ella. Cocinando para sus hijos, lavando los platos que ensucia su marido y ordenando la casa para la reunión de sus amigas del club de lectura.
+
+
+
+
+Mia no acepta ese empleo, que detesta, por el dinero: lo hace para proteger a su hija Pearl de las acciones de Elena, a quien odia desde el primer día. Elena, en cambio, se esfuerza en cada uno de sus movimientos por agradar a Mia. Intenta lograr que la quiera, a tal punto que se obsesiona con esta mujer negra que acaba de conocer. Durante los 8 episodios, estos personajes blancos y conservadores repiten una y otra vez la frase “la raza no es importante”, como si fuera un comentario superador. Nada más alejado: detrás de esa afirmación constante, de esa desesperación por aclarar que no son racistas, muchas veces está la intención clara de anular las raíces e identidad del otro. Little Fires Everywhere no es un documental sobre racismo ni una obra de denuncia. No obstante, se sumerge en el tema con cuidado y responsabilidad, señalando ese racismo naturalizado que no está tan a la vista. En Shaker se discrimina a toda clase de minoría: sean afrodescendientes, chinos o gays. La diversidad de género también es parte de lo inaceptable en la localidad de Shaker, pero en particular en la mansión Richardson.
+
+
+
+
+Las personas no son de nadie
+
+
+
+
+Little Fires Everywhere se hace reiteradas veces la misma pregunta: ¿son las hijas pertenencias de sus madres? Lynn Shelton enfrenta a dos madres con realidades muy distintas, pero tienen algo en común: las carcome mantener a salvo un secreto. ¿Qué significa ser una buena madre? Como si se toparan con el peor de los castigos, la hija de Mia desearía que su madre fuera Elena, mientras Izzy, la hija menor de Elena, quiere estar todo el tiempo con Mia. Ella es la única persona que acepta y valora a Izzy tal cual es, sin arrastrarla a que use un vestido que la hace sentir incómoda con su cuerpo. “Si lo que dicen no es cierto, cambia la historia”, le dice Elena a Izzy, a quien llama Isabelle, aunque a su hija no le guste ese nombre. Ese es otro de los tópicos que recorren toda la miniserie: ¿a quién le pertenecen las historias? La autoría de las voces y quién protagoniza las vivencias es el terreno donde crecen los mayores conflictos de Little Fires Everywhere.
+
+
+
+
+“Todos cuentan una historia, Isabelle. Lo admitan o no”, afirma Elena. A medida que los episodios avanzan, el melodrama crece como las llamas al lanzarles nafta. La fotografía de Trevor Forrest refleja el cambio de actitud en los personajes: los planos luminosos y simétricos de los primeros capítulos se van volviendo oscuros, como si las protagonistas estuvieran bajo la luz de las velas. Son Elena y Mia quienes ya no pueden ocultar sus tormentos, aquellas mentiras que las vuelven vulnerables ante su oponente. Las personas no son de nadie. Sin embargo, Elena intenta comprar más de una vez las decisiones del otro. Sean unos gramos de amor o un silencio de por vida; una extorción permanente a estas minorías que rodean las casas más ricas de Shaker. “La filosofía de los fundadores de Shaker es que la incertidumbre y el desastre son totalmente previsibles”, dice el reglamento del lugar. Sin embargo, los habitantes de Shaker no podrán prevenir el incendio que se avecina.
+
+
+

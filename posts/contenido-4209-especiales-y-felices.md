@@ -1,0 +1,86 @@
+# Especiales y felices
+
+**En tiempos difíciles, lecturas ligeras. Cuando se trata de lectura fácil, nada mejor que policiales y dentro de las policiales nada mejor que Simenon-Maigret**
+
+11 de marzo de 2021 - MESA DE LUZ
+
+_por QUINTÍN_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4209-especiales-y-felices
+
+
+
+En tiempos difíciles, lecturas ligeras. No sé si existe ese refrán y hasta sospecho que bien podría ser cierto lo contrario: que cuando el mundo se hunde, lo mejor es encerrarse a leer a Wittgenstein. O a Musil, si de ficción se trata. Pero en estos días opté por la primera variante. Cuando se trata de lectura fácil, nada mejor que policiales y dentro de las policiales nada mejor que Simenon-Maigret (las novelas no Maigret de Simenon siempre me dieron miedo por su abrumadora sordidez, frente a la que no es posible esconderse detrás del vigilante).
+
+
+
+
+Las 75 novelas de la serie del comisario Maigret se extienden desde 1931 con Pietr el letón (que leí varias veces, todas las que me propuse consumirlas de punta a punta) hasta 1972 con Maigret y Monsieur Charles (a la que, desde luego, nunca llegué). Pero supongo que hubiera sido un error leerlas en orden. Es mejor elegir azar. Es como llamar a la policía cuando las circunstancias apremian.
+
+
+
+
+Y esta vez acerté con dos novelas singulares y ultraligeras. Ambas (no lo supe hasta después de leerlas) son de 1951, es decir que están más o menos en la mitad del lote. Entre 1945 y 1955 Simenon vivió en Norteamérica, en distintas ciudades chicas de Estados Unidos y Canadá, haciendo largos viajes en auto. No sé bien cómo se organizaban cuando tenía relaciones simultáneas con su mujer, su secretaria (que después fue su mujer, aunque la primera siguió viviendo cerca) y su cocinera (al final de su vida se casó con una cocinera, pero creo que no era la misma). Pero, leyendo estas dos novelas perezosas, distendidas y alegres, da la impresión de que la pasaba bien. Y, además, estaba lejos de Francia, donde al final de la guerra lo acusaron de haber sido colaboracionista, aunque nunca se haya demostrado. De todos modos, todo hay que decirlo, las novelas tempranas de Maigret destilan un antisemitismo de esos que uno no sabe si son parte de un cliché de la época o producto de una visión racista del mundo. Nada de esto aparece en las novelas posteriores: el Simenon exiliado hizo buena letra. Y vendía tanto que nadie quería hurgar demasiado en su pasado, ni siquiera en el texto de sus viejos libros.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/38859/7edfc9bd-5bbf-4a85-b6ab-ede169df5cd0.jpg)
+
+
+
+
+Pero volvamos a esas novelas especiales y felices. El título original de Maigret y los aristócratas es La première enquête de Maigret, o sea la primera investigación de un policía novato, al que le faltan décadas para llegar a comisario. De hecho, el libro empieza el 15 de abril de 1913, antes de que estalle la Gran Guerra, pero en primavera, esa estación que tanto impresiona al visitante de París por la tibieza del clima y el repentino buen humor de los habitantes. Simenon siempre fue sensible al clima: “De aquella tarde le quedaría un recuerdo radiante, el de la más hermosa primavera de París y con un aire tan suave, tan profundo, que uno terminaba por pararse para respirarlo.” Son días particulares, además, porque un rey extranjero visita la ciudad y las calles están engalanadas. “Fuera hacía un sol espléndido, y había banderas en todas las ventanas. Daba la impresión de que en el aire vibraban los tambores y los clarines. Las gentes andaban alegremente y, a fuerza de ver pasar los desfiles, la mayoría de los hombres caminaban con porte marcial.” Es interesante notar el toque un poco siniestro: faltaba poco para que esos hombres que andaban con porte marcial se hicieran matar a gran escala. Es que con Simenon nunca se sabe. Siempre hay algo que no se llega a entender del todo, que se esconde en párrafos que parecen banales.
+
+
+
+
+Maigret y los aristócratas es una novela en dos planos. Por un lado, ese tiempo espléndido hace expandir los afectos y las efusiones alcohólicas. Por el otro, están los aristócratas a los que alude el título en español, por una vez bien elegido. El relato empieza cuando Justin Minard, un personaje que se hará entrañable por su fidelidad perruna, un tipo que tiene una mujer imposible y se gana la vida tocando varios instrumentos en los cabarets, llega a la comisaría en la que el agente Maigret está de turno y denuncia que escuchó a una mujer que pedía ayuda en un palacete de la rue Chaptal. Luego la mujer entró, se escuchó un disparo y, cuando Justin tocó el timbre, un mayordomo lo sacó a trompadas. La casa pertenece a los dueños de los cafés Balthazar, cuyos anuncios se ven por toda la ciudad. Cuando Maigret va a ver qué pasa, los aristócratas niegan todo y le muestran al policía una casa en orden.
+
+
+
+
+Por supuesto que, detrás de esa explicación se oculta un asunto muy turbio que Maigret terminará esclareciendo, aunque se enfrentará a un problema muy serio: su jefe, el comisario Le Bret, es también un aristócrata y frecuenta socialmente a los Gendreau-Balthazar. Maigret terminará confirmando sus sospechas, aunque no sobre la naturaleza del crimen y sus responsables, sino sobre la imposibilidad de tocar a los aristócratas, protegidos por una densa red de relaciones que incluye a sus superiores en la policía y a los altos funcionarios franceses. Trabajando solo y de modo extraoficial, con la sola ayuda de Justin y la comprensión de su mujer, Maigret se quedará con la satisfacción de que los aristócratas no lograron engañarlo, aunque se salgan en parte con la suya.
+
+
+
+
+Pero el libro tiene, como siempre pasa en las novelas de Maigret, una vuelta inesperada que no pasa por las peripecias de su tarea específica. En eso, Simenon tiene la política de Conan-Doyle o de Chandler: el delito cometido es lo que menos importa. Incluso, sus pormenores son difíciles de recordar. En el caso de Simenon, son los personajes los que hacen su literatura. Y sobre todo, la relación de los personajes con el protagonista. En este caso, además de Justin, se trata de Bob y Dedé, un par de juerguistas y vividores quienes, a diferencia de los miserables aristócratas, solo quieren el dinero para gastarlo y vivir a lo grande. De hecho, Bob es el conde de Anseval, un noble venido a menos y Dedé un mecánico que trafica drogas. En un momento de la historia, cuando Maigret se acerca a la solución del caso, Dedé casi tiene que matarlo y el policía se salva de casualidad. Pero no hay rencores. Al final, invitará a comer al policía y se emborracharán juntos. Durante toda la novela, Maigret se demostrará más cómodo en compañía e los marginales que de los burgueses. Y el lector siente ganas de brindar con ellos.
+
+
+
+
+Las memorias de Maigret (esta vez la traducción del título es literal) es una excepción en toda la serie. Aquí no hay investigación ni crimen, sino un juego literario: el libro está escrito en primera persona por el comisario Maigret, que más que contar su vida, se propone aclarar algunos malentendidos sobre su persona provocados por las novelas de un escritor llamado George Simenon. Un día, recomendado por el jefe máximo, cuando era apenas un veinteañero y se hacía llamar Sim, el tal Simenon se apareció en las oficinas del Quai des Orfèbres, la sede de la Policía Judicial, y le propuso a Maigret seguirlo para escribir sobre su vida. (Simenon tenía menos de treinta años cuando empezó la serie de Maigret en 1931, y seguramente algún contacto en la policía). El joven Sim empezó a publicar y convirtió a Maigret en un personaje famoso aunque, dice el policía, tanto sus opiniones como su trabajo fueron desvirtuados por culpa su biógrafo. Y, lo que es peor, terminaron modificando su conducta de un modo absurdo: “Lo que yo he tratado de hacer, en definitiva, es ajustar una imagen a otra imagen, un personaje no a su sombra sino a su doble.” Todo el libro es un juego de dobles entre el policía y su imagen.
+
+
+
+
+Sobre el final, el personaje Simenon declara: “jamás he tenido el valor de volver a leer una página mía.” Y es probable que estas lo hubieran avergonzado un poco: son un canto a la pereza. Pero para los seguidores de Maigret estas memorias son un caramelo. Sirven para que Simenon cuente un par de cosas sobre su criatura: cómo fue la relación con su padre, cómo conoció a su esposa, cómo fueron sus años de inspector de calle persiguiendo prostitutas, carteristas, inmigrantes clandestinos, pasando frío en las noches, sueño en las estaciones de tren, caminando hasta que se le agujereaban las suelas de los zapatos. Maigret hace además una apología de la clase media trabajadora que quiere cumplir con su deber, a la que un policía pertenece tanto como un médico.
+
+
+
+
+Pero hay un par de definiciones sobre el trabajo de la policía que se complementan con una idea de la novela policial. Dice Maigret que la mayor parte de su tarea es rutinaria: crímenes cometidos por profesionales o por razones pasionales. Los culpables terminan cayendo en el primer caso (además de que se matan entre ellos) y confesando en el segundo. Hay un crimen muy difícil de resolver, que es el asesinato de prostitutas. Y otro casi imposible: el del crimen entre personas respetables. Allí “Hay que hacer saltar poco a poco una enorme capa de barniz de respetabilidad, existen los secretos de familia más o menos repugnantes, que todo el mundo pretende ocultarnos y que es preciso poner en claro sin preocuparnos de las malas caras ni de las amenazas.A veces, son cinco o seis y más los que están de acuerdo en mentir sobre ciertos hechos, mientras disimuladamente tratan de echarse la culpa unos a otros.” Cuando leía ese párrafo pensaba en el asesinato de Nora Dalmasso. Esos casos son los que interesan al público, dice Maigret y sobre ellos escribe Simenon. Allí aparece otra vez el tema de las familias de apellido, con contactos en el poder, que harán todo lo posible por que sus amigos no vayan presos. Esos crímenes, dice Maigret, son siempre por interés.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/38860/5b046793-26af-4688-991a-2cebd4225272.jpg)
+
+
+
+
+Como novelista, Simenon no está interesado en las historias de profesionales sino en esos casos en los que una persona que no parecía socialmente pronosticada a delinquir termina haciéndolo. De eso se componen sus novelas (no solo las de Maigret). “Quiero hablar de los crímenes que suelen cometerse en los medios donde sería menos de esperar y que son como la desembocadura final de una larga y sórdida fermentación.Una calle cualquiera, limpia, arreglada en París o en los alrededores. Gentes con una casa confortable, una vida familiar y una profesión honorable.”
+
+
+
+
+Para resolver esos crímenes es necesario comprender. “En efecto, de todo, hombres y mujeres de todas clases, hombres y mujeres en toda clase de situaciones y de todas las escalas sociales, se les ve, se toma nota y se trata de comprender.” Pero, agrega, “no de comprender algún humano misterio. Posiblemente ha sido contra esta novelesca idea contra la que más he protestado casi airado.” No es una cuestión de humanismo, sino de entrar a ciertos lugares recónditos de la mente. Sobre el final, Maigret lo dice de otra manera:
+
+
+
+
+“Repitiendo una sentencia de mi profesor de catecismo, diría de buena gana: ‘Un poco de conocimiento aleja del hombre. Un conocimiento a fondo nos acerca otra vez a él’”. Simenon se preció siempre de conocer a fondo y lo demuestra en las novelas, que siempre tienen esa doble faceta: la bienvenida y disfrutada sensualidad del calor, del alcohol, de la comida, del sexo son la contraparte del acceso al lado oscuro de la vida. Simenon escribía como si fueran imposibles de separar. Eso lo convirtió en un escritor único. Aun en sus momentos de pereza, lograba acercarse al goce y a las tinieblas.
+
+
+

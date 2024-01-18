@@ -1,0 +1,1 @@
+../../contenido-29834-como-soportar-lo-insoportable.md

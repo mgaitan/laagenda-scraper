@@ -1,0 +1,1 @@
+../../contenido-8170-fundido-a-negro.md

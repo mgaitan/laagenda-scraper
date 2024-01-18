@@ -1,0 +1,76 @@
+# Emociones encontradas
+
+**Hugo Lamadrid publicó una autobiografía donde repasa los pormenores de una trayectoria deportiva espinosa, lejos de la biografía heroica.**
+
+22 de marzo de 2021 - LATITUD 34
+
+_por SANTIAGO SEGURA_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4466-emociones-encontradas
+
+
+
+Lamadrí, El Renacido. Gloria, caída y resurrección de un trabajador del fútbol (Ediciones Al Arco) no hace más que confirmar las credenciales de este todoterreno. Un deportista al que el ocaso de su carrera depositó en una panadería. Un panadero que se volvió tuitstar. Un tuitstar que se encontró con la atención del público cautivo y profundizó su veta hilarante como standapero. Un standapero que aceptó el reto de contar historias y las llevó al papel. Un escritor futbolista, porque hay profesiones que te retiran pero nunca, jamás de los jamases, se abandonan.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/42471/24fbc1cc-c3d5-46c3-91e3-b8276a7d5aaa.jpeg)
+
+
+
+
+El periodista Alejandro Wall le dejó picando la idea, y Hernán Casciari -editor de la revista Orsai- dio el pase gol y lo hizo sonrojarse, justo a él, tan identificado con Racing. Lo cierto es que Lamadrid comenzó a escribir a partir de sus monólogos de stand up, y descubrió que la tarea le resultaba agradable y no tan ardua de realizar. A la idea y el entusiasmo de sus colegas -estudia periodismo, tarea que ya ejerció en diversos medios de comunicación-, Hugo la coronó con un encuentro casual. Conoció a Julio Boccalatte, editor de Al Arco, en la presentación de un libro ajeno. En pocos meses tenía el trabajo propio terminado.
+
+
+
+
+“Viene muy bien la repercusión. A pesar de que son momentos complicados para que a la gente le llegue, la verdad es que tanto por el famoso portal de venta online como por pedidos que llegan a través de las redes sociales, estamos muy bien. Ya se fue el 25% de la edición y el libro lleva un mes en la calle”, dice del otro lado de la línea telefónica el protagonista, que justifica este arranque exitoso por el precio de tapa: sus amigos le dicen que Lamadrí vale lo que un usado. Esa idea sí fue suya: quería llegar a más gente y lo está logrando.
+
+
+
+
+El Renacido dista de ser una biografía de aquel mediocampista gigante que debutó como delantero en un Racing que se desangraba. No hay línea temporal ni un orden cronológico de los hechos. Tampoco demasiada información sobre su vida personal, eso cada vez menos existente que damos en llamar intimidad. La de Lamadrid parece ser la clásica historia del pibe que pinta para crack, juega en las selecciones juveniles y es pretendido por clubes europeos. Hace carrera en el Viejo Continente luego de triunfar en un club grande de su país, lo citan para la selección nacional, salva el destino de un par de generaciones con su apellido. El detalle es que, de todo ese viaje, hay unos pocos pasos que suceden y el resto se frustran. En la historia del artista hoy conocido como El Volante Central o El Triunfador, muchos sueños quedan cancelados. Hay detalles trágicos que el tiempo y los recursos del autor vuelven comedia. Pero todo lo narrado viene a cuento de esa profesión que te hace morir dos veces.
+
+
+
+
+“El editor dejó que lo que estaba escrito tenga la impronta mía, porque el texto la conserva, y hay partes completas que no están retocadas”, continúa el Flaco, sorprendido porque buena parte de los lectores le remarcan que en el libro falta “la parte en la que te reinventaste, lo de hoy”. Él asegura que no fue una estrategia y que, de hecho, olvidó historias que podían ser importantes también, al punto que ya se está pensando en una reedición ampliada o un segundo volumen para una obra que lleva un mes en las calles.
+
+
+
+
+Lamadrí sabe en qué territorios gana y cuáles le son más inhóspitos. Es habilidoso -sí, habilidoso- para contar. “Me doy cuenta de que capto la atención de la gente. Lo que hice en el libro fue casi calcado a lo que hago cuando cuento, pero escrito. Sabía que quien leyera no me iba a dar la oportunidad de esperarme un par de capítulos: el que compra el libro quiere ver qué carajo tiene para contar ‘ese que me hace reír en Twitter’”. El temor era que no hubiese golpe de efecto y lo abandonaran rápido, por eso planeó “meter la piña en el primer capítulo”. Lo paradójico es que Ese Que Te Hace Reír En Twitter aquí se revela como un narrador áspero y profundo. Llano y gracioso, sí, pero no por eso menos emotivo y hasta por momentos lapidario consigo mismo. “Me dicen eso: que el libro les emocionó, que hubo partes que les hicieron sentir mal”.
+
+
+
+
+Si el jugador muere dos veces -concepto que Hugo tomó del psicólogo deportivo Marcelo Roffé- y él hoy es El Renacido: ¿qué sucede con esa fama disuelta tras el retiro y efervescente ahora, cuando es incluso más popular que en sus días como deportista? Para él son famas distintas, y se desprende por sus palabras que prefiere esta segunda ola de cariño. Su reacción siempre fue la misma: responder al aprecio del público con un autógrafo, una foto o una simple respuesta en las redes (otro detalle que marca su cercanía con quienes lo siguen: dedica cada copia que se vende a pedido del comprador). “La primera fama tenía que ver solamente con el fútbol y la de hoy es transversal, porque ya no tengo discusiones por fútbol ni por política en Twitter, aunque todos sepan cómo pienso y lo que opino. Me sigue gente de todos los clubes y que piensa distinto a mí. Creo que quien participa de mi cuenta entiende que yo me banco la gastada, y el humor desactiva los conflictos. Es un logro muy importante no putearse con nadie”.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/42472/ee9fd608-154e-49a3-a16f-c7459c86de5f.jpeg)
+
+
+
+
+El futbolista renacido standapero, tuitero y escritor.
+
+
+
+
+Ese cariño del público más allá de la camiseta lleva a profundizar en el personaje, que menoscaba algunas cualidades del futbolista real, eberludueñizado para la ocasión (no es casual que uno de los prólogos pertenezca al humorista Luis Rubio). “Lo del rústico en parte fue para la construcción del personaje y en parte porque así lo siento. Así blanqueo que no tengo fotos tirando un caño o haciendo un gol de tiro libre, son todas patadas. Y por otro lado es cierto, no era tan rústico. Había que pegar y meter por el sector de la cancha, y porque en aquella época los equipos tenían dos jugadores que marcaban nada más, el cinco y el ocho (y el ocho hasta por ahí nomás). Entonces se creaba una mística alrededor del puesto. La gente entendió y se suma porque, en realidad, la gran mayoría de los que estamos en Twitter… ¡somos mediocres! Somos perdedores. A un laburante le pasa lo mismo que al Volante Central: corre para que sean figuras los otros, nunca sale figura él. Eso hizo que la gente empatizara”.
+
+
+
+
+El logro máximo del libro -lo es también del personaje, pero se cristaliza con la lectura de Lamadrí, El Renacido- tal vez sea ese: la desacralización del mito del futbolista, un colectivo al que se le suele atribuir una homogeneidad inexistente (fama, millones, lujo) fuera del ámbito de los clubes grandes. Lamadrid piensa, analiza y destruye esos mitos que él mismo creía. Y ve en sus propias pisadas los errores que dinamitaron sus chances de elaborar otra carrera, esas pisadas que le hicieron ver la otra realidad: el futbolista es un trabajador más, no una estrella. En su reflexión, se encuentra como un tipo que cumplió un puñado de aquellos sueños, pero a la vez es un ciudadano de a pie que tiene que continuar su vida como cualquier hijo de obrero después del fútbol. Y ese momento cuesta, hiere, por todo aquello otro que pudo haber sido. Hugo Lamadrid descarga su resentimiento, y entonces se reconoce como un mortal más, no el Superman que creía ser cuando aceptaba una infiltración tras otra en su tobillo herido. Esa descarga tal vez le haya salvado la vida.
+
+
+
+
+Mientras estudia y trabaja en la municipalidad de Avellaneda -es Director General de Medios-, el Flaco sigue de cerca todo lo que rodea al mundo del fútbol. Le seduce continuar ligado a la política de Racing como asambleísta, aunque ya no se vea como candidato (en los últimos comicios del club, aspiró a la vicepresidencia secundando a Matías Gainza Eurnekian). ¿Qué le queda por hacer, entonces, a este laburante polirrubro? El Triunfador parece tomar una nueva forma en su rol de Escritor Futbolista: tal vez sea quien ayude a resolver la encrucijada a futuras generaciones de retirados. Para que entiendan que no son los únicos con emociones encontradas, y que hay vida después de la burbuja.
+
+
+

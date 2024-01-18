@@ -1,0 +1,96 @@
+# El humo de la fogata
+
+**Las Fireside Sessions de Neil Young y Daryl Hannah, los relatos de Marina Yuszczuk y lo nuevo de una gran banda chilena, Niños del Cerro.**
+
+28 de marzo de 2021 - COSAS QUE ESTUVE MIRANDO
+
+_por MARTÍN E. GRAZIANO_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4599-el-humo-de-la-fogata
+
+
+
+Fireside Sessions (Neil Young)
+
+
+
+
+“¿Listos?”, pregunta Neil Young. Aunque acaba de comenzar la primavera, cae una nevada en las afueras de Telluride: un pueblo de montaña que, según el último censo, apenas supera los dos mil habitantes. Como está instalado a unos 2700 metros sobre el nivel del mar, no se desaconsejan los tanques de oxígeno pero Young apenas si lleva la guitarra y una gorra de beisbol. Así, parado entre un lago, la pila de troncos y el puñado de sillas dispersas al tuntún, abre la primera de sus Fireside Sessions. Su camisa leñadora nunca estuvo más justificada.
+
+
+
+
+Por supuesto, hay un debate alrededor de los conciertos por streaming que trasciende largamente este texto. Sobre su monetización, sobre la calidad, sobre el oportunismo, sobre la vanidad. Hace unos días, por ejemplo, Sr. Chinarro dijo: “ya cobramos una mierda por el streaming de canciones, solo nos faltaba ponernos a regalar los conciertos”. Las Fireside Sessions, sin embargo, no son precisamente conciertos. Esto es otra cosa.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/43760/06b585dc-997d-482c-9772-a27df714679f.jpg)
+
+
+
+
+Neil Young hace literalmente lo que se le canta
+
+
+
+
+La producción es austera. Semi-oculta detrás del pseudónimo dhlovelife, Daryl Hannah se ocupa de filmar y editar el material con su iPad. Como el ancho de banda es muy bajo, deja el registro en la puerta para que un amigo de la pareja lo recoja y lleve al estudio del ingeniero John Hanlon. Desde allí, directo a las salas virtuales de los Neil Young Archives. Cuentan con un solo sponsor (“agua –dice el comercial-: el mejor producto de la Tierra”), no hay cables a la vista y el soporte de la armónica es una creación del propio Neil fabricado con un atizador y una herradura.
+
+
+
+
+Literalmente, Neil Young hace lo que se le canta. Toca los clásicos de siempre (“Birds”, “Sugar Mountain”, “World On A String”, “Helpless”, “Tell Me Why”), juega con los perros, se lava las manos con jabón antes de sentarse al piano, rescata páginas poco transitadas (¡“Vampire Blues”! ¡“On the beach”!) y, cuando marra algún acorde, no se hace historia. El resultado es emocionalmente devastador. En el final del Volume III, mientras toca “Already one” frente a un atardecer de siete rojos distintos, una certeza se escribe sobre el humo de la fogata: si el mundo termina así, esto es lo mejor de la especie.
+
+
+
+
+¿Alguien será feliz? (Marina Yuszczuk)
+
+
+
+
+La cuarentena zanjó una vieja discusión del periodismo cultural. Resulta que la verdadera pregunta no era qué libros te llevarías a una isla desierta, sino qué porcentaje de libros leídos y qué porcentaje de libros no leídos debía haber en tu biblioteca. Nadie me lo preguntó, pero mi respuesta es esta: 70% / 30%. Un equilibrio volcánico e inestable que, ahora lo sabemos, una pandemia puede voltear en un par de semanas. De manera que fui avanzando sobre las hileras y, muy pronto, llegué a un libro postergado. La amenaza del título, de repente, se había gatillado: ¿Alguien será feliz?
+
+
+
+
+El año pasado, Blatt & Rios publicó casi simultáneamente dos libros de Marina Yuszczuk: por un lado, los poemas de Madre soltera (unas semanas atrás, Osvaldo Aguirre lo reseñó para este mismo medio); por el otro, los cuentos reunidos en este volumen rosado. Quince historias hilvanadas vagamente (si por “vagamente” entendemos “fatalmente”) por una voz que parece decidida a no tocar con la mano ninguna fibra emotiva. Yuszczuk sabe que, si pulsa su instrumento con sabiduría, esas notas suenan por aquello que también se llama simpatía. Como si fuera un sitar. “Marina, no te preocupes por la música –le dice la voz de un sueño-. Ni por el piano, el Conservatorio, los conciertos y las carreras. Lo que te toca es bailar. Hay una forma de música superior que se realiza en las palabras, las de todos los días. Las que todos usan para decir las cosas, con un ritmo, con variantes siempre nuevas. Que significan pero al mismo tiempo cantan. La música es antigua, ahora te toca perseguir lo nuevo”.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/43761/a1d20a3a-9a65-4732-be9c-972f74d65e41.jpg)
+
+
+
+
+A veces, Yuszczuk abandona a su personaje hasta que la inercia revela el otro lado y un cumpleaños infantil en un McDonalds mugriento termina como un cuadro de Hopper. A veces, lo mira dar vuelta la casa en busca de un grillo y su sonrisa es el cuento. A veces, como quería Marcel Schwob, lo lleva de la mano hasta su momento dorado y ahí mismo lo deja: congelado de amor imposible en una bola de cristal. A veces, atornillada frente a un glaciar o la erosión de los padres, Yuszczuk se queda toda la vida a su lado. Esperando el milagro.
+
+
+
+
+Cuauhtémoc (Niños del Cerro)
+
+
+
+
+El águila que desciende y, tres temas después, el tipo obstinado en subir la piedra hacia la cima de la montaña. En su nuevo EP, los Niños del Cerro se toman quince minutos para recorrer la distancia que separa los mitos de Cuauhtémoc y Sísifo: un triángulo entre la Isla Tenochtitlan, el Reino de Corinto y la comuna santiaguina de La Florida. Nada de esto, sin embargo, huele a enciclopedia. Su canción es una siesta felizmente accidentada en ese mundo que se aleja. Alguno se preguntará qué cosa es Niños del Cerro. Pues bien.
+
+
+
+
+Formado en algún punto de 2012 por Simón Campusano (voz, guitarras, sintetizadores), Ignacio Castillo (guitarra eléctrica), José Mazurett (batería), Felipe Villarrubia (bajo) y Diego Antimán (teclados), el quinteto agarró a todo el mundo desprevenido con Nonato Coo (2015): un triunfo que, al otro lado de la cordillera, sonó como el encuentro improbable entre Los Jaivas y Él Mató. Su aparición señaló la existencia de una escena compartida con Patio Solar, Planeta No, El Cómodo Silencio de los que Hablan Poco y el círculo de influencia del sello Piloto. Entre el crecimiento súbito, los problemas estructurales, el aluvión del trap y un reportaje colectivo de POTQ (dedicado a visibilizar los abusos sexuales y la discriminación), la escena naufragó. Los Niños del Cerro acusaron el golpe pero, unos años después, reaparecieron con Lance (2018) y el primer disco solista de Campusano: Brillo (2019).
+
+
+
+
+“Me quemaron pies y manos y no entiendo si sirvió de algo”, dice la apertura. La canción, que se inscribe en la tradición postal de “Stan”, “Famous blue raincoat” o incluso la “Carta a poste restante” de Jaime Roos, le otorga una voz fresca y alternativa al último monarca del Imperio Azteca. El procedimiento es todo un hallazgo: un gesto político donde nadie lo espera. Es decir, donde realmente tiene sentido.
+
+
+
+
+[![](https://img.youtube.com/vi/PVPiZy0Cp_s/0.jpg)](https://www.youtube.com/watch?v=PVPiZy0Cp_s)
+
+
+

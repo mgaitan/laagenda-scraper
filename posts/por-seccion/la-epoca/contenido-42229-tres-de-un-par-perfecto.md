@@ -1,0 +1,1 @@
+../../contenido-42229-tres-de-un-par-perfecto.md

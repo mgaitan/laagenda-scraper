@@ -1,0 +1,191 @@
+# El límite de la memoria
+
+**Mi hermana filma a mi abuela para hacer una película sobre su vida; viajamos al pueblo alemán donde nació y que ahora se le escapa de los recuerdos.**
+
+10 de marzo de 2021 - VIDAS
+
+_por DELFINA KORN_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4184-el-limite-de-la-memoria
+
+
+
+Tenemos cuarenta y ocho horas para conocer la historia de nuestra familia y Gretchen no quiere que nos perdamos un solo detalle. Me recuerda físicamente a mi abuela. Las mujeres alemanas operan, mandan; son eficientes. No usan adornos. De pronto entendí por qué mi abuela no se puede relacionar con las argentinas: casi todas le parecemos estúpidas.
+
+
+
+
+Mi abuela es la matriarca de mi familia, madre de todos nosotros y tirana. Escapó de Alemania a los siete años con sus padres a Paraguay, donde atendió la tienda familiar ya que era la única que pudo aprender el español y un poco de guaraní. De adolescente tuvo muchos accidentes que marcaron su cuerpo: se cayó de un caballo, la mordió una piraña, y un día se tiró un pedo estando en el cine y le echó la culpa a su hermano, por lo que él no le habló nunca más. Se enamoró de un petiso cínico que a sus padres no les gustaba y por eso la mandaron a Buenos Aires, donde conoció a mi abuelo.
+
+
+
+
+Lo primero que mi hermana y yo hicimos, antes de viajar, fue juntarnos a mirar el material acumulado. Cientos de horas distribuidas en cuarenta casettes, imágenes muy movidas y fuera de foco. Había una escena de mi abuela en un consultorio médico, se escucha su voz dándole órdenes a la secretaria pero en el plano solo aparecen sus pies hinchados, o planos detalle de uno de sus ojos.
+
+
+
+
+Mi hermana decía que esas imágenes reflejaban lo que le pasaba cuando mira a mi abuela. Ella tiene una forma particular de autoboicot: no hace copias de back-up, tiene muchos casettes rotos y las baterías de la cámara u otros aparatos que necesitamos, están siempre descargados. Yo siento que ella es como una canilla de oro con demasiadas filtraciones. Cada vez que le reclamo por algo de eso, ella se enoja. Me obsesioné tanto con que ella terminara su documental porque sentía que su vida no iba a avanzar mientras tanto y la mía, por ser su hermana menor, tampoco.
+
+
+
+
+Gretchen y Lars nos pasan a buscar por el hotel: dicen que vendrán a las ocho y aquí las ocho no es ocho y un minuto, es ocho cero cero, ocho en puntísimo. Un apego al reloj que me resulta completamente ajeno. Mi familia heredó algo de ese deber ser tan extremo, aunque en una versión distorsionada, pasada por el judaísmo y el argentinismo. Toda la rama de mi familia que viene de Alemania son personajes excéntricos: uno de los tíos de mi abuela estuvo entre los pioneros que fueron a buscar oro a California durante la fiebre del oro, otro pariente escribió un libro sobre los gustos sexuales de Hitler, a quien supuestamente le gustaba que le hicieran caca encima.
+
+
+
+
+El primer lugar al que nos llevan es un cementerio donde está enterrada nuestra tatarabuela. Mi hermana filma todo. Lars casi no habla –solo dice yes, ya, yes- pero cuando lo hace, es para decir algo muy importante. Nos tentamos un poco porque no sabemos nada sobre nuestra antepasada, y Gretchen y Lars esperan mucha emoción de nosotras. De repente aparece de entre las tumbas Abelard, un historiador amatéur que lleva toda su vida esperando nuestra llegada. Lo primero que me pregunta es: “¿Cómo está Edith de su cadera rota?”. Yo no entiendo cómo sabe lo de la caída del caballo pero Gretchen le dice algo en alemán que interpreto por el lenguaje corporal que quiere decir que no nos abrume.
+
+
+
+
+En cada lugar que visitamos, Abelard aparece y desaparece, como un fantasma. Gretchen nos cuenta que quedó viudo hace poco y que se dedica a investigar en secreto, como un espía. Hizo una investigación sobre la noche de los cristales rotos, cuando fueron prendidas fuego casi todas las sinagogas de Alemania. Él quería saber si alguien de Bretten recordaba haber visto el incendio. Alguien llegó a decirle quién fue, pero él no quiso publicar el nombre porque esa persona tenía hijos y nietos. Llegó a averiguar que habían sido los bomberos quienes ejecutaron la acción, y hasta encontró la factura del combustible que utilizaron: 50 litros de petróleo.
+
+
+
+
+Gretchen también se dedica a la investigación histórica por vocación, especializada en la genealogía de los judíos de Bretten. A veces nos habla tanto que nos mareamos y dejamos de entender. Enfatiza cada detalle, cada fecha; datos duros que nos hacen perder interés. Ella y Lars ven un auto mal estacionado, una rueda apenas afuera de la vereda, y dicen “tenemos que avisarle a la policía”. Acá cada error es reportado y corregido.
+
+
+
+
+Llegamos a una mansión alta y fina, con muchísimos pisos. Tiene al lado un establo para el caballo, que ahora se usa para otra cosa. Todo este pueblo parece salido del cuento Hansel y Gretel.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/38634/03cee038-db3b-4680-9892-895e96fd5802.jpg)
+
+
+
+
+Aquí vivieron los abuelos de mi abuela. Eran ricos. Nos cuenta lo que recuerda de ellos un vecino que llegó a conocerlos siendo chiquito (hoy es viejo y rengo): que mi bisabuelo y sus hermanos solían llegar de Berlín en un auto descapotable y le dejaban tocar la bocina. De la nada aparece Abelard y lo interrumpe para preguntarme en qué número de habitación me estoy quedando. Presiento que no le gusta que otra persona nos esté contando sobre nuestra familia. Me escribe algo en un papel y me dice que se lo entregue a los del hotel para que no se asusten cuando me venga a buscar. Gretchen me lo traduce: “Abelard es mi amigo y lo estoy esperando.” Ella me dice que lo ignore.
+
+
+
+
+De allí nos vamos a una escuela, donde una banda de niños toca para nosotras en una especie de homenaje. Me doy cuenta de que somos nosotras los restos judíos de Bretten. El alcalde está presente y nos quiere conocer. También están los medios. Nuestra llegada es un evento para este pueblo. Eso me da tristeza.
+
+
+
+
+Mientras están tocando los niños, Abelard me tira del brazo y me dice: “Esto no te interesa a vos. Vení que te voy a mostrar unas piedras.” Son placas con nombres de judíos que vivieron en este lugar, que murieron en Auschwitz. Me lo está explicando cuando de repente se enoja, se da media vuelta y se va.
+
+
+
+
+Visitamos otro cementerio. Gretchen está muy emocionada, nosotras todavía no sabemos por qué. Mi hermana filma pero también nos sigue la cámara de un canal local. El cementerio es un cuadrado chiquito. Vamos avanzando por las fila de tumbas, que están ordenadas temporalmente, de la más antigua a la más moderna. Entonces encontramos la tumba que vinimos a ver: la de Meier, el abuelo de mi abuela, que data del año 41. Gretchen cuenta que le costó mucho localizarla. La tumba es la última en la fila. Después no hay nada, la hilera continúa vacía.
+
+
+
+
+Mi abuela se fue de Alemania siendo una niña y nunca supo qué pasó con sus abuelos. “Murieron bien”, dice tragando saliva cada vez que piensa en ellos. Siempre me pregunté cómo ella pudo seguir viviendo con ese corte total.
+
+
+
+
+Si Meier está enterrado, quiere decir que no lo mataron los nazis.
+
+
+
+
+Me impresiona encontrarme con esta tumba pero el hallazgo no me resulta tan espectacular como siento que Gretchen espera. Esa distancia entre lo que siento y lo que percibo que ella esperaba, me agota. Mi hermana también está exhausta y simplemente se pone a filmar otras cosas: el cielo, el paisaje, una fábrica de vidrio. A mí me exaspera que esto a ella no la emocione. Le pego un codazo, que finja emoción como yo. De entre las tumbas vuelve a aparecer Abelard, que me agarra fuerte del brazo y dice: “La carne es débil. El espíritu es fuerte. Te paso a buscar por tu hotel más tarde.”
+
+
+
+
+Vamos a los archivos de la biblioteca local, donde tienen documentos preparados para nosotras: actas de nacimiento y otras cosas de las que entiendo poco porque están en alemán. Pero Gretchen destaca que quien está a cargo del archivo, un chico joven que se acaba de casar, hizo un trabajo inmenso para encontrarlos, junto a sus dos ayudantes: uno es ciego y el otro inválido.
+
+
+
+
+Visitamos a Esther, la vecina de la infancia de mi abuela, que sigue viviendo al lado de la que fue su casa hasta los siete. El papá de Esther era nazi, pero igual dejaba a mi abuela jugar en su casa. Nos cuenta las historias que recuerda: que una vez mi abuela volcó toda la harina en su casa, y que mi bisabuelo, los viernes, cuando era la hora en que empieza shabbat, gritaba: “Salgan, judíos de mierda, tenemos que ir a la sinagoga.” La frase me resuena absolutamente con lo que me han contado de él: que tenía un humor ácido y que odiaba ir al templo. Que se sentía muy alemán pero nada judío, que no se quería ir de Alemania pese al avance del nazismo porque se sentía inmune, debido a que había luchado por el país en la primera guerra mundial.
+
+
+
+
+Esther quiere hablar con mi abuela, la llamamos. A ella se le quiebra la voz pero mi abuela no la recuerda y eso la decepciona. A mí me llama la atención que a pesar de que mi abuela no recuerda a la que fue su primera amiga, le puso su nombre a su única hija mujer. Mira por la ventana hacia la casa que fue de mi abuela, sobre la que flamea una bandera de Alemania. Atrás hay un arroyo finito y luego todo campo. El límite del pueblo. “Antes ahí había vecinos. Hoy, ¿dónde están?”, pregunta.
+
+
+
+
+Un día la familia de al lado desapareció y de eso simplemente no se habló más.
+
+
+
+
+Yo quisiera sentir algo: rechazo, conmoción, odio, o algo, por esta mujer. Pero no siento nada. Es solo una anciana más para mí, igual que cualquier otra anciana. Me da pena por ser vieja y no haber tenido hijos.
+
+
+
+
+Esther era tan niña como mi abuela cuando ella tuvo que huir de acá para que no la mataran por judía. ¿Qué responsabilidad podría endilgársele?
+
+
+
+
+Su casa está llena de retratos de su padre: primero siendo él un bebé, luego como joven bohemio y más tarde como soldado nazi. Pero, ¿quién no tendría retratos de su propio padre sobre la cómoda de su living?
+
+
+
+
+La visita nos deja agotadas, estamos descansando en el hotel. Dormimos en camas enfrentadas: los pies de una chocan contra los de la otra. No nos soportamos más. ¿Qué vamos a poder sacar de todo esto?, pregunta mi hermana. A mí se me ocurre que quizás las escenas en lo de Esther podrían ser contrastadas con una música bien argentina, como Café La Humedad, o bien latina, como Reguetón. Ella dice que tengo muy mal gusto y que no entiendo nada de cine. Está nerviosa y se rasca los brazos. Se le acabó el rollo de filmar y no trajo más. Yo me desespero. Vinimos hasta acá, todavía nos quedan sitios por recorrer y no vamos a poder capturarlos. Nos gritamos cada vez más fuerte. Yo le digo que parece una cartonera del cine y ella me llama prostituta de Constitución, por mi ropa de colores flúor y ajustada. En eso tocan la puerta: es Abelard. Se quiere meter en la habitación, nos paramos las dos para impedirlo. Nos entrega un pedazo de pan, queso e hinojos. Quiere llevarnos a su casa para mostrarnos el fruto de años de investigación sobre los judíos de Bretten. Mi hermana dice que le digamos que no pero a mí me da pena y e insisto en que vayamos.
+
+
+
+
+Nos subimos a su Renault viejo y destartalado. Maneja demasiado rápido y algo nos hace sentir en peligro. Vamos a siete supermercados: en cada uno compra una cosa distinta. Yo la obligo a mi hermana a filmar todo tapando otros materiales de ella: siento que en este encuentro va a suceder algo importante, que algún secreto nos será revelado. Mi hermana lo captura todo el tiempo sin que él se dé cuenta, en la peregrinación por los siete supermercados.
+
+
+
+
+En uno compramos tomate. En otro, leberwurst. En otro, pepinos. En otro, una torta. En otro, una gaseosa. En otro, anchoas. En ningún lado hay exactamente todo lo que él quiere. Mi hermana todo el tiempo amenaza con escapar. Le digo que aguantemos un poquito más. Estamos cada vez más tentadas, yo me hago pis en su auto intentando contener la risa. “Ahora sí vamos a casa”, dice finalmente, pero en el camino recuerda algo: “Oh, casi me olvido.” Frena en una calle desierta y arbolada: es la puerta de un cementerio. “Hoy no regué las flores de la tumba de mi esposa.” Se baja. Este es el momento de huir. Pienso que quizás nos quiere matar, que es un exnazi que decide concluir algo inconcluso, y que tantos preparativos son solo parte de una ceremonia, un ritual, que concluirá con nuestro sacrificio. Lo pienso pero no con la suficiente fuerza como para actuar. Mi hermana llama a Gretchen, le dice que estamos muy cansadas y nos queremos ir.
+
+
+
+
+Vuelve de regar las flores de la tumba de su esposa y finalmente llegamos a su casa. Nos regala una manzana que toma de un árbol. Yo le digo a mi hermana que no la pruebe, podría estar envenenada, pero ella le da un mordisco igual. Se le frunce la cara: está toda podrida por dentro.
+
+
+
+
+Hay cabezas de venados en las paredes, una tarántula enmarcada y una cruz de madera atraviesa la pared del living. Él dice que esperemos mientras prepara todo arriba. Es como si tuviera algo tan importante para decirnos que la revelación no puede llegar nunca. Cuando parece que está a punto de acontecer, surge otro paso previo más.
+
+
+
+
+El cuarto de arriba es su búnker de investigaciones: está repleto de mapas, fotos y documentos. Abelard dispuso la mesa con todo lo que compramos en los siete supermercados. Hay fotos de sus hijos y nietos. Una foto de él con su familia, de joven, en un jardín igual al de mi abuela en Buenos Aires. Descubro de dónde viene su gusto espantoso para la decoración. Encontré varios rasgos en común: la entrada a la casa con un caminito de piedras, la afición por pequeños juguetes de porcelana, las mamushkas, los muebles enormes y espantosos, los tonos apagados.
+
+
+
+
+Cuando finalmente nos sentamos a la mesa a escucharlo, llega Gretchen a buscarnos. Abelard nos abraza fuerte y se pone a llorar, tembloroso: “Ustedes no entienden lo que pasó acá.”
+
+
+
+
+Abelard está loco porque insistió, averiguó la verdad y enloqueció. Él no puede negar el hecho que muchos otros en este pueblo deben haber negado para poder seguir viviendo: que sus tíos, abuelos, padres, vecinos, etcétera, formaron parte de un asesinato en masa, al menos callando.
+
+
+
+
+De vuelta en el hotel, suena la canción “Bailando” de Enrique Iglesias. Nos sentimos tremendamente aliviadas, como si en el idioma español estuviéramos a salvo. Mi hermana dice que Abelard solo quería armar una noche en la que todo saliera perfecto.
+
+
+
+
+Gretchen y Lars nos invitan a conocer su casa. Está atardeciendo. Conservan el cuarto de su única hija intacto, con una colección de casas de muñecas que podría estar en un museo. No hay ruido. No existe el ruido en Alemania. Cuando hay un ruido, se lo elimina. Nada es salvaje, casual. No hay chance a la distracción, al error, al olvido. Un vecino tenía un estanque pero lo tuvo que vaciar porque había tres ranas y le molestaban los “croc croc” a otro vecino. Me doy cuenta de que este pueblo me da tristeza. No la historia de mi familia. Este lugar. Creo que Gretchen y Lars lo perciben porque cuentan una historia que me contradice, algo del orden de lo incontrolable: cuando recién se mudaron aquí, era todo bosque alrededor. Un día nevó tanto que vieron a los ciervos salir en estampida a comer arbustos.
+
+
+
+
+Camino a la estación, nos llama Esther. Quiere que le saquemos una foto a la casa de muñecas en la que ella jugaba con mi abuela de chica. Está segura de que si Edith la ve, va a recordarla. Subimos a un altillo lleno muñecas y estatuas en miniatura. Hay un armario con pequeñísimos cajones, que Esther cuenta que heredó de su abuela. Adentro hay especias y nueces podridas. Estoy filmando todo con el celular, siento que cada uno de estos objetos entraña un secreto. De pronto se me cae el teléfono y parte al medio una de las muñecas. Salimos corriendo a la estación.Ya sentadas en el tren, mi hermana da un salto y sale por la puerta: se olvidó la cámara.
+
+
+
+
+Durante meses, Abelard le escribe cartas a mi abuela que no logramos descifrar porque -aunque ella cree que sí- ya no sabe alemán.
+
+
+

@@ -1,0 +1,1 @@
+../../contenido-6938-hacia-un-destino-nuevo-escrito.md

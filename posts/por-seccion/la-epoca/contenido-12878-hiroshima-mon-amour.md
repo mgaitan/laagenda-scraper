@@ -1,0 +1,1 @@
+../../contenido-12878-hiroshima-mon-amour.md

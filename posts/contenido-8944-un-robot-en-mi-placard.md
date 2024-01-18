@@ -1,0 +1,111 @@
+# Un robot en mi placard
+
+**A 40 años de Ghost In The Machine, el álbum más elaborado y oscuro de The Police, gestado entre nuevas técnicas de grabación y suspicacia por la tecnología.**
+
+02 de octubre de 2021 - Aniversario
+
+_por Jorge Luis Fernández_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/8944-un-robot-en-mi-placard
+
+
+
+Es mentira que todos se acordaron del rock nacional tras la Guerra de Malvinas. Visitando el archivo de la revista Pelo, el mito cae a un clic de distancia. “Por segundo año consecutivo se impuso entre los músicos la elección de un disco nacional como el favorito”, dice el anónimo editorial de la edición de diciembre de 1981, en lo que habitualmente se conocía como “Libro de año”, una encuesta anual entre músicos que antecedió a las famosas votaciones del también difunto Sí de *Clarín*. “Y también –continúa el anónimo con un veredicto que hoy resulta insólito– volvió a imponerse el mismo artista: Raúl Porchetto”. Ese disco fue *Televisión*. El segundo puesto le cabió a *Face Value*, el señero trabajo de Phil Collins con el que, producción de Hugh Padgham mediante, terminó de romper amarras con el sinfonismo de Genesis. El tercer puesto fue para otra producción de Padgham, *“Fantasma en la máquina”*, de The Police: “El álbum más compacto y moderno del año”.
+
+
+
+
+En pos de ser fidedigno, recurrir al archivo fue revelador. Demostró una vez más que la memoria es un cut-and-paste de los hechos: yo había comprado esa revista, y recordaba los peldaños exactamente al revés. En parte, la confusión puede atestiguar la incidencia del mito en la memoria. Pero el hecho es que, tras su primera visita a nuestro país, un año antes, The Police era “la idea del futuro” para la escena argentina. Muestra de su popularidad fue que *“Fantasma en la máquina”* tuvo aquí una de sus primeras ediciones mundiales en vinilo –otro dato para recordar: antes del CD, el casete ya había desplazado al LP como principal soporte musical de consumo masivo–. No había discoteca del AMBA (“boliches”, se los llamaba entonces) que no pasara todos sus discos. Charly García los amaba a viva voz. Y a mediados de los ochenta, cualquier grupo, de GIT a Soda Stereo, quería sonar como ellos. Por entonces Sting, que en los últimos años había acaparado la imagen del grupo, pasó de dios rubio de la new wave a un profesional cuyo horizonte artístico era Thelonious Monk. En momentos en que, a pocos años de la controversial disco, se renovaba el debate entre rock serio (Springsteen, Peter Gabriel, el mismo Sting) y pop comercial (Collins, Madonna, Culture Club), había que hilar fino para distinguir que entre “Message In A Bottle” y “Every Breath You Take” The Police había grabado uno de los discos más desconcertantes de 1981.
+
+
+
+
+Aquella primavera boreal, como antídoto al efecto resaca de *Zenyatta Mondatta* –un álbum que se grabó en menos de un mes pero demandó la gira más extensa del grupo– Sting, Summers y Copeland pasaron más de dos meses en los ultra high tech estudios AIR, propiedad de George Martin en las Antillas británicas, junto al nuevo productor Hugh Padgham. Aparte de saturar las nuevas grabaciones con bronces y teclados –Oberheim, Roland RS-505, Prophet-5 y 10, MiniMoog y demás innovaciones– Padgham sugirió implementar un método que habría de popularizarse en el lustro siguiente: cada músico grababa en una habitación aislada para reproducir el ambiente del “vivo”. Summers tocó en el estudio principal; Sting, en la sala de control, con el bajo conectado directo a la consola; Copeland en el comedor.
+
+
+
+
+![](https://cdn.feater.me/files/images/128897/3ec87b89-b32b-42af-b7df-cc5fe09248e0.jpg)
+
+
+
+
+The Police en la consola de los AIR Studios. Montserrat, 1981.
+
+
+
+
+La separación puede verse como presagio de un grupo que en dos años dejaría de existir. Un poco como ocurriera en el *White Album*, había más conflictos internos por la inclusion y difusión de temas (particularmente con "Omegaman", de Summers) y hartazgo con la prensa. Pero el álbum no sería blanco, sino negro. Visto a la distancia, la elección fue un sagaz anclaje de significado. En sintonía con el “distanciamiento”, las texturas y muchas letras de *Ghost In The Machine* transmiten pesimismo. Era el modo que había encontrado The Police para adaptarse a la baldía escena británica post Joy Division. Incluso “Every Little Thing She Does Is Magic”, el segundo y más pegadizo single difusión, era ominoso para sus estándares.
+
+
+
+
+Aunque a mediados de los setenta la idea de álbum conceptual era demodé, no era raro que los grupos buscaran transmitir un mensaje entrelíneas. Y el de *Ghost In The Machine*, simbolizado por dígitos alfanuméricos de la tapa en representación de cada integrante, amplificado en el sobre interno con sus rostros atrapados entre los circuitos de una computadora, era el triunfo de la máquina sobre el hombre; otra relectura del mito de Prometeo.
+
+
+
+
+Sting tomó el título del libro homónimo del pensador judío-británico Arthur Koesler, uno de sus autores favoritos durante la adolescencia, cuyo trabajo también aportó el título de *Synchronicity*. *Ghost In The Machine*, el libro, era un intento de explicar la tendencia autodestructiva del hombre mediante teorías psiquiátricas y filosóficas. El disco, lanzado el día que Sting cumplía 30 años, no era obviamente una adaptación. Ni mucho menos.
+
+
+
+
+La canción que mejor parece transmitir su mensaje es la más pegadiza y abrumadoramente simple en su contenido. Cuando internet era el sueño privado de una minoría, Sting declaraba sobre “Too Much Information”: “Hay demasiada información, mucha más de la que necesitamos”. Ese tipo de pronunciamiento hoy resulta naif, pero no lo era en su momento. La honesta perplejidad ante “el estado del mundo” hizo que el disco pase la prueba del tiempo y ofrezca relecturas. No es el no future del punk ni el cinismo del post-punk, ni la obsesión con la fatalidad del dark y los songwriters góticos. Hay cierta fascinación entre el ritual cyberpunk de “Spirits In The Material World” (track apertura y uno de los títulos más explícitos), pasando por la banalidad de Sting cantando en francés en “Hungry For You” y el acercamiento a la espiritualidad hacia el final del disco. Es una incoherencia que parece decir: “aunque seamos famosos, estamos tan perdidos como ustedes”. Es la tomografía de un grupo que vivió tumultuosamente, de tres tipos que fueron los nuevos Beatles al menos por cuatro años.
+
+
+
+
+Esta contradicción se representa en “Demolition Man”. Rozando los seis minutos, la canción más extensa de The Police es una colisión ininterrumpida de bronces y sintetizadores que emula la cacofonía urbana de bocinazos, sirenas y picadas (un efecto que reaparece en las partes instrumentales de “Rehumanize Yourself”), propulsada por el implacable 4/4 de Copeland y pincelada con aullidos y solos de pentatónica. Quizá Sting quería entregar su “Sister Ray” o “Helter Skelter”, pero el resultado es una versión fiestera del Fourth World afrobeat de *Remain In Light*, la obra maestra de Talking Heads publicada un año antes, cuya influencia es perceptible en todo *Ghost In The Machine*.
+
+
+
+
+No sorprende que la popularidad del grupo y la compresión que Padgham aplicó al tema –todo un precedente para las producciones de CD en los noventa– hayan derivado en el blockbuster homónimo protagonizado por Sylvester Stallone, con una reversión de “Demolition Man” como tema central. Era el caos controlado. Pero aunque apostaba a lo seguro, la obsesión con hipnóticas texturas y ritmos en loop sugiere que The Police tenía una doble agenda.
+
+
+
+
+![](https://cdn.feater.me/files/images/115157/9b2aebe0-488b-44bb-8215-fd93dda325f5.jpeg)
+
+
+
+
+Sobre interno del álbum original
+
+
+
+
+Los tres primeros temas pueden verse como una extraña, enigmática apertura conceptual que encuentra el clímax en “Invisible Sun”, una de las más oscuras canciones que rozó primer puesto del chart inglés (fue desplazada por Adam & The Ants). Sting la compuso en Irlanda durante los últimos días de la huelga de hambre, el final de un conflicto movilizado por el Republicanismo Irlandés, que duró cinco años (el británico Steve McQueen representó la huelga en la aclamada *Hunger*, de 2008). El grupo lanzó el single con un video promocional que mostraba la tensión en las calles de Belfast, y resultó obviamente censurado por la BBC. Por entonces, era la clase de manifestación que se esperaba de Joe Jackson o Tom Robinson, no de Sting.
+
+
+
+
+El track es también un quiebre musical con el estilo del grupo, marcado por la apertura electrónica de sintetizadores y guitarras, más emparentada con el lado 2 de *Low* de Bowie que con cualquier canción new wave. El sol invisible es “la luz” que todos esperamos “ver al final del túnel”, confesaría Sting en una entrevista de 2000. Una línea del estribillo, referida al deseado sol “que dé calor a todo el mundo”, está tomada del musical *My Fair Lady*.
+
+
+
+
+Después de “One World (Not Three)” –que suena como *My Life In The Bush Of Ghosts* de Eno y Byrne remixado por King Tubby–, Summers aportó la intensa “Omegaman”, con un trabajo de guitarra que delata al King Crimson modelo 81 y preludia sus colaboraciones con Robert Fripp, mientras “Secret Journey”, de Sting, impone la rapsódica noche electrizada al cierre de *Ghost In The Machine*. “En un viaje secreto descubrí a un hombre sagrado/ Y en los días que siguieron escuché sus palabras”, canta sobre doble guitarra de riff y fundidos atmosféricos, en tanto el liberador estribillo, que rescata la plegaria de “Invisible Sun” (“verás luz en la oscuridad”), actúa de nexo con “Darkness” de Copeland, el envolvente último track.
+
+
+
+
+En su flow atemporal, "Darkness" tiene reminiscencias de John Martyn. Pero si las mejores canciones del proteico bardo escocés –cuyo *Inside Out* muestra en la portada similar preocupación con la luz interior– son como las tenues olas en la orilla que ignoran la tempestad del océano, aquí, por el contrario, Sting se eleva como un mártir eléctrico acuciado por oleadas de piano y sintetizador. Entre estallidos y texturas atonales arranca su confesión (“En vez de preocuparme por la ropa debí ser un total desconocido”), para terminar con uno de los estribillos más nihilistas del pop: “Esta mañana no tenía que haberme levantado/ la vida era fácil cuando era aburrida”.
+
+
+
+
+El subsecuente estrellato de *Synchronicity* eclipsó la frágil experimentación del disco. Algo de su tono elegíaco sobrevivió en *The Dream Of The Blue Turtles*, el debut solista de Sting, pero *Ghost In The Machine* era demasiado sombrío para el mainstream, y demasiado mainstream para el under. Entre clichés y raptos de lucidez, pasados los estereotipos y las modas, el fulgor es mucho más visible ahora.
+
+
+
+
+Jorge Luis Fernández
+
+
+
+
+Jorge Luis Fernández es periodista y uno de los editores de La Agenda. Colabora en Revista Ñ,Rolling Stone y el webzine Perfect Sound Forever. Publicó una novela de ciencia ficción, Cupol. En Twitter es @punkhuysen
+
+
+

@@ -1,0 +1,71 @@
+# Cicatrices
+
+**Los únicos condenados en el caso Madeleine McCann son los medios, que injuriaron a inocentes como predadores sexuales o difamaron a los padres.**
+
+22 de marzo de 2021 - CASOS POLICIALES
+
+_por OSVALDO AGUIRRE_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4483-cicatrices
+
+
+
+A principios de junio la policía alemana presentó a un sospechoso, Christian Brueckner, actualmente en prisión por tráfico de drogas y con un historial que incluye abusos sexuales, una violación y posesión de pornografía infantil. De pronto el caso parece cerrar, ya que Brueckner estaba en Praia da Luz cuando desapareció Madeleine y hay testimonios de allegados que lo comprometen como pedófilo, pero con el correr de los días y a falta de otras novedades la revelación quedó en suspenso. Los padres, Gerry y Kate McCann, declararon en el sitio findmadeleine.com que la búsqueda prosigue en los mismos términos que antes.
+
+
+
+
+La sospecha contra Brueckner desbarata la hipótesis de una red de tratantes de personas, planteada en La desaparición de Madeleine McCann, la serie de Netflix que se estrenó el año pasado. Las redes de pedófilos que trafican imágenes de niños abusados constituyen desde hace tiempo un temor colectivo donde se confunden versiones difíciles de comprobar sobre la “internet profunda” y descubrimientos escabrosos, como la operación que permitió detectar en 1998 al Club Wonderland, una organización extendida en una docena de países. Pero Madeleine habría sido víctima de una especie de lobo solitario al estilo de Marc Dutroux, el pedófilo belga al que la policía de su país había registrado por delitos menores y lumpenaje hasta que se descubrieron sus crímenes contra niñas y adolescentes.
+
+
+
+
+La conmoción que provocó desde un principio la desaparición de Madeleine parece extraordinaria. Pero no es el primer crimen que se vuelve global. El secuestro y asesinato de Charles Lindbergh junior, en 1932, es su antecedente histórico directo. Si este episodio fue llamado “el crimen del siglo XX”, el de Madeleine puede ser el caso que define a nuestra época no ya por la repercusión que alcanza en diferentes países y culturas –en la serie de Netflix, por ejemplo, los niños marroquíes que reciben a los McCann con fotos de su hija- sino por el delito del que es víctima. La desaparición, el descarte del cuerpo, como parece haber ocurrido con la niña británica, es un procedimiento criminal moderno que los padres de Lindbergh no padecieron. Las dudas sobre la responsabilidad de Bruno Hauptmann –el carpintero alemán ejecutado en la silla eléctrica como asesino de Charles Jr, una criatura de 20 meses- nunca se despejaron, pero esa controversia es algo muy distinto de la incertidumbre que rodea a una desaparición.
+
+
+
+
+Charles Lindbergh era un as de la aviación. Los padres de Madeleine son personas corrientes. Católicos practicantes, sus orígenes humildes y su condición profesional, como médicos, los convierten quizá en exponentes típicos de clase media pero no explican el fenómeno masivo que lleva a ver a Madeleine en lugares alejados entre sí y que empuja a mucha gente a revelar supuestos poderes de videncia o datos pretendidamente desconocidos. “Si tu hijo no está a salvo en un lugar de vacaciones, ¿dónde está seguro? La gente se identifica con eso y la historia llega así a las noticias”, dice al respecto Ernie Allen, ex presidente del National Center for Missing & Exploited Children en la serie de Netflix.
+
+
+
+
+Hay entonces una especie de angustia que se viraliza, algo que resulta insoportable. Pero lo singular de Madeleine en relación a tantos otros casos de niños extraviados y víctimas de secuestros que pasan desapercibidos o no reciben tanta atención es el modo en que los padres gestionan la búsqueda, y en particular el esponsoreo constante que les permite hacer giras, contar con asesores de relaciones públicas y voceros de prensa, contratar a investigadores privados –o dejarse estafar por ellos- y continuar la búsqueda en cualquier parte del planeta. Una campaña política, incluso con la previsión de sus riesgos. En este punto hay otro antecedente histórico, el de Vilma Montesi, una joven italiana que apareció asesinada en 1953 cerca de Roma. La investigación del suceso derivó en un escándalo y en acusaciones generalizadas sobre figuras de la política, el espectáculo y las fuerzas de seguridad que no llegaron a ninguna comprobación pero crearon un estado de sospecha imborrable.
+
+
+
+
+La búsqueda de Madeleine no tuvo ese componente de escándalo, aunque provocó roces diplomáticos y el despido de policías incompetentes. Su parecido con el caso Montesi tiene que ver con los efectos que produce sobre el medio en que transcurre. Hasta ahora, en concreto, no sabemos nada fuera de que en mayo de 2007 una nena de 3 años desapareció en un resort de Portugal, pero ese misterio tiene un poder revelador sobre las propias fuerzas que tratan de resolverlo: sobre la policía, los medios de comunicación, los discursos de odio en las redes sociales y en definitiva sobre aspectos de la misma sociedad, como la preocupación miserable por eventuales perjuicios económicos o el hecho de poner a la luz lo que en realidad es conocido y se tolera, por ejemplo el turismo sexual.
+
+
+
+
+[![](https://img.youtube.com/vi/mgJf7wMMmuc/0.jpg)](https://www.youtube.com/watch?v=mgJf7wMMmuc)
+
+
+
+
+El crimen, escribe Hans-Magnus Enzensberger en su libro Política y delito, “se asemeja a una contraseña que, una vez descifrada, delata algo del total de la sociedad en que ocurrió: en la investigación del crimen la sociedad se investiga a sí misma”. La historia de Madeleine, en ese sentido, no descubre exactamente algo que sea completamente desconocido sino que lo vuelve visible de un modo particular, con una intensidad única. Las torpezas criminales en que puede incurrir la policía no son una novedad para nadie pero en el caso McCann quedan patentizadas de un modo ejemplar, no tanto por los abusos en sí como por una forma de encubrimiento en la que se nota una rutina, una práctica consolidada.
+
+
+
+
+Gonçalo Amaral, el jefe de la policía judicial portuguesa, atraviesa una especie de metamorfosis en la serie. Parece un investigador prestigioso, avalado por una carrera de muchos años, después empieza a mostrarse como un burócrata con el tic de alisarse continuamente la corbata y caminar encorvado, temeroso de la exposición, y finalmente se muestra como lo que es, un delirante peligroso que insiste en acusar a la familia y en construir teorías conspirativas donde es poco menos que un cruzado moral contra el poder. Es revelador, también, observar el modo en que otro policía portugués, Paulo Pereira Cristovao, relata con su mejor cara de inocente la presunta confesión de personas a las que –en otro caso- les arrancó declaraciones bajo torturas. Madeleine les quita la máscara a estos policías y nos permite comprender los diversos camuflajes de la violencia policial y judicial, para lo que Portugal tiene además un recurso propio, la figura del argüido, como se llama al sospechoso sobre el que no hay evidencias pero al que de todas maneras se apunta como posible autor de un delito, muy útil cuando no se sabe qué hacer y hay que dar una respuesta al público. Es una especie de superación de lo kafkiano, ya que en esa situación la persona es estigmatizada como sospechosa pero no puede hablar públicamente sobre las acusaciones que enfrenta.
+
+
+
+
+Los padres de Madeleine se convirtieron en sospechosos luego de que unos perros rastreadores se pusieron a ladrar en dos sectores del departamento que alquilaban en Praia da Luz. La policía y la prensa construyeron una teoría en la que se hablaba de rastros de sangre y de ADN que resultaron inexistentes. En ese punto, el caso expone la sobrevaloración fetichista de las pericias, un vicio habitual de las investigaciones actuales. El enaltecimiento de los forenses y el valor que se atribuye al trabajo de laboratorio pasan por alto el hecho de que un examen, una pericia, nunca son concluyentes ni significan de modo aislado sino como parte de un relato que las vuelve inteligibles, la narración que se construye con el conjunto de las averiguaciones.
+
+
+
+
+Los únicos condenados en el caso de Madeleine son hasta ahora los medios de prensa británicos y portugueses que injuriaron a inocentes como pedófilos y predadores sexuales o difamaron a los padres. El sentido común y los estereotipos del periodismo quedan a la luz en sus versiones de la historia, lo mismo que la búsqueda de primicias para imponerse en la competencia mediática: las sospechas levantadas contra Robert Murat por su empeño en colaborar con la búsqueda, las acusaciones contra Kate McCann por descuidar a su hija, el prejuicio de que si alguien no quiere hablar es porque oculta un secreto comprometedor. “Si suena bien, probablemente esté bien”, dice un editor de The Sun, una máxima cuya traducción local podría ser la famosa exhortación de un periodista a no dejar que la verdad eche a perder una historia.
+
+
+
+
+El caso parecía fuera de agenda hasta que los anuncios en Alemania lo volvieron a instalar en el centro de las especulaciones. El hashtag #McCann se reactiva también en Twitter con más teorías conspirativas y difamaciones contra los padres. “Hay un porcentaje de gente que nunca creerá en ninguna resolución. Llevarán esto al nivel de los que dicen que nunca aterrizamos en la Luna”, dice Anthony Summers, coautor del libro Buscando a Madeleine, en una crónica del diario The Guardian. El misterio puede parecer permanecer herméticamente cerrado, pero no deja de producir revelaciones.
+
+
+

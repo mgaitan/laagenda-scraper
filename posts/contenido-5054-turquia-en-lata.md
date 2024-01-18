@@ -1,0 +1,101 @@
+# Turquía en lata
+
+**El melodrama turco, como es el caso de Elif, ofrece un aspecto difícil de encontrar en las ficciones actuales: un regreso a la moral conservadora.**
+
+29 de marzo de 2021 - MEDIOS
+
+_por JUANITA GROISMAN_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/5054-turquia-en-lata
+
+
+
+El primer episodio de Elif empieza con una niña yendo a comprar remedios para su madre enferma. La nena, la protagonista que da nombre a la telenovela, no puede ir a jugar con sus amiguitas porque tiene que llevarle los medicamentos de manera urgente. Después se sube a un camión que lleva plantas y termina siendo secuestrada. Su madre sale a buscarla, se desmaya en la calle por su enfermedad y luego un hombre le pega una cachetada por no haberle preparado el desayuno. Todo esto ocurre en los primeros cinco minutos de la ficción turca que tuvo un promedio de 10 puntos de rating en Telefé el año pasado.
+
+
+
+
+La telenovela se convirtió en uno de los productos de exportación más importantes de Turquía, el segundo país que más ficción televisiva vende al exterior por detrás de Estados Unidos. Se calcula que 600 millones de personas en todo el mundo vieron aunque sea una de sus producciones. Se trata de un fenómeno mundial que genera, como mínimo, algunas preguntas.
+
+
+
+
+En primera instancia parecería ser que estas ficciones representan un retorno a las telenovelas latinoamericanas que llenaron la pantalla chica de melodrama desde finales de los ochenta hasta principios del segundo milenio. Los ricos también lloran, Marimar, La usurpadora y María la del barrio fueron grandes producciones que se valieron del sufrimiento constante de sus protagonistas para construir un éxito. En ese sentido, la trama de las tiras turcas no presenta grandes novedades: conoce la fórmula de un éxito y la replica.
+
+
+
+
+En rigor, se trata de una narrativa que se remonta a fines del siglo XVIII. El melodrama como género surge en el posiluminismo y con un objetivo claro: moralizar la vida de los sectores populares tras las revoluciones burguesas. Así, mediante la fusión de las tradiciones del relato y el teatro, se articula una historia que busca un efecto sobre la moral. Un protagonista virtuoso y sufrido que atraviesa grandes batallas para que, finalmente, su virtud se reconozca.
+
+
+
+
+La pregunta gira entonces a por qué este formato sigue siendo tan exitoso a pesar del paso del tiempo. Más allá de las explicaciones aristotélicas sobre la eficacia del pathos y la reducción absoluta del público a una masa inerte que consume sin cuestionar, cabría la posibilidad de pensar en una hipótesis socioeconómica. En un sistema que condena a la clase trabajadora al esfuerzo constante y una carrera por el mérito donde siempre están en desventaja, no es sorprendente que, en los pocos momentos de ocio, se elija ver gente que la pasa un poco peor que uno. A su vez, la estructura narrativa de este género implica una relación inherente entre el sufrimiento y el reconocimiento de la virtud. Así, el esfuerzo excesivo que se le exige a la clase trabajadora va de la mano de la esperanza. El melodrama es, finalmente, un relato de la meritocracia.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/45759/591390ba-0859-4e0d-8696-67d7c6d53bf3.jpeg)
+
+
+
+
+Elif y su madre, Melek.
+
+
+
+
+Pensar que el público que consume ficción turca pertenece a la clase trabajadora no se trata de un prejuicio de clase, sino de una consecuencia clara de la aparición de cientos de plataformas de streaming pagas, que excluyen a cualquiera que no tenga acceso a una tarjeta de crédito. “La clase media migró de la tele de aire a los servicios de streaming, en consecuencia no sería improbable que la gente que mira telenovelas ahora sea un público de menor capital tanto económico como cultural que hace 10 años”, afirma el guionista Hernán Ferreiros.
+
+
+
+
+A su vez, la tele de aire cada vez tiene menos para ofrecer a este público. Los programas periodísticos o de actualidad se convirtieron en una planta de reciclaje que viene repitiendo exactamente el mismo contenido hace varios años, y si surge algo nuevo suele ser una tragedia: un asesinato, un hecho de corrupción, otra cepa del coronavirus. Nadie puede ser acusado de ignorante por querer evadir un rato una realidad tan cruel. Son muy pocas las producciones locales no-ficcionales que logran salir de esta lógica, y su esfuerzo es bien recompensado con altos números de rating. Este es el caso de, por ejemplo, “Pasapalabra” o “Masterchef Celebrity”.
+
+
+
+
+La ficción nacional, por otro lado, ha sufrido varios traspiés en los últimos años. A los números bajos de encendido y los problemas económicos se les sumó tener que competir con las latas, que cuestan menos de la décima parte de lo que sale producir algo nacional. Pero además, hay ciertas decisiones a nivel del contenido que llevaron al público a elegir las tiras turcas.
+
+
+
+
+“Al público popular no necesariamente le gusta ver cómo viven otros pobres o, en todo caso, también consume las vidas de los ricos como un lugar de fantasía. Pero también es cierto que esto último es distinto al ambiente de clase media acomodada o palermitana que tal vez muestren las tiras de Underground o Polka, y que alguien de extracción popular puede encontrar irritante o ajeno, ’chetos’ que no tienen nada que ver con ellos”, explica Ferreiros.
+
+
+
+
+Sacando contadas excepciones que apuestan a crear mundos nuevos e historias originales, en los últimos años fueron varias las tiras que intentaron hacer una suerte de costumbrismo renovado. Lejos de intentar retratar a la clase trabajadora, la decisión que llevó a Gasoleros al éxito absoluto, se busca mostrar la vida moderna y cool de una supuesta clase media que, en realidad, se parece más a una clase acomodada. Mujeres flacas, blancas y hegemónicas siempre hubo, pero no siempre vistieron con ropa a la moda ni tuvieron profesiones de rango elevado donde nunca parecen tener que trabajar. Viajan en taxi, tienen celulares de marca, hablan en inglés. Incluso cuando se intenta incorporar alguna problemática social, en general vinculada a la sexualidad, suele ignorar rotundamente las cuestiones de clase.
+
+
+
+
+Basta con leer algunos comentarios en portales de internet para comprender el rechazo que esto genera en la audiencia. Sobre todo por parte de los televidentes de otras provincias que están cansados de ver “porteños gritando”.
+
+
+
+
+“En algún momento me parece que la novela turca vino a cubrir cierta crisis de la tira costumbrista y con toques de comedia que dominó muchos años desde Polka y aledaños. Paisajes exóticos se oponían a las cocinas de locación y, frente al tono ligero y algo recurrente de Suar haciéndose el gracioso, planteaban una vuelta a los tópicos más clásicos del culebrón. Melodrama, conflictos familiares, enfermedades incurables, venganzas. En algún punto uno podría decir que era algo que nuestra ficción ya no hacía tanto”, señala en este sentido el guionista Alejandro Turner.
+
+
+
+
+A su vez, el melodrama turco ofrece un aspecto que cada vez es más difícil de encontrar en las ficciones actuales, sean argentinas o internacionacionales: un regreso a la moral conservadora. Casi no hay representación del colectivo LGBT, no existe la posibilidad de un aborto, los derechos de las mujeres son escasos, nadie se droga. Todos estos aspectos son cada vez más abordados en otro tipo de historias, por lo que no sorprende que quienes se sientan más identificados con los valores tradicionales elijan consumir relatos donde estos temas no figuren.
+
+
+
+
+Volviendo a la comparación con la ficción nacional, para Turner la diferencia es difícil de sostener más allá de la etapa inicial porque en los últimos años la ficción argentina no hizo ninguna de esas cosas. “No hay manera de competir en costos y tiempos con el exiguo precio de una lata, los públicos más jóvenes (y más consumidores de publicidad) ya abandonaron casi del todo la televisión abierta, no hay ningún tipo de obligación a los canales de producir ficción nacional, y así podemos seguir. En este punto, la verdadera diferencia entre las ficciones televisivas argentinas y las turcas es que estas existen”, plantea.
+
+
+
+
+Como esos yuyos de la calle que siguen creciendo por donde encuentran lugar, la ficción argentina persiste en sobrevivir. Hace ya varios meses que Adrián Suar viene filmando una suerte de miniserie sobre el mundo empresarial del fútbol, con Gustavo Bermúdez y Laurita Fernández, y la semana pasada se confirmó que Polka producirá una nueva tira. Alejado completamente de los decorados que buscan emular un Palermo que ya no existe, esta vez la historia girará en torno a la vida dentro de una villa. O barrio carenciado, o de emergencia, o popular, todavía no se definió cuál será el término más políticamente correcto que elegirán para contarnos que, esta vez, vamos a ver pobres en televisión. O la idea de pobreza que tengan ganas de mostrar.
+
+
+
+
+Quizás esta decisión argumental sea la que le brinde la posibilidad a Polka de ganar la batalla contra las latas turcas. O quizás no haya forma de vencer al melodrama de una niña, hija de una madre enferma y violentada, que termina siendo secuestrada por error.
+
+
+

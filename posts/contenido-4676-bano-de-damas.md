@@ -1,0 +1,291 @@
+# Baño de damas
+
+**“El recuerdo se desparramó igual que un remedio que se inyecta. Intentó dejar de verlo, sacudió su cabeza como si con esa acción pudiera actualizar el deseo, decirle: no, vos no tenés lugar, correte y dejá pasar al que sigue”.**
+
+30 de marzo de 2021 - SÁBADOS DE SÚPER FICCIÓN
+
+_por NATALIA ROZENBLUM_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4676-bano-de-damas
+
+
+
+Deje la cortina estirada para evitar hongos
+
+
+
+
+1
+
+
+
+
+Ana Inés despegó la malla a la altura del pecho y esperó a que se llenara de agua. El agua le endureció los pezones y se metió en el entramado de la tela. Sacó las tetas por el escote para poder pesarlas con las manos; le pareció que estaban más livianas, tal vez había adelgazado un poco. Eran grandes y tenían forma de gota. Sin apoyarse en las paredes, bajó los breteles y deslizó la malla hasta dejarla caer en el piso mojado. Se felicitó porque todavía lograba mantener el equilibrio. Recién cuando se agachó para agarrarla, sintió que no iba a ser tan fácil volver a pararse, pero estaba sola y no tenía que disimular. Siempre salía quince minutos antes de la clase de aquagym para tener las duchas libres.
+
+
+
+
+Agarró el jabón y se levantó el rollo de la panza, se limpió bien y después se pasó una esponja por los brazos. Los husmeó: podía oler el cloro de todos los años que llevaba en la pileta. Eran capas y capas que se habían transformado en piel. Bajó despacio las manos y dejó que los dedos se hundieran en la entrepierna. Cerró los ojos; las yemas recorrieron los pliegues mientras el calor inundaba la zona. Alguien abrió la cortina de un solo tirón. Era una nena vestida con un conjunto de jogging; tenía puesta una gorra y unas antiparras oficiando de máscara. Las dos quedaron enfrentadas, en silencio. Ana Inés dejó una mano quieta y con la otra le hizo el gesto de espantar una mosca. La nena agarró la malla y salió corriendo. Ana Inés se apenó de que la hubiera interrumpido, pero sonrió como si hubiese sido ella quien hiciera la travesura. Se había enterado de esa nueva modalidad delictiva en el club desde hacía algunos meses. Todo aparecía por arte de magia un día más tarde en la jaula de las cosas perdidas.
+
+
+
+
+Se enjuagó, cerró la canilla y caminó, despacio para no resbalarse, al salón de los casilleros. Esos eran los únicos minutos en los que ella se permitía estar desnuda en un lugar semipúblico: no había cortinas y en cualquier momento se podía llenar de gente. Le gustaba sentarse en el banco que tenía la pintura ajada y mirar el espacio como si fuera la dueña; si todo salía bien, en unos meses tendría un rol parecido. A lo único que no quería enfrentarse era al espejo. Entrecerró los ojos y miró el reloj de pared; faltaban unos minutos para que terminara la clase. Abrió el bolso y buscó el toallón; cuando lo sacó, descubrió que debajo había un tupper. Esa había sido su hija. ¿Por qué se seguía metiendo en sus cosas? Igual lo abrió. Era torta de manzana, su preferida. Cortó un pedacito y dejó que la masa se ablandara con la saliva. Le encantaba que se pareciera a las galletitas mojadas en el té. Después acomodó las porciones para que no se notara que había comido.
+
+
+
+
+Las voces de algunas de las chicas empezaron a subir desde la pileta. Ana Inés se apuró a envolverse en el toallón; ató las puntas debajo de una axila, mientras el resto de la tela se abría dejando ver parte de su cuerpo. Pero las chicas siguieron de largo hacia las duchas sin reparar en ella. Entonces volvió a abrir el tupper y agarró otro pedacito. Cuando se dio cuenta de que las que venían eran Beta y Silvita, se apuró a tragar lo último que tenía en la boca. Se pasó la lengua por los dientes como si fuera un parabrisas y escarbó al fondo para sacar los restos.
+
+
+
+
+—¿Qué estás comiendo? —le preguntó Silvita y empezó a desnudarse al tiempo que caminaba. Era flaca, alargada, y la gente decía que tenía sesenta; más, imposible. Pero tenía setenta y cinco, la misma edad que Ana Inés; sus mamás se habían embarazado juntas y se criaron como primas.
+
+
+
+
+—Nada —respondió Ana Inés envidiando la comodidad con la que se movía. Le miró las piernas. Tenía más piel que carne, una funda con poco relleno. Subió al ombligo pispeando el cavado lleno de pelos que Silvita no se había depilado nunca, porque decía que a las rubias ni se les veían. De ahí sus ojos saltaron directo a la cara.
+
+
+
+
+—Vamos, que nos conocemos.
+
+
+
+
+—Tapate —siguió Ana Inés sin mirarla. Nunca se había podido acostumbrar a la cicatriz de la teta cortada: una línea hundida que parecía guiñarle un ojo. Silvita respondió sacudiendo el torso como si fuera un carnaval.
+
+
+
+
+—Estás comiendo torta de manzana —dijo Beta moviendo las fosas nasales como un perro—. La puedo oler. —Y se cambió la malla por la ropa interior.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/44022/01061b61-d1de-4f46-a8fb-baa50c4578af.jpg)
+
+
+
+
+Tenía el cuerpo marcado por curvas que parecían sonrisas: las rodillas, la panza y las tetas. Era un cuerpo aparentemente contento, sin cicatrices visibles. El pelo rojo le rozaba los hombros y le tapaba las orejas. Estaba seco porque decía que le hacía mal a los oídos meter la cabeza debajo del agua, pero se sabía que era por el audífono.
+
+
+
+
+Ana Inés se preguntó si Beta no se iba a bañar, pero no dijo nada y buscó el tupper. Estaba transpirando; todo se había llenado de un vapor pegajoso y podía sentir algunas migas que habían quedado atrapadas entre el toallón y su pecho.
+
+
+
+
+—Esto es obra de tu hija —dijo Silvita y cortó un borde.
+
+
+
+
+—Sí.
+
+
+
+
+—¿Sigue quedándose en tu casa?
+
+
+
+
+—¿Qué? —interrumpió Beta.
+
+
+
+
+—Le cortaron el gas —respondió Ana Inés.
+
+
+
+
+—¿No se habrá separado de nuevo? —Beta empezó a maquillarse: los párpados de rosa fuerte, la boca de rojo, mucho colorete.
+
+
+
+
+La puerta de entrada hizo un chirrido y Ana Inés atinó a asomarse. No iba a responder esa pregunta, no le interesaba ventilar sus asuntos personales en el vestuario y además no lo sabía. Marisa evitaba contarle ciertas cosas, sobre todo después de separarse tres veces de Sergio y volver las tres veces con Sergio, en apenas dos años. Ana Inés pensaba que con casi medio siglo de vida su hija merecía privacidad y ella, ahorrarse esos problemas.
+
+
+
+
+—Está blanda, pero rica de sabor —siguió Beta como si no le interesara que le respondieran—. Yo le pongo más manteca para hacer el crocante.
+
+
+
+
+No era la primera vez desde que ella había quedado viuda que Marisa se aparecía de la nada y se quedaba unos días con cualquier excusa. Pero ahora era más frecuente y ni siquiera se tomaba la molestia de inventar algo. En lugar de hablar de sus cosas, Marisa repetía en voz alta que Ana Inés estaba mayor y que no era bueno que estuviera sola tanto tiempo. Ella la podía cuidar y ayudar con la casa. La noche anterior le había preparado la cena y el postre; la torta de manzana se correspondía con esa generosidad. Pero después se quedó viendo una serie y Ana Inés no pudo jugar en la computadora como a veces le gustaba hacer antes de dormir.
+
+
+
+
+—Voy a bañarme. —Silvita le dio un beso y empezó a caminar.
+
+
+
+
+La puerta de entrada volvió a hacer un ruido; esta vez eran las del equipo de natación. Ana Inés agarró el secador para dispersar sus pensamientos y empezó a secarse las puntas del pelo. No le importó que Beta le estuviera hablando. Por el espejo vio uniformarse a las jóvenes: la malla, el rodete, la gorra, las antiparras colgando sobre el pecho donde ella llevaba los anteojos. Pero antes de eso, desvestirse y moverse desnudas y firmes. Tenían espaldas anchas y brazos y piernas musculosos como Ana Inés había tenido cuando entrenaba natación a los veinte. Solo una era más gordita y un poco floja; se le notaba en la panza que era el lugar que debía estar más firme. Así era poco probable que hiciera una buena marca. Tal vez un día podía jugarle una carrera, nadar a la par suya en otro andarivel, sin que se diera cuenta, y ver quién de las dos terminaba más rápido. Lo iba a probar y si resultaba bien entonces haría una apuesta encubierta para sacar unos pesitos. La distracción hizo que la parte de atrás del secador le chupara algunos pelos. Tironeó y sintió cómo se le tensaban desde el cuero cabelludo.
+
+
+
+
+—¿Está bien, abuela? —Una de las del equipo la ayudó a sacar los pelos que se habían chamuscado contra el secador. El olor la hizo estornudar.
+
+
+
+
+Ana Inés reparó en que hasta entonces nunca nadie le había dicho así, ni siquiera los nietos de Silvita, que la adoraban. Su madre no había llegado a ver nacer a Marisa, y Marisa no tuvo hijos, así que ese era un título reservado a su propia abuela. De ella había heredado el gusto por las apuestas.
+
+
+
+
+—¿Estás bien? —Ahora la que la sacudía era Beta.
+
+
+
+
+—Sí —dijo Ana Inés mientras intentaba que no se le cayera el toallón y juntaba sus cosas para cambiarse en uno de los baños. No quería hacerlo en medio de las jóvenes del equipo de natación, pero tampoco cerca de las duchas, porque una no terminaba nunca de estar seca. Entró al cubículo: el espacio era tan reducido y ella tan grande como para moverse que la única opción fue vestirse sentada sobre el bolso que había apoyado en la tabla. No estaba dispuesta a dejarlo en el piso. Eso hubiera sido llamar a la pobreza. Cuando salió, se cruzó con Silvita, que ya estaba lista y olía a cítricos. Ana Inés lamentó no haberse puesto su aceite.
+
+
+
+
+—¿Beta nos espera abajo? —preguntó Silvita.
+
+
+
+
+—Sí —respondió Ana Inés, aunque en realidad no sabía dónde se había metido.
+
+
+
+
+El restaurante estaba lleno de gente, pero Beta no estaba ahí.
+
+
+
+
+—¿Te dijo que venía? —insistió Silvita.
+
+
+
+
+—Sí, no seas ansiosa.
+
+
+
+
+Un mozo les hizo una seña para ubicarlas en una mesa.
+
+
+
+
+—¿Les marcho lo de siempre?
+
+
+
+
+—En unos minutos —dijo Silvita.
+
+
+
+
+—¿Podrás traernos la panera? —preguntó Ana Inés.
+
+
+
+
+—Ya la traigo. ¿Cuántas más van a ser?
+
+
+
+
+—Dos —dijo Ana Inés y enseguida se corrigió—: Una.
+
+
+
+
+—Estela seguía de viaje.
+
+
+
+
+Después dejó caer las manos hacia el piso. Estaba cansada. Había corrido con el agua a la altura del pecho, levantado las rodillas lo más alto que podía y acompañado la carrera con los brazos durante un minuto. Algunas lo habían hecho con tobilleras; ella, ni loca. La profesora las había motivado, cada una corre hacia su zanahoria, había dicho, y todas se rieron. En ese momento, la mente de Ana Inés se puso en blanco, pero enseguida tuvo la primera fantasía: era un hombre flaco, con mucho pelo; podía verlo de espaldas, desnudo, acostado en una cama matrimonial. ¿Hacía cuánto que no veía a un hombre desnudo? Tenía la cola parada, como si hubiera entrenado hasta el día anterior. Caminaba hacia él, aunque cada paso era lento, y tenía que contenerse para que no se le notaran las ganas. Sintió un chorrito de pis que calentó el agua a su alrededor y abrió los ojos para asegurarse de que nadie se hubiera dado cuenta. Volvió a cerrarlos rápido, no quería perder la imagen. Por fin se animaba a apoyar una mano sobre el hombre. Pero el que se daba vuelta era Jorge el día de su muerte: los labios finitos como dos rollitos de plastilina y la cara de costado sobre la almohada. De pronto ella estaba encima de él, aplastándole el cuerpo. Fue ver a un fantasma. En los últimos años había pensado muy poco en él. El recuerdo se desparramó igual que un remedio que se inyecta. Intentó dejar de verlo, sacudió su cabeza como si con esa acción pudiera actualizar el deseo, decirle: no, vos no tenés lugar, correte y dejá pasar al que sigue. Fue difícil coordinar eso con las rodillas que intentaban subir al pecho y la voz de la profesora que las incentivaba. Ahora, en el restaurante, tenía las piernas entumecidas. Se sacó las zapatillas, las medias de nylon, y se masajeó los pies y las pantorrillas hasta que sintió que la tensión cedía. El mozo volvió con la panera y un tarrito de queso. Ana Inés se calzó y tocó los pancitos para ver si estaban frescos. Eligió una tostada y la untó. Silvita le hacía señas a Beta, movía los brazos igual que los que dan indicaciones a los aviones para estacionar.
+
+
+
+
+—¿Qué pasó que tardaste tanto? —La voz de Ana Inés se puso grave para tapar el gruñido de su estómago.
+
+
+
+
+—Me crucé con el presi.
+
+
+
+
+—Vos no estarás rondándole, ¿no? —preguntó Silvita.
+
+
+
+
+Ana Inés bajó la mirada.
+
+
+
+
+—Yo solo tengo manos para mi novio —respondió Beta acariciando sus pulseras como si fueran el lomo de un gato.
+
+
+
+
+—¿Entonces?
+
+
+
+
+—Me pidió que ayude con algo para la fiesta aniversario del club.
+
+
+
+
+—¿Algo como qué? —preguntó Ana Inés y apretó sus labios hacia adentro celosa de que Beta tuviera tantos contactos. Sabía que Antonio había comenzado los preparativos para candidatearse de nuevo a la presidencia. Estaba terminando su tercer mandato consecutivo. La novedad esta vez era que las mujeres también se podían presentar y que ella quería hacerlo y ganar, aunque todavía no se lo había contado a nadie.
+
+
+
+
+Sonó un celular y Beta y Ana Inés empezaron a buscar entre sus cosas. Atendieron al mismo tiempo.
+
+
+
+
+—Hola.
+
+
+
+
+—¿Hola?
+
+
+
+
+—¿Qué pasó?
+
+
+
+
+—¿Hola?
+
+
+
+
+Era la hija de Ana Inés para saber si le había gustado la sorpresa.
+
+
+

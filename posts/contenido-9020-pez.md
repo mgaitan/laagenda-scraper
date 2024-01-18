@@ -1,0 +1,246 @@
+# Pez
+
+**"Caminaron río abajo, tal como lo habían hecho todos los años y, hacía tanto. Nada había cambiado. Solo ellos”.**
+
+23 de noviembre de 2021 - Sábados de súper ficción
+
+_por Camila Sportuno_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/9020-pez
+
+
+
+Como solía pasarle los domingos cuando iba a pescar con su hijo mayor Roberto se despertó mucho antes de levantarse. Había tenido el sueño nuevamente: su hijo pescaba un pez enorme y cuando lograba sacarlo del agua después de una larga lucha, no lo podía matar con nada. Él, a su lado, intentaba ayudarlo pegándole en la cabeza con piedras, pero el pez resistía y seguía intentando respirar afuera de agua. Luego, le pedía al hijo que sostuviera fuerte al pez para poder meterle los dedos en la boca y quebrarle la mandíbula. El hijo se negaba y ahí se despertaba.
+
+
+
+
+Aún no había amanecido. Adivinó los objetos a su alrededor para luego ver sus contornos paulatinamente. La cómoda con polvo a su lado derecho y la puerta ventana al izquierdo con la cortina marrón mal puesta. Su hijo siempre le decía que los muebles en su casa no tenían un lugar.
+
+
+
+
+Poco antes del amanecer Roberto levantó su cuerpo de la cama con alguna dificultad y puso la pava para el mate. Sacó del armario su equipo de pesca y lo llevó a la mesa para armarlo. Se sentó mirando hacia la ventana. El cielo estaba un poco más claro, el sol estaba saliendo. Como si estuviera armando un rompecabezas que ya había hecho mil veces y sabía de memoria, Roberto armó la caña y la paró al costado de la puerta, eligió cuidadosamente algunas moscas, que él mismo había hecho y bautizado, y las cucharitas. Metió algunas en un maletín con otros elementos de pesca y sus preferidas las enganchó en el bolsillo del chaleco. Se puso una camisa gris, pantalones cómodos y el chaleco. Luego tomó mate mirando el cielo despejado.
+
+
+
+
+![](https://cdn.feater.me/files/images/116885/2bcf3222-9309-4cee-92fd-a3821c69f1b2.jpeg)
+
+
+
+
+Cargó el equipo de pesca en el auto junto al carbón, kerosene, galletitas de agua, paté y, la carne para el asado y se fue a buscar a su hijo que vivía en la otra punta de la ciudad.
+
+
+
+
+Francisco estaba esperándolo en el portón de la casa. Desde que se había divorciado Roberto nunca había entrado a la que había sido su casa, donde había criado a su familia. Como si se hubiera trazado una línea imaginaria o como si estuviera prohibido para él. Sus hijos no lo habían entendido. Su esposa simulaba molestia ante ese hecho cada vez que sucedía.
+
+
+
+
+Francisco entró al auto y le dio un abrazo fuerte.
+
+
+
+
+– ¿Preparado para la pesca?
+
+
+
+
+- Sí, papá-contestó el hijo mientras recibía una palmada amistosa.
+
+
+
+
+No hablaron durante todo el trayecto. Cuando llegaron, mientras bajaban las cosas del auto, el padre le preguntó a su hijo cómo estaba y si tenía novia. Él le respondió que estaba muy bien, estudiando mucho, que rendiría un final dentro de poco y que no, que no tenía novia. Roberto entonces le habló de la importancia de las mujeres en la vida de los hombres.
+
+
+
+
+El lugar por el que debían pasar para llegar a la vera del río no era un camino propiamente dicho sino más bien un sendero de tierra abierto a fuerza de muchas personas que habían pasado por ese mismo lugar, en su mayoría pescadores. Francisco se ajustó las zapatillas deportivas y se puso la pesada mochila al hombro. Su padre ya estaba adelante bien avanzado el camino, casi desapareciendo.
+
+
+
+
+Durante el trayecto Roberto no se dio vuelta ni una sola vez y le llevó una ventaja de varios metros a Francisco. Aun no era ni media mañana, pero se podía adivinar por la falta de nubes y de viento que sería un día muy caluroso. Roberto paró un instante a descansar, tomó un poco de agua, se sacó el buzo y al levantar la mirada divisó a la figura larga que se acercaba como quebrándose. Su paso firme era otro, pero él tenía muchos años más, más experiencia. Lo miró y reanudó la caminata. Al llegar vio al río tan calmo que sin pensarlo se acercó a uno de los pozones que había unos metros a la izquierda, se desnudó y se metió al agua.
+
+
+
+
+-¡Estás loco!
+
+
+
+
+-¡Está hermosa, metete!-respondió el padre pasándose las manos por la cabeza, peinándose con agua de río.
+
+
+
+
+-Pero no tengo calor papá, está fresco todavía, no es ni media mañana.
+
+
+
+
+-Cuanto más fresco afuera más calentita parece el agua-le respondió mientras salía.
+
+
+
+
+Francisco se le quedó mirando.
+
+
+
+
+Roberto se secó un poco con una toalla, se vistió con destreza y rapidez y comenzó a armar la caña. Francisco se colocó al lado del padre y lo imitó. Roberto terminó de armar la caña antes que su hijo, se levantó del suelo y se sentó un rato al sol, detrás de él, mirando hacia el río, mientras lo esperaba. El río mostraba desde aquella distancia las piedras que yacían en el fondo. De vez en cuando se veía un movimiento pequeño de remolino o algún espacio en el que se producía una contracorriente. Estaba todo tan tranquilo que ellos parecían ser las únicas personas en esta parte del mundo. Se escuchaba cada tanto el sonido de las hojas de los sauces llorones al temblar por la brisa o el de los pastos secos un poco más atrás del río.
+
+
+
+
+No supo si era él que se estaba volviendo viejo o su hijo que cada vez tardaba más en armar una caña de pescar. Cuando se quisieran acordar ya sería la hora de comer el asado. Se entretuvo mirando un rato más el río.
+
+
+
+
+-Hoy va a haber pique- le dijo Roberto acercándose por detrás. Se agachó un poco y le dio una palmada en la espalda- ¿Vamos a tirar unos tiritos allá cerca del otro pozón?
+
+
+
+
+Empezaron a caminar hacia el lugar. Roberto escuchaba atrás suyo los pasos inciertos de su hijo, como si estuviera pisando arriba de las huellas recién impresas por sus zapatillas. Se dio vuelta y se sorprendió al comprobar que Francisco había frenado varios metros antes de llegar al pozón y se había puesto a pescar. Recordó la primera vez que su hijo había pescado una trucha. Habían salido ellos dos, era una de las primeras salidas. Francisco se había quedado parado del otro lado del río con la caña bien arriba y la trucha moviéndose para todos lados, intentando escapar de la trampa; él le gritaba a todo pulmón que alejara la trucha del agua, que la apoyara en el piso, que buscara alguna roca grande y le pegara en la cabeza con fuerza y, varias veces. Él se había quedado paralizado mirándolo mientras la trucha seguía luchando por su vida en el aire. Cruzó lo más rápido que pudo y se acercó a su hijo. Le mostró cómo se hacía.
+
+
+
+
+Aún después la mayoría de las veces que Francisco pescaba devolvía la trucha al agua. Como respuesta a la mirada de reproche del padre Francisco siempre le decía lo mismo que para qué la quería. Para qué va a ser, para comerla, le respondía él y su hijo repetía que prefería no matarlas. El padre replicaba entonces que matar para comer no estaba mal. Dos o tres veces, sin explicación alguna, Francisco había matado algunas truchas y había mirado para otro lado para no encontrarse con la mirada, seguramente orgullosa, de su padre.
+
+
+
+
+Ya era el mediodía y el sol empezaba a quemar. Roberto se puso una gorra y le ofreció otra a su hijo. Francisco le respondió que había traído la suya. Siguieron caminado río abajo y tirando tiros, ya habían pasado algunas horas y ninguno de los dos había tenido pique. Una hora después el padre se apartó del río, buscó algunos pastizales secos, puso algunas piedras y colocó la parrilla en el piso. Francisco lo miró hacer el fuego mientras preparaba unas galletitas con paté para picar.
+
+
+
+
+Después de terminar de comer el asado se tiraron panza arriba a la sombra de un sauce. Roberto se durmió casi enseguida y comenzó a roncar de manera ruidosa. Cada tanto entreabría los ojos y, semidormido, levantaba la cabeza y miraba a su alrededor, luego lo volvía a vencer el sueño. Francisco luego de un rato de no poder dormir se sentó y miró el río. Vio varias truchas arcoíris y cómo algunas salían a la superficie a comer insectos. Miró a su padre. No recordaba haber sentido el paso de tanto tiempo, le parecía ayer cuando su padre tenía bigote y pelo negro. También, era mucho más flaco de joven, no tanto como él, pero no tenía esa panza redonda y blanca. Se acercó y lo miró respirar. Se quedó varios segundos admirando esa tranquilidad y armonía de la inhalación y exhalación, la enorme panza llena de vino y asado (de tantos años) que subía y bajaba. Sí, estaba viejo. Le pareció sentir por un momento que el aire que el padre exhalaba era inhalado por él.
+
+
+
+
+Con un ronquido fuerte y desagradable el padre abrió los ojos de repente bien grandes. Se incorporó e invitó a su hijo a seguir la pesca.
+
+
+
+
+Caminaron río abajo, tal como lo habían hecho todos los años y, hacía tanto. Nada había cambiado. Solo ellos. El río, las montañas atrás, los sauces, las grandes rocas que bordeaban algunas partes del río no se habían movido.
+
+
+
+
+–Pero yo ya estoy viejo.
+
+
+
+
+-¿Qué decís?
+
+
+
+
+-Que ya estoy viejo, escuchaste. Mirá este río. Es siempre el mismo. Y yo ya estoy viejo. Unos años más y no sé si voy a poder seguir viniendo a pescar.
+
+
+
+
+-Bueno, tampoco seas tan fatalista.
+
+
+
+
+-Vos estás más grande pero no del todo.
+
+
+
+
+-Sí, ya soy un adulto.
+
+
+
+
+-Bueno, pero me refiero a que todavía tenés muchas cosas pendientes, armar una familia, conseguir un trabajo estable.
+
+
+
+
+-Sí, no sé si tengo. Tampoco sé si quiero.
+
+
+
+
+-¿Cómo?
+
+
+
+
+-Y sí papá, eso se va dando con el tiempo. Aparte, no todos quieren tener hijos y formar una familia.
+
+
+
+
+-Yo pensé que vos querías.
+
+
+
+
+-No sé.
+
+
+
+
+-¿Pero querés o no querés? No tendrá que ver con esto de que no tenés novia, ¿no?
+
+
+
+
+-No. No tiene que ver con eso. No tengo novia porque no quiero tener novia.
+
+
+
+
+-Si me preguntás a mí y a cualquiera creo que te van a decir lo mismo. Que estás loco. A tu edad es normal querer tener novia. Aparte vos ya tuviste novia, no sé qué es esto de andar solo últimamente.
+
+
+
+
+-No estoy solo, tengo a Santiago.
+
+
+
+
+Roberto se quedó quieto. No estaba preparado para enfrentarlo. Miró hacia el río e ignorando a su hijo siguió pescando. Francisco se desnudó y se metió al río.
+
+
+
+
+Le había enseñado todo a su hijo. No solo a pescar. Por qué no pescaba ninguna trucha. Justo hoy. Quizás era el día de las malas noticias. Su único hijo. Si hubiera tenido dos. De dos uno homosexual no es tan grave. Y qué le diría a su familia. Hasta donde sabía no había ninguno de sus sobrinos era puto. Y no picaba nada. Eso era mal agüero. Percibía a su hijo nadando a un costado.
+
+
+
+
+Jamás volvería a nadar desnudo delante de su hijo.
+
+
+
+
+Camila Spoturno
+
+
+
+
+Camila Spoturno Ghermandi nació en San Carlos de Bariloche en 1985, pero vive en La Plata desde el 2003. Se recibió de Lic. en Letras con orientación literaria (UNLP) en 2011 y desde entonces ha publicado artículos sobre literatura en revistas académicas y cursa actualmente su Doctorado en Letras (UNLP). Ha publicado dos cuentos de su autoría en la antología Una admiraodra burra y otros relatos (2020, Servicop). Trabaja en docencia en el nivel medio y coordina talleres de lectura con perspectiva de género. Este cuento forma parte de su libro No quiero volver a casa, editado por Malisia
+
+
+

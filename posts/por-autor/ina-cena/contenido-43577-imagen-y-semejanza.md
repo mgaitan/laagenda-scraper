@@ -1,0 +1,1 @@
+../../contenido-43577-imagen-y-semejanza.md

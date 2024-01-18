@@ -1,0 +1,1 @@
+../../contenido-4448-rapida-potente-amarilla.md

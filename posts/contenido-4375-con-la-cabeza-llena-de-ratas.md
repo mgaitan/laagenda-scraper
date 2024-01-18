@@ -1,0 +1,91 @@
+# Con la cabeza llena de ratas
+
+**Antes de hacer las valijas, miro la casa. Ya no es la postal turística que alquilamos con un amigo para quedarnos un mes, sino una extensión de mi encierro:**
+
+16 de marzo de 2021 - CUARENTENA
+
+_por JUAN RAPACIOLI_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4375-con-la-cabeza-llena-de-ratas
+
+
+
+la ropa por todos lados, el café a mano, los platos para lavar, el balde con lavandina listo. Afuera, el mar. La única noción más o menos estable en estos cuatro meses. Abro el mail del consulado que confirma mi vuelo de repatriación y lo primero que pienso es que no voy a poder ir. No es que no quiera, es que no me puedo mover. Si salir a comprar al mercado era una operación estresante, ¿cómo hacer para llegar a un aeropuerto en otra región? En pandemia, no todos los caminos conducen a Roma. Recuerdo la semana en que todo cambió. Estaba acá, en la misma silla donde ahora busco la manera de alcanzar ese avión improbable. El primer impacto llegó una mañana: cerraban las fronteras de Italia. La cara de mi amigo, cuando le mostré la nota de la BBC, pasó de la incredulidad al temor. Peligraba su trabajo. Nos despedimos en una estación desierta pensando retomar los trámites de la ciudadanía pronto. Ingenuos. Mi pareja estaba en España resolviendo su visa cuando todo se frenó. Ningún vuelo, ninguna respuesta. Mucha desesperación. Nos íbamos a ver en dos semanas, íbamos a recorrer Sicilia, íbamos a buscar trabajo. Cuando me pude comunicar, estaba haciendo lo único que podía hacer en medio de la confusión: volver a Argentina. Una semana. Una semana hizo falta para que el mundo cambiara. Lo que siguió es conocido: paranoia y soledad. Ausencia de futuro. Escribir para responderse a uno mismo. Esperar noticias como quien espera, en un esquina, una droga que suspenda la realidad. Pero, como se dice, es la realidad la que imita a la ficción. Todos estos meses fueron variaciones de imaginarios distópicos soñados el siglo pasado y, a la vez, nadie se imaginaba esto. En fin. Hago las valijas, limpio la casa, escondo la llave. Me despido del pueblo como de una foto: el gato con la cara lastimada, la señora tomando sol, el barco que deja piedras. Camino con el sol en la cara, llego a la misma estación desierta y me subo a un tren vacío.
+
+
+
+
+Martes
+
+
+
+
+Después de horas interminables en la estación de tren de Catania -que parece Retiro-, estoy en Roma. Aunque, en realidad, estoy en una versión artificial. Me encuentro con un argentino, el primero en meses. Cordobés, futbolista. Me cuenta que después del vuelo le toca otro viaje en colectivo a su casa. Salgo del aeropuerto y me siento en una película: un chofer me espera con un cartel en la mano donde leo mi apellido. Viajamos por una autopista desolada que podría ser de cualquier ciudad y, cuando me deja en el hotel, entiendo que es la única persona que voy a ver durante mi estadía romana. El lugar parece un hostel brasileño y el cuarto tiene pinta de telo. La ducha es buena. Se escuchan los pájaros, logro dormir. Me levanto, a la noche, sobresaltado. ¿No hay nadie en el hotel? Pienso en Norman Bates. A la mañana veo, en el balcón de enfrente, una señora con pañuelo en la cabeza que arregla una reja. Parece un personaje de los hermanos Coen. Lo que más me sorprende es que atrás, en una maceta, tiene plantada una palmera. Me acuerdo de las palmeras del pueblo siciliano, siempre al borde del derrumbe. Harto de los snacks, busco algo para comer. Todo cerrado. Doy vueltas sin saber qué hacer. Un jardinero poda un árbol. Le pregunto si sabe dónde puedo pedir comida y hace algo muy italiano: baja del árbol, entra a la casa, hace un llamado y vuelve para decirme que el delivery sólo está disponible a la noche. Los italianos, al menos a los que les pedí indicaciones, suelen hacer eso: no indican, sino que se hacen cargo ellos mismos del asunto. Recuerdo uno, en Taormina, que dejó lo que estaba haciendo y me acompañó hasta el lugar que buscaba. Vuelvo al cuarto y el hambre es un peso. ¿Otra vez snacks? Ni siquiera tengo mate para disimular. Entonces escucho un grito. Salgo de la habitación y veo al jardinero que me llama. Bajo y desaparece. Espero mirando su trabajo sobre las hojas. Al rato vuelve con dos platos de plástico, uno sobre el otro. Me los entrega como un paquete y lo abro: canelones. De golpe, el mundo tiene sentido. Aún queda amabilidad en este delirio. Una señora, que debe ser la esposa del jardinero y la autora de este regalo del cielo italiano, me sonríe.
+
+
+
+
+Miércoles
+
+
+
+
+Finalmente, llega el día del vuelo. Tenemos que estar doce horas antes del embarque. Tranqui. Avanzo adormecido por el aeropuerto de Fiumicino y empiezo a reconocer los gestos, las voces, los tonos. El cordobés se multiplicó. Todos son futbolistas, todos usan chupines. Me meto en mis auriculares y pongoMusic For Airports para estar en ambiente. Las horas, los formularios y los anuncios son tantos que ya nada sorprende. Kafka en loop de la vida moderna. Después nos toman la fiebre, nos dan un voucher y nos dejan circular, pero controlados. Tomo café, estiro, intento alguna conversación. Sentado en el piso, observo a un militar que carga un estuche gigante con el sticker de un arma. Y luego, de a poco, horas antes de la salida, se empieza a formar la tradición de la espera argentina: la fila. No importa que no haya futuro mientras haya fila. Ensayo una rebeldía y me quedo al costado, impostando indiferencia pero, en el fondo, siento la inquietud de ser parte, de estar en la sagrada hilera. Me duele la espalda, estoy cansado, pero paradójicamente tengo más energía, como si la situación me hubiera inyectado fuerzas. Ya falta menos para subir, pero cada bloque de tiempo es infinito. La emoción está extraviada en algún rincón del agotamiento. Acostumbrado a huir de las muchedumbres, busco espacios vacíos para descansar un rato. Me alejo de los futbolistas y me apoyo contra una ventana. Una voz nasal me interrumpe. Habla en inglés con una seguridad cortante que suena a superioridad. No usa barbijo, toma cerveza, se ríe a carcajadas. Es como Trump pero pelado. Habla con un japonés que parece de Texas. No los conozco pero no soporto esa manera superada de hablar y, menos, la risa nerviosa del japonés que intenta quedar bien. En fin. Embarcamos. Demasiada gente cerca: alarma. Recién ahí me doy cuenta que me había olvidado el motivo fundamental del terror: el enemigo invisible. La atención es buena. Me aferro a un bolsa con snacks y el avión despega. Miro dos películas seguidas: Blinded by the Light, la historia de un adolescente de familia pakistaní que vive abrumado en la Inglaterra de Thatcher hasta que pone un casete de Springsteen y su vida cambia para siempre, y Ad Astra, donde el siempre joven Brad Pitt viaja al espacio para reencontrarse con su padre, un astronauta de primera línea que supuestamente había muerto hace años. El viaje espacial le sirve de excusa al director para hablar de la relación traumática con la figura paterna. No puedo decir que las películas sean muy buenas, pero por alguna razón estoy llorando. Como dice Simon Reynolds, para muchos hombres llorar no es fácil. La tragedia o el tormento no producen el quiebre que pueden generar ciertas canciones y películas. Algo en ese pibe corriendo con la voz del Jefe en su walkman y en ese viaje espacial para enfrentar al padre lograron el efecto de las lágrimas. El problema vino después. Mientras todos dormían, yo tenía que sonarme la nariz y tragarme cualquier atisbo de tos. El miedo.
+
+
+
+
+[![](https://img.youtube.com/vi/DmmHvnS0IKM/0.jpg)](https://www.youtube.com/watch?v=DmmHvnS0IKM)
+
+
+
+
+Jueves
+
+
+
+
+Llegamos a Ezeiza. La sensación es contradictoria. Por un lado, hace siglos que estoy volviendo; por el otro, pasó todo demasiado rápido. Todavía me veo mirando las palmeras de Sicilia. El operativo es veloz. Voluntarios, policías, aduana. Preguntas, firmas, fotos. Todos a un colectivo. En el hotel nos espera una comitiva. Rocían nuestros bolsos con alcohol y nos dan una llave-tarjeta a cada uno. No podemos salir de los cuartos. Nos dejan la comida en la puerta. ¿Este era el sueño de Kafka? La habitación es grande y limpia. Me dispongo a por fin descansar, pero no puedo. Me quedo mirando el techo, las pisadas arriba, los ruidos de huéspedes que empiezan a instalarse. Amanece y me quedo dormido.
+
+
+
+
+Viernes
+
+
+
+
+Paso el día en la cama. Espero la comida, miro la ventana, escucho música y pienso en demoler todo como un rockero enojado: tengo tiempo para fantasear. Pero la mayor locura que cometo es darme una ducha larga. Me llegan cosas: yerba, vino, empanadas. La argentinidad que vale la pena. Hago mi pequeña fiesta y por un momento me relajo. Pero los golpes en la puerta desarman todo. Esos golpes reafirman el encierro y la incertidumbre. Me meto en los discos con actitud marcial, tratando de espantar los cuervos negros de la mente. Empiezo con Frank Zappa y termino con Brian Eno. Me duermo con Lana Del Rey.
+
+
+
+
+Sábado
+
+
+
+
+Me despierto cada vez más temprano. Intento hacer ejercicio. Leo noticias a pesar de mí mismo. Mi cuerpo se adelanta a los golpes en la puerta. Estoy atento a los sonidos. Cuando empiezo a acostumbrarme al cuarto, escucho el ruido afuera. Un chillido leve y constante. No le doy importancia, pienso en palomas o murciélagos. Pero sigue y sigue. Entonces reviso la ventana y encuentro la evidencia: mierda de rata. Lo que faltaba. Me acuesto y siento los pasos arriba, donde está el rollo de la cortina. Trato de olvidarme pero pasa lo obvio: ahora que descubrí el origen del ruido, lo escucho todo el tiempo. Casi puedo ver la rata. No dejo de pensar en oposición: en Sicilia se imponían los gatos; acá las ratas.
+
+
+
+
+Domingo
+
+
+
+
+El chiste se cuenta solo: estoy pasando la cuarentena en un hotel con una rata. Antes de tomarle cariño a mi única compañía en meses, llamo para avisar. Me dicen que me van a cambiar de habitación, que me prepare. Por alguna razón, me apuro como si fuera a perder un vuelo. En media hora estoy listo. Tengo que hacer dos viajes porque, claro, nadie puede asistirme. Junto las valijas, la mochila y una bolsa con alimentos. Dejo el mate que estoy tomando en la mesa, junto al termo. Subo un piso, dejo los bolsos y vuelvo. Tardo cinco minutos. Cuando entro a la vieja habitación, hay un cambio: sólo está el mate. Busco el termo por todos lados. Nada. Vuelvo al nuevo cuarto y reviso mis cosas. Nada. Paso la tarde recordando mis movimientos. La desaparición del termo se lleva el día. La gente del hotel no tiene respuestas: nadie puede entrar al cuarto. Tengo sólo una hipótesis: en esos cinco minutos, un vecino entró a la habitación y se llevó el termo. Pero lo extraño no es el robo sino el momento previo. Tuvo que estar escuchando mis pasos y calculando sus posibilidades. O sea que además de estar a la espera de la comida, estaba a la espera de mi partida. ¿Quién puede robar un termo en esta situación? En fin, si el amigo de lo ajeno está leyendo esto sólo puedo decirle que el encierro, en su caso, no es inmerecido.
+
+
+
+
+Lunes
+
+
+
+
+La nueva habitación da a la calle. Miro las vidas como en Rear Window. Una mujer arregla sus plantas; otra escribe en una computadora; un pintor fuma un cigarrillo en el balcón de un departamento vacío. Abajo, una familia almuerza en silencio. Me tiro en la cama y, ahora sí, me dispongo a descansar. Sigo pensando en el termo y dudo de mí mismo: ¿me inventé todo esto? Quiero meditar detenidamente en eso pero, otra vez, el ruido. Ahora no es un chillido, sino una voz metálica que retumba contra las paredes. Los otros vecinos tal vez me robaron un termo, pero estos empiezan a robar mi paciencia. Minutos después, ya estoy extrañando a la rata. La televisión es constante. Una frecuencia que retumba en todo el cuarto y va cambiando de forma, como en una pesadilla de Cronenberg. Me llega, deformada, la voz de Guido Kaczka, Eduardo Feinmann, Baby Etchecopar. Pienso que esa deber ser la parte visible del virus invisible. A eso se le suman los gritos, las risas y un arrastre olímpico de sillas al que no le encuentro explicación. No puedo dormir. Me levanto, abro la ventana y miro la ciudad: algunas personas caminan con barbijos, otros pasan en bicicleta. Escucho la sinfonía de Buenos Aires: los colectivos frenando. Frente al hotel, veo a un hombre revisar la basura y pienso que, para algunos, la nueva normalidad es la de siempre.
+
+
+

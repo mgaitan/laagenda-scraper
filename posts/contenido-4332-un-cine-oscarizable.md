@@ -1,0 +1,56 @@
+# Un cine “oscarizable”
+
+**Hace 20 años Amores perros marcaba la pauta para el cine mexicano a base de un relato coral, una banda sonora pregnante y la violencia como eje.**
+
+16 de marzo de 2021 - ANIVERSARIO
+
+_por MARTÍN ZARIELLO_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4332-un-cine-oscarizable
+
+
+
+“No tengo un hombre ni a Gael García/ Me siento tan vacía” cantaba Natalia Lafourcade, acusando recibo, dos años después, del hito generacional que significó Amores perros. Pero cuando se estrenó la película, su director, un debutante Iñárritu, ya contaba en su itinerario con un caudal de intervenciones culturales propias de alguien tocado con la varita mágica del éxito. Durante los ochenta, formó parte de WFM 96.9, una emisora en la que pasaba música y producía contenidos de estilo juvenil (en Argentina tal vez podría hacerse una analogía con la primera Rock and Pop). Después viró a publicista en canal 5, de Televisa. En el contexto de una programación dedicada a los niños, sus spots tenían un alto impacto visual y eran muy ingeniosos para la época (se pueden ver en Youtube). La incursión en el cine se adivina como un pasaje natural, para quien en 1995 había hecho el piloto de Detrás del dinero, primera serie filmada en cine para televisión en México, y que seguía la trayectoria de un billete que pasaba por diferentes manos, germen de su deleite por la proliferación de historias alrededor de un factor en común.
+
+
+
+
+[![](https://img.youtube.com/vi/eHZuzC9ZEw0/0.jpg)](https://www.youtube.com/watch?v=eHZuzC9ZEw0)
+
+
+
+
+Hollywood había hecho de la figura del “mexicano” (y, por pereza, del latino) un estereotipo ligado al crimen y la marginalidad (mercenarios, narcos, pandilleros), que reflejaba el enfoque supremacista blanco anglosajón y el temor por las corrientes migratorias (la perspectiva etnocéntrica agrega al estereotipo del latino un detalle pintoresco cuando se trata de un personaje nacido en Argentina: su condición de hipotético simpatizante del nazismo). En Hollywood el “latino” estaba condenado a ser pura superficie: conocíamos sus acciones (sus asesinatos, sus borracheras, sus carcajadas mefistofélicas), casi siempre ocurridas en callejones oscuros o bares de mala muerte, pero no sus motivos ni su dimensión humana. La repercusión internacional de Amores perros ayudó a desarmar esta simplificación de raíz ideológica (aunque tal vez cimentó otras). México, en crudo, estaba muy presente en la literatura (desde La región más transparente a Los detectives salvajes) pero no en los productos audiovisuales que se conocían del país, más asociados al universo artificial de las telenovelas. De pronto la jerga y el acento mexicanos, dichos en la voz de Gael García Bernal, pasaron a tener un brillo inadvertido.
+
+
+
+
+La película se encuentra dividida en tres segmentos marcados: “Octavio y Susana”, “Daniel y Valeria”, “El Chivo y Maru”. Aunque los protagonistas no se conocerán entre sí, el destino los reúne en un choque de autos que se reconstruirá desde los puntos de vista de cada uno de ellos. De las tres historias, la que envejeció menos es la de Daniel, un empresario de la alta burguesía, y su amante, devenida pareja, la modelo Valeria Amaya, “una de las mujeres más hermosas de Iberoamérica” (parodia de Valeria Mazza, que durante los noventa alcanzó fama mundial; en 1997 llegó a ser invitada al show de David Letterman). A pesar de que cuenta con ese toque sentimental/gore que llevaría a que Iñárritu fuera perdiendo aliados entre los críticos, la idea siniestra de un perro rodeado de ratas y atrapado debajo de un piso flotante de madera es probablemente el hallazgo narrativo de la película. A veinte años de su estreno, parecería que la vigencia de Amores perros está más relacionada con el recuerdo emocional del fenómeno que significó en su momento, que con la película en sí. Cientos de libros y discos han corrido la misma suerte. Es como si las obras con alta capacidad de shock a primera vista, correspondan al género que fuese, no resistieran relecturas y agotaran su sentido en ese primer fulgor, tan placentero y evocativo como imposible de renovarse. Esto no debería invalidar los hitos iniciáticos, pero comprueba el paso de los años. Es decir, nunca se termina de saber si envejeció la obra o envejeció el receptor. De ahí tal vez provenga el dejo despectivo de aquellos que abominan de libros, discos y películas frecuentados en la juventud: es más fácil ser cruel con una película que con uno mismo. En fin, la historia más recordada, en la que Octavio se enamora de Susana, la abnegada mujer de su hermano Ramiro, impugna el histórico machismo mexicano pero se asemeja a un melodrama de telenovela pasado por el filtro del realismo sucio y un aquelarre de perros ensangrentados (las imágenes de degradación animal serían una constante en el cine de Iñárritu). Por último, la historia del Chivo, el vagabundo ex guerrillero, desemboca en una autocrítica de la violencia política no sólo cursi sino moralista: “Quería componer el mundo para después compartirlo contigo”, le dice a su hija, “te habrás dado cuenta de que fracasé”.
+
+
+
+
+Antes de conocer a Gustavo Santaolalla, por eso entonces productor estrella del rock latino, Iñárritu había editado Amores perros con la música de Ry Cooder para Paris, Texas. La verdad es que el cine de Iñárritu parece haber sido hecho a medida del lamento que se desprende del ronroco, instrumento que suena parecido a un charango y dio título a un disco de culto que inauguró el contacto de Santaolalla con Hollywood después de que Michael Mann usará una de sus canciones, “Iguazú”, en The insider (1999). En Amores perros va del folclore minimalista al trip hop. Junto a Iñárritu eligió los temas que suenan en las escenas más recordadas de la película: desde “La vida es un carnaval”, de Celia Cruz, a “Coolo”, de IKV y “Si Señor”, de Control Machete, aunque la joya es “Lucha de gigantes”, de Nacha Pop, grupo liderado por Antonio Vegas, un maldito del rock español, ya fallecido. En sus tiempos de radio y productor de espectáculos, Iñárritu había llevado a Nacha Pop a México. La letra de la canción, un pedido de ayuda desolador, podría llevar la firma de todos los personajes de Iñárritu (no sólo los de Amores perros): “En un mundo descomunal siento mi fragilidad”.
+
+
+
+
+A la banda de sonido original, y los temas que suenan en la película, se le sumaron otros compuestos especialmente y vendidos en un cd aparte. Después de la separación de Soda Stereo, se establecía de este modo un nuevo canon de rock latino en el que la lectura de la NME no era primordial. En Argentina “Perro amor explota”, de Bersuit, fue un hit dos años después, cuando se lo versionó en el vivo De la cabeza. El disco, además de artistas ya consagrados como Café Tacuba, presentó al gran público a una joven Julieta Venegas. Exceptuando el caso de Ciudad de dios (2002), pocas bandas de sonido de una película latinoamericana han captado una época de una manera tan precisa como la de Amores perros. Al igual que Santaolalla, Rodrigo Prieto, el director de fotografía, trascendió en su rubro (después de trabajar con Iñárritu, pasó a ser parte del equipo de Scorsese). Entre los actores, fue Gael García Bernal, con su histórico look de sex symbol que ni siquiera necesita bañarse para generar tensión erótica, el que se abrió un camino en Hollywood. El escritor Guillermo Arriaga, encargado del guión, se alejaría de Iñárruti años más tarde y en malos términos, disputándose la autoría de Babel. Amores perros ganó premios en varios festivales. Fue nominada a “Mejor Película De Habla No Inglesa” en los Oscars y perdió con El tigre y el dragón. Con un presupuesto de dos millones cuatrocientos mil dólares, llegó a recaudar más de veinte. Su éxito significó un avance inédito para el cine mexicano e Iñárritu , junto a Guillermo del Toro y Alfonso Cuarón, formó una histórica delantera con la que México seguramente habría pasado los Octavos de Final.
+
+
+
+
+Por el carácter no lineal de la narración, el énfasis en la banda sonora y la violencia como eje temático, parte de la crítica entendió Amores Perros como una suerte de reproducción latina de Tarantino. En una entrevista concedida a Página/12, realizada por Luciano Monteagudo, Iñárritu rechazó ese vínculo en forma terminante: “Volviendo a Tarantino, me siento muy lejos, porque me parece que utiliza la violencia como entretenimiento, como juego. Me da la impresión de que conoció la violencia a través de los videos y yo la vivo todos los pinches días. Y no tiene nada de risa”. Sus films posteriores le dieron la razón, fuera de la estructura, Iñárritu no tenía nada que ver con Tarantino, aunque eso no significa en sí mismo una valoración de ningún tipo. Iñárritu ha sido acusado una y otra vez de “pretencioso”, señalamiento cuyo problema reside menos en tener una pretensión que en no poder alcanzarla: sin pretensión buena parte del mejor cine no existiría (Herzog, Kubrick). Al mismo tiempo, su firme prédica contra las tendencias predominantes del cine actual (películas de superhéroes, Netflix), siendo él, a su pesar, una marca registrada del establishment, lo ubicaron en un lugar confuso.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/40780/f4926872-92a1-4a73-8d7b-615ec15e6b1c.jpeg)
+
+
+
+
+Amores perros fue la primera parte de una trilogía que también incluyó a 21 gramos (2003) y Babel (2006), películas corales, entrecruzadas y de narrativa no lineal: la primera adaptó el modelo a Estados Unidos, la segunda al mundo (se añadían Marruecos y Japón). Protagonizada por actores de renombre (Sean Penn, Noami Watts, Brad Pitt, Cate Blanchett), la trilogía sirvió para que Iñárritu se convirtiera en el emblema de los grandes dramones universales de Hollywood, poderosos artefactos a través de los cuales el capitalismo condena las desigualdades del mundo y recauda millones de dólares pero con una fotografía muy cuidada. Sería una injusticia que esta ambigüedad, propia de toda manifestación artística mainstream que denuncia y a la vez circula bajo las coordenadas de la sociedad de mercado, recaiga –como a veces dan a entender sus haters– en los hombros de Iñárritu, pero hubo cierto consenso con respecto a los excesos lacrimógenos de Biutiful (2010), que puede entenderse como una transición a partir de la cual, a su estética realista, añade una visión más alucinada, por momentos cercana al misticismo. Este cambio se puede notar en Birdman (2014) y The revenant (2015), películas por las que logró una seguidilla de Oscar a “Mejor director” y supusieron una evolución evidente para una obra que parecía estancada. Los elogios encendidos y las diatribas furibundas al momento de sus estrenos, ya son un clásico después de cualquier película del mexicano.
+
+
+

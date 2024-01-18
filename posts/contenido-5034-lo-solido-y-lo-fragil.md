@@ -1,0 +1,41 @@
+# Lo sólido y lo frágil
+
+**Breve historia del planeta verde se volvió a emitir en esta edición del BAFICI. Tres amigos viajan a un pueblo para, sin saberlo, salvar a un extraterrestre.**
+
+24 de marzo de 2021 - BAFICI 2021
+
+_por JULIETA HABIF_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/5034-lo-solido-y-lo-fragil
+
+
+
+La abuela de Tania fallece en el pueblo y la casa en que ella se crió y hay que ir a desarmarla, hacerse cargo de sus cosas y de algunas cuestiones. Junto con Daniela y Pedro viaja para allá y los recibe la señora que cuidaba de su abuela, una mujer cálida y firme que pretende, ahora, cumplir sueños que postergó. Les muestra cómo está todo, que te hicimos ese vestido, que tu cuarto quedó como lo dejaste, que la ropa de invierno está ahí arriba, etcétera; y les dice que hay una cosa más, que la ayuden a correr la cama de la abuela. Cuando lo hacen encuentran una escalera a una especie de sótano en el que, congelada, se preserva a una criatura extraterrestre.
+
+
+
+
+Los tres (los cuatro, con la señora) miran esa pecera en la que el alien permanece. Hipnotizados, hacen algunas preguntas. La señora cuenta que hace varios años la abuela sintió una presencia mientras paseaba por el verde del lugar, y lo vio y, lejos de asustarse, se lo trajo a la casa para darle cobijo. Así, la abuela y el alien comenzaron a construir una hermosa amistad, una relación, en realidad, oscilante entre la amistad y la maternidad, o la abuelidad: ella lo bañaba, le leía cuentos en la cama, le preparaba comidas, le sacaba fotos. El alien había llegado para paliar una soledad, una quietud eterna y eternizada. Eventualmente notó que su protegido comenzaba a debilitarse y pensó que, quizás, estaba extrañando su planeta natal, de modo que para que no muriera lo congeló hasta poder encontrar la forma de enviarlo de vuelta. Pero antes de que se concretara este plan de desapego, la abuela falleció. La acompañante le dice a Tania que ese era el sueño de su abuela, y Tania se propone cumplirlo. Aquí empieza una especie de aventura para los tres amigos: la de encontrar la forma de devolver al extraterrestre a su planeta.
+
+
+
+
+Cargan sus petates, agarran algunas de las camperas de la abuela para no pasar frío, llenan una valija con hielo, se cargan al alien y arrancan. En ese camino, Loza deja entrever cómo dialoga la personalidad, la identidad de cada uno de los tres con el entorno: Tania recibe miradas entre libidinosas y de desprecio en una estación de servicio, a Pedro lo empuja un hombre por ponerse a bailar eufórico en un bar, y Daniela, con su meseta emocional, es la que puede ver -a partir de señales- por dónde deben ir para encontrar el punto en que el alien será abducido. Conforme avanzan van encontrando nuevos lugares para dormir, casi todos en condiciones muy precarias o directamente a la intemperie. En el camino, Tania comienza a sentirse mal a la par del alien, y se insinúa una especie de conexión entre, pongamos, sus almas, sus esencias.
+
+
+
+
+[![](https://img.youtube.com/vi/mjvUt_VdBEA/0.jpg)](https://www.youtube.com/watch?v=mjvUt_VdBEA)
+
+
+
+
+“Yo no vendría a La Tierra si supiera lo complicado que está todo acá” dice Daniela mientras refresca al extraterrestre en un río; a lo que Pedro responde “capaz en otro lado es peor”. Esta conversación, este tipo de conversaciones, que se suceden a lo largo de la hora y monedas que dura la película, encapsulan -a mi entender- los tres ejes sobre los que se sostiene la trama: lo tétrico, lo cómico y la oda a la intrascendencia de cada ser humano. Es difícil disociarlos, podríamos decir que lo tétrico es casi obvio: una señora guardando a un alien agónico en una pecera en su sótano; pero se mezcla con la comedia cuando, por ejemplo, una compañera de Tania que recientemente fue madre ve al alien con hambre y decide amamantarlo. El último bastión se vislumbra no sólo en las charlas como la anterior sino también hacia el final, que no voy a revelar (todavía puede verse gratis por 48 horas), pero que pone de manifiesto que, como suele decirse, estamos de paso.
+
+
+
+
+Breve historia del planeta verde fue estrenada en el BAFICI 2019, luego en Berlín, donde fue premiada, y también recibió dos premios Teddy (el galardón queer). Loza ha dirigido otras películas, también presentadas en el Festival: Extraño, Cuatro mujeres descalzas, Rosa Patria, La invención de la carne, Los labios, La Paz y Malambo: El hombre bueno. En la función de ayer, al aire libre en el parque del Museo Larreta de Arte español y previo a que comenzara el film, habló de lo importante que fue el otorgamiento de la Beca Mecenazgo para la realización de la obra, y refirió al “frankenstein financiero que necesitan las películas para concretarse”. Al contar con ese financiamiento, otras empresas creyeron también en el producto e hicieron lo propio. En esta línea, aclaró que los espectadores se iban a dar cuenta de que estaba hecha con poco presupuesto, pero Breve historia del planeta verde revela la solidez de los lazos de amistad frente a todo el resto de las fragilidades de existir. Y eso queda impreso perfectamente, sin necesidad de una hiperproducción.
+
+
+

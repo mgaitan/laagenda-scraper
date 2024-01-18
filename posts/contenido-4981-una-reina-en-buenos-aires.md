@@ -1,0 +1,146 @@
+# Una reina en Buenos Aires
+
+**A 40 años de Queen en la Argentina, una visita que trajo un show sin precedentes y cambió la forma de producir espectáculos musicales.**
+
+28 de febrero de 2021 - ANIVERSARIO
+
+_por ILÁN KAZEZ_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4981-una-reina-en-buenos-aires
+
+
+
+Hace 40 años Queen desembarcó en la Argentina. La llegada de una banda internacional de rock de estadios era algo tan nuevo en el país que nadie sabía bien cómo enmarcarlo. Es que tampoco había antecedentes: un año antes habían tocado The Police y Peter Frampton, y en 1973 Santana se presentó en San Lorenzo. Pero nada se comparaba a la magnitud de Queen, que estaba en su pico de popularidad y que se destacaba por ser una de las bandas más enfáticas en la parafernalia del show en vivo. El “The Game Tour” -que también tuvo paradas en Brasil, Venezuela y México- llegaba con una estructura de siete parrillas de luces, 36 bafles y un escenario de 20 metros de largo por 12 de profundidad.
+
+
+
+
+Para la Argentina era como si hubiese aterrizado una nave espacial. Para los británicos significaba abrir un mercado nuevo. Hasta ese momento, a las bandas de rock anglosajón no les interesaba Sudamérica, creían que era un territorio inhóspito, impensado en términos de costos y beneficios. Desde sus comienzos Queen tuvo la osadía de apuntar a terrenos inexplorados, con Japón como el caso más paradigmático y exitoso. Pero esto tenía algo más de riesgo: una región del tercer mundo de la que no se conocía nada más que el fútbol, y que vivía bajo regímenes militares.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/45492/477b64eb-fbbc-4fa9-a39e-cb794cc4f8a3.jpeg)
+
+
+
+
+El cuarteto en la terraza del Sheraton.
+
+
+
+
+“Para ellos fue como Cristóbal Colón cuando salió de Cádiz y descubrió América. Ellos venían a las Indias”, dice en diálogo con La Agenda Javier “Coqui” Capalbo, hijo de Alfredo Capalbo, el productor a cargo de los shows de Queen en Argentina, fallecido en 2014. En aquellos días Coqui tenía 23 años y trabajaba de la mano con su padre. Él estuvo desde el primer momento en que se habló de la posibilidad de la llegada de los británicos.
+
+
+
+
+A mediados de 1980, Alfredo y Javier viajaron a Los Ángeles con el objetivo de cerrar un contrato con Linda Carter, actriz de la Mujer Maravilla, pero algo salió mal. “En la reunión, el mánager dice: ‘Estamos contentos de ir a Sudamérica, porque Linda está lanzando un nuevo disco’. Y mi viejo dice: ‘¡¿Cómo?! ¿No se disfraza de Mujer Maravilla?’. Y le responde: ‘Nooo, Linda ahora canta’. Mi viejo casi tira por el balcón al intermediario que nos hizo ir a Los Ángeles al pedo”, cuenta Coqui. Sin embargo, lo que podría haber sido un viaje frustrado, terminó en una oportunidad. Ahí en Los Ángeles, Capalbo habló con José Ángel Beco Rota, histórico productor discográfico argentino, que en ese entonces vivía en Estados Unidos, y este lo invitó a una reunión junto a Jim Beach, manager de Queen, y Howard Rose, promotor de la gira de los británicos en Estados Unidos. “Esa fue la primera reunión donde salió el tema de la posible visita”, recuerda hoy Coqui a través de una videollamada.
+
+
+
+
+Para asegurarse de que estaban trabajando con gente seria, Jim Beach hizo una averiguación de antecedentes de Capalbo. En aquel entonces, él era uno de los productores de espectáculos en vivo más importantes del país. Fue el artífice de shows masivos de Julio Iglesias, Joan Manuel Serrat y Johnny Hallyday, y un año antes había sido el responsable de un multitudinario espectáculo en el estadio de Vélez a beneficio de los hospitales de frontera. Pero nada de lo que había hecho se comparaba a la producción de Queen. “Todos esos eran shows que se hacían con cuatro lamparitas”, resume Coqui. Alfredo tampoco tenía un especial interés en el rock, más bien era un hombre con buen olfato para los negocios y de buenas relaciones públicas entre colegas y autoridades. Lo más cerca que estuvo del rock fue haber trabajado junto a Gustavo Yankelevich en la producción del popular grupo juvenil Carlos Bisso y su Conexión Nº 5. Unos años antes viajó a Londres para tratar de hacer que los Beatles tocaran en la Argentina, pero lo máximo que consiguió fue los derechos para transmitir la película Magical Mystery Tour.
+
+
+
+
+Una vez cerrado el contrato para traer a Queen, hubo que poner en marcha la compleja producción. Para eso la banda contrató a Gerry Stickells, uno de los tour managers más importantes de la historia del rock, quien en 1980 llegó al país para hacer una avanzada por los posibles escenarios. Gracias al Mundial de 1978, los estadios del país estaban como nuevos, a nivel internacional, pero no tenían lo que se necesitaba para un show de rock. El mayor problema estaba en la altísima demanda de energía eléctrica que requería el concierto. “Los intendentes de los estadios no entendían nada de esto. Cuando llegaba al tipo con los planos y los requerimientos de energía, la respuesta permanente era: ‘Decile al yanqui que está loco’”, dice Javier Capalbo. Para resolver el problema, tuvieron que alquilar un cable de 100 metros a la entonces empresa pública Servicios Eléctricos del Gran Buenos Aires (Segba) que iba desde las subestaciones de energía de los estadios hasta el escenario.
+
+
+
+
+Otra cuestión a resolver fue el armado del escenario. “Acá no se había hecho jamás en la historia un escenario así. Fuimos a una empresa llamada Acrow, que era de estructuras tubulares y tardaban 20 días en hacer cada escenario”, recuerda Capalbo. Si se tiene en cuenta que estaban programados tres shows en Vélez (28 de febrero y 1 de marzo), uno en el estadio Mundialista de Mar del Plata (4 de marzo) y otro en el “Gigante de Arroyito” en Rosario (6 de marzo), hubo que organizar el armado de tres escenarios en paralelo. Mientras tanto, tenía que llegar todo el equipo de luces y sonido, cuya logística incluía dos aviones Jumbo 747 que venían desde Japón (tramo previo de la gira de Queen) y un barco que llegaba desde Los Ángeles.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/45493/ca66b424-238a-42ce-bb96-577cc84e2a62.jpeg)
+
+
+
+
+Freddie, ídolo popular con la Federal.
+
+
+
+
+El choque entre la idiosincrasia profesional del equipo de Queen y la desprolijidad instalada de las producciones en Argentina fue notable. Los británicos llegaron con un manual de instrucciones que contenía desde frases en español hasta cómo había que tratar al equipo técnico. “Acá no se acostumbraba darles nada a los plomos, ni catering ni nada. - cuenta Coqui- Y estos cayeron y nos impusieron horarios marcados de descanso y comidas. Nosotros decíamos: ‘¿Cómo? ¿Todo eso para los plomos?’. Era pleno verano y en el libro había un ítem que era protector solar. Nosotros no entendíamos, y nos explicaron: tenemos a 40 personas trabajando, no se ponen protector solar, se ampollan el cuerpo y mañana tenemos que salir a buscar otras 40 personas y enseñarles lo que ya habíamos enseñado. Estaban diez pasos adelante”.
+
+
+
+
+La buena relación de Alfredo Capalbo con el gobierno militar hizo que las autoridades no pusieran trabas a la organización y la realización del show. “No hubo presión en contra, al revés, facilitaron más que complicaron”, dice Coqui. Jim Beach contó en el documental Days of Our Lives (2011) que él mismo negoció con los militares: “Me dijeron ‘¿Cómo puedo permitir que 50.000 jóvenes vayan a un estadio, donde no puedo controlarlos? ¿Qué pasa si alguien grita ‘Viva Perón’ en el medio del concierto de Queen y se arma una revuelta?’ Yo traté de explicarles que como las peleas de gladiadores en Roma esto era una panacea para el pueblo. Nunca habían tenido algo así antes. Y eso sería una experiencia extraordinaria”. Las complicaciones vinieron de nimiedades: Chris Lamb, parte del equipo de producción de Queen, llegó al país con los pases de la gira que tenían un dibujo de dos chicas semidesnudas, una japonesa y otra latina, comiendo una banana. La moralina militar provocó que lo pararan en la aduana y lo obligaran a tapar con un marcador los pezones de las mujeres en cada uno de los pases.
+
+
+
+
+La Queenmanía
+
+
+
+
+El grupo aterrizó en Ezeiza el 23 de febrero de 1981 y su llegada fue una revolución. Medios, fans, miembros del Gobierno y curiosos los esperaron. En los altoparlantes del aeropuerto pusieron música de la banda. Desde ahí tenían que ir a Vélez para una conferencia de prensa y cada miembro de la banda se subió a su limusina, que en realidad no era una limusina propiamente dicha. “En ese momento acá no existían las limusinas, lo más cercano que había eran los Ford Fairlane negros”, explica Coqui. La curiosidad fue que el Ford que llevaba a Freddie Mercury hizo una parada en el medio del camino para cargar nafta en una estación de servicio. “Esa fue la única vez que Jim Beach nos cagó a pedos”, recuerda Capalbo.
+
+
+
+
+Los días que siguieron desataron en el país una verdadera Queenmanía. Radio, televisión y revistas seguían a la banda por todos lados. Los fans los buscaban, y la seguridad se reforzaba por temor a un secuestro o un atentado terrorista. Así se produjeron encuentros extraños, como Freddie Mercury sacándose una foto con efectivos de la Policía Federal en la puerta del restaurante Los Años Locos (donde tuvo que ser rescatado del baño ante el acoso de un grupo de seguidores) o un desopilante diálogo televisivo entre el cantante y China Zorrilla. “Como habitualmente ocurre en todo este tipo de situaciones, parte de la prensa local lució su total falta de respeto hacia los entrevistados”, decía una crónica de la revista Pelo. Y agregó: “La mayoría de los periodistas desconocía los mínimos detalles acerca del grupo y no se habían preocupado por informarse. Algunos reporteros radiales y de diarios se acercaron al mánager, y ante su total estupor lo descerrejaron preguntas (sic) de diverso calibre, pasando a la antología algunas como estas: ¿Cuántos son los músicos de Queen? ¿Son un conjunto country? ¿Ustedes creen que habrá tumultos cuando actúen? ¿Qué saben de la música argentina?”.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/45494/7312d30d-9551-45b5-814e-82608e249c78.jpeg)
+
+
+
+
+Una tensa reunión con Viola de la que Taylor zafó.
+
+
+
+
+El Gobierno militar no quería quedar afuera de la marea. Roberto Viola iba a asumir pronto la presidencia y su hijo estaba especialmente preocupado por la relación tensa entre los militares y la juventud argentina. Por eso le sugirió juntarse con el grupo. La relación aceitada con Capalbo facilitó la gestión, y la reunión se produjo en el domicilio del represor. Roger Taylor, baterista de la banda, fue el único que decidió no participar del encuentro.
+
+
+
+
+Roberto Ruiz, entonces responsable del sector anglo de EMI Argentina, estuvo reunido con Queen en el Hotel Sheraton y les entregó dos discos de oro. “Fue un encuentro amable -recuerda en diálogo con La Agenda-. El más abierto era Brian May, que además hablaba aceptable castellano. Freddie estaba interesado en preguntar cosas sobre la ciudad, el público y lo que podía esperar del ambiente en las presentaciones. Roger Taylor conversaba menos. John Deacon casi no hablaba, pero era muy atento. El único difícil fue Peter Morgan, quien era pareja de Freddie en ese momento. Requería atención constante, aunque era malhumorado y exigía que le informara al detalle cuestiones de la gira”. La presencia de Morgan tuvo otra anécdota, digamos, de corazón. Fisicoculturista y ganador del concurso Mr. Reino Unido, Morgan mantenía una tórrida relación con el cantante y había llegado a la Argentina para acompañarlo durante la gira. Sin embargo, en Mar del Plata Mercury lo vio con otro hombre y después de una pelea feroz lo echó del hotel y de la gira.
+
+
+
+
+Los primeros dos shows en Vélez, el 27 y el 28 de febrero de 1981, no fueron sold out. Entonces a Alfredo Capalbo se le ocurrió negociar los derechos de televisación. Así, la segunda noche Canal 9 transmitió un falso vivo con imágenes del primer show. Aquellas imágenes, sumadas al bombo mediático, hicieron que la última fecha agendada para el 8 de marzo explotara de venta y rebalsara de colados. ”Cuando la gente vio lo que era el show, no podía creerlo y no se lo podía perder. Fue una locura”, señala Coqui.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/45495/0669a43e-e36b-47ab-bdb8-b9d672022fce.jpeg)
+
+
+
+
+Momento para un hit a pedido del Diez.
+
+
+
+
+Los campeones del mundo
+
+
+
+
+Previo al último show del 8 de marzo, Roberto Petracca, entonces presidente de Vélez, organizó en su quinta de Parque Leloir un asado en el que participaron los miembros de Queen, la prensa y amigos del medio. Ahí Juan Manuel Cibeira y Daniel Ripoll, directores de la revista Pelo, hablaron con Freddie Mercury y él les adelantó que tenía pensado subir al escenario con la camiseta de la Selección Argentina y que iba a invitar a Diego Maradona. “En ese momento no cabía la posibilidad de maridaje entre el fútbol y rock, era antagónico -contó Cibeira al podcast Puerto Bulsara- Sutilmente le dijimos que no nos parecía lo más adecuado, que iba a generar que la gente se pusiera en contra. Él dijo que era completamente normal en su país. Le insistimos y en un momento nos sacó de ahí. Por supuesto que después salió con la camiseta de la Selección y la gente se le tiraba encima. Le pifiamos mal, no la vimos ni ahí”.
+
+
+
+
+Usualmente se cree que la camiseta que usó Freddie fue un intercambio que hizo con Maradona, pero la realidad es que se la entregaron los ejecutivos de EMI. “Luego del encuentro en el Sheraton, organizamos el plan para acompañarlos a la gira y se me ocurrió, porque habíamos hablado brevemente de fútbol, que sería una buena idea regalarle a Mercury una camiseta de la selección para que usara en el escenario. Era solo una posibilidad”, recuerda Roberto Ruíz. “Fui personalmente a comprarla –agrega–, en una de las sucursales de la entonces célebre Casa Testai, que se dedicaba a ropa deportiva, ubicada en Avenida Rivadavia entre las calles Pumacahua y Carabobo, barrio de Flores. Me acompañó mi hijo Lisandro, entonces de 15 años. Al día siguiente se la entregué a nuestro empleado para que la dejara sobre la cama de su habitación como regalo de EMI”.
+
+
+
+
+El interés por Maradona había empezado en 1980, cuando Jim Beach vino al país para la preproducción de los shows. Durante su visita le pidió a Capalbo ir al estadio de Argentinos Juniors en La Paternal porque quería ver jugar al “Pelusa”. Apenas unos meses antes, en Wembley, el crack había hecho una famosa jugada en la que derribó a cinco británicos, pero no terminó en gol. Para principios de 1981, Maradona había saltado a Boca y estaba en aras de convertirse en un ídolo popular. Los miembros de Queen lo conocieron personalmente en una fiesta en Castelar y lo invitaron a subirse al escenario para el último show. Ese 8 de marzo, Maradona apareció en escena y dijo: “Le quiero agradecer a Freddie y a los Queen por hacerme tan feliz. Y ahora, ¡’Otro muerde el polvo’!”. El público, sacado, coreaba “Maradooo Maradooo”. Un corolario perfecto para un evento que ya había alcanzado un estatus nacional y popular.
+
+
+

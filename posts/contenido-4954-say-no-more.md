@@ -1,0 +1,106 @@
+# Say no more
+
+**Menem no nos hizo así, sino que nos dio un espejo, de colores, para que pudiéramos reflejarnos. El menemismo como un state of mind.**
+
+15 de febrero de 2021 - OBITUARIO
+
+_por PABLO S. ALONSO_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4954-say-no-more
+
+
+
+Hay que remontarse a los mandatos separados de Julio Argentino Roca para hallar un presidente que haya durado más en el poder, pero, a diferencia de este, Menem fue elegido dos veces por el voto popular; tres si se cuenta una cifra magra para alcanzar en primera vuelta un tercer gobierno en 2003. Su segundo período fue conquistado en 1995 tras hacer exactamente lo contrario de lo prometido en 1988 -la interna en que venció al entonces gobernador de Buenos Aires, Antonio Cafiero- y en 1989, cuando un golpe de mercado a Raúl Alfonsín lo puso en la Casa Rosada antes de lo previsto. En 2003, aún con la mitad de votos del ‘95, la cosa fue más esquizoide, ya que había sido votado para volver a aplicar un modelo que dos años antes se había terminado de revelar como fatal.
+
+
+
+
+Menem hizo -o en el mejor de los casos para su legado, fue acusado- de algunas de las peores cosas que un ser humano puede cometer tanto en la esfera pública como personal. Rifar el patrimonio del país, desmantelando el Estado y el aparato productivo hasta un punto que ni siquiera la dictadura de 1976 a 1983 había alcanzado, agravando la pobreza estructural que ningún gobierno posterior pudo, supo o quiso corregir. Celebrar la impunidad mediante las tandas de indultos. Encubrir dos atentados terroristas de la misma forma en que no investigó el posible asesinato de su primogénito. Volar una fábrica militar para borrar las pruebas de tráfico de armas, causando siete muertos y trescientos heridos.
+
+
+
+
+Sostener un matrimonio por conveniencia electoral para luego echar a su esposa de la Quinta de Olivos mediante la fuerza militar (ex esposa que, por cierto, tomaba su mano en el momento de su muerte), o casarse por segunda vez por los mismos motivos, trayendo en el camino un niño al mundo. Reconocer en los medios a su hijo ilegítimo sólo cuando la dotada anatomía íntima de este se hizo conocida en Gran Hermano. Al lado de todo esto, haberle mirado el bretel a Madonna es una nota de color.
+
+
+
+
+Salvo una domiciliaria en la casa quinta de su incondicional Armando Gostanián durante parte del gobierno de Fernando de la Rúa, medida que tuvo mucho de cortina de humo, Menem murió sin ir a la cárcel por todas las causas que acumulaba. Ya en el ocaso, su residencia en el Senado fue la de un congresista que cambiaba votos por tranquilidad judicial.
+
+
+
+
+Es cierto, Menem era todo un personaje. Literario, incluso. Ávido lector de Sócrates y de las novelas de Borges, sus boutades y faux pas vienen haciendo las delicias de los editores de archivo desde 1989. El Menem lo hizo de su yingle-despedida presidencial de 1999, o el ¡Vamos, Menem! que precedió a la segunda vuelta de 2003 que terminaría abandonando, son piezas de consumo irónico, y no está mal que así lo sean. Su “Gud blis iu, mister president”, dicho ante George H.W. Bush sigue siendo una hilarante muestra de obsecuencia. A diferencia de Alfonsín, no era un buen orador sobre un púlpito (como tampoco lo fueron la mayoría de sus sucesores); sin embargo, su carisma y desparpajo eran innegables.
+
+
+
+
+En su pragmatismo grouchiano, donde la necesidad política lo hizo cambiar la religión musulmana por el cristianismo, como si la Constitución hubiese sido redactada por Torquemada, en semanas pasaba de rechazar la visita de los Rolling Stones y arengar la música de tierra adentro, a recibirlos en la Quinta de Olivos, una vez convencido de cómo podía capitalizarlo políticamente. Las fotos del encuentro siguen siendo graciosas, como lo eran sus apariciones deportivas, especialmente su partido con la Selección Argentina ni bien asumió en 1989. El detrás de escena incluía un toma y daca entre el Presidente y los medios con los que hacía negocios.
+
+
+
+
+Por ejemplo, Editorial Atlántida, a la que Menem le otorgó la concesión de Canal 11 (donde el “Tiempo Nuevo” de Bernardo Neustadt funcionaba como house organ catódico, al punto en que en una emisión Menem reemplazaría al conductor), practicaba una genuflexión que iba desde la revista Gente -que lo presentaba, según la ocasión, como un semental o un “transgresor”- a El Gráfico, que cubrió su actividad durante Italia ‘90 y cerró ese año respaldando elípticamente sus indultos. Estos incluyeron tanto a las cúpulas militares de la Dictadura y a Martínez de Hoz como a montoneros y nombres de la derecha peronista.
+
+
+
+
+Menem declaró varias veces, incluyendo en su cierre de campaña de 1995 en Videomatch, que había firmado los indultos para “pacificar el país”, de la misma forma en que antes había visitado al mayor villano del antiperonismo, el almirante Isaac Rojas. Qué mejor ejemplo para poner la otra mejilla, sostenía, que él mismo, conocedor del encarcelamiento por sus ideas políticas.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/45430/45260e9f-3d16-4c15-88fb-cb6acda68efb.jpeg)
+
+
+
+
+Menem, Charly y el brazalete, hito del sinsentido, o pináculo del arte performático.
+
+
+
+
+Otra forma de verlo es que, así como había aceptado dinero tanto de Montoneros –varios de los cuales, ya legales, se reciclaron dentro de su gobierno- como de Medio Oriente para su campaña presidencial, Menem se abrazó con quienes hiciera falta, se sacó todas las fotos necesarias, y dijo todo lo que tenía que decir para alcanzar el poder.
+
+
+
+
+Qué hacer una vez logrado ese objetivo parecía una cuestión casi secundaria. De hecho, algo que omiten tanto los que siempre fueron apólogos de Menem como los niños libertarios que son nostálgicos de algo que no vivieron es que, hasta 1991, su gobierno, más allá de sus señas personales, no daba pie con bola y sufría la misma hiperinflación que él había azuzado en el tramo final del gobierno de Alfonsín.
+
+
+
+
+Fue en ese año en que su cuarto ministro de economía, el ex canciller Domingo Cavallo, parió una criatura llamada convertibilidad. Una solución temporal basada en una ilusión óptica y una catástrofe a largo plazo. Pero la población desoyó el canto de sirena y lo reeligió en 1995 con casi el cincuenta por ciento de los votos.
+
+
+
+
+Porque, después de todo, pasada la estafa de su primera campaña, Menem -político vivo si los hubo- hizo lo suyo para una sociedad que no se hizo cargo de sus elecciones y lo terminó construyendo como chivo expiatorio, como si durante 1989-1999 Argentina hubiese sido sometida por una civilización extraterrestre procedente de Alfa Anillaco. De la misma forma, sectores de la sociedad civil se habían desentendido de la dictadura que les hizo el trabajo sucio; trabajo que Menem continuó por otros medios y que el gobierno de Cambiemos retomó sin el andamiaje peronista.
+
+
+
+
+Pero señalar al “menemismo” muchas veces sirve para desviar la atención de los ciudadanos que eligieron sus gratificaciones materiales o de los gobernadores peronistas que, en actos al lado suyo, lo señalaban como el mejor presidente argentino desde Perón: el menemismo no fue una aberración del peronismo sino una de sus muchas mutaciones, cuando no máscaras.
+
+
+
+
+La contradicción de esos años es tan grande que, para dar un par de ejemplos, los mismos músicos que llenaban sus discos de letras antimenemistas, iban a grabar o mezclar sus discos a Estados Unidos o Inglaterra gracias a los beneficios del dólar barato. Y Menem le terminó tomando el tiempo a los que hacían “periodismo con humor” (sic) y enviaban noteros al Oscar en plena paridad cambiaria: con sólo atender el teléfono de Olivos un martes a la noche, dejó a Mario Pergolini como el nene que acaba de ser descubierto haciendo una travesura. Bajo el romance Menem-Medios, hasta Carlos Ruckauf podía ser un dirigente simpático e invitar a Andy Kustnezoff al balcón de la Casa de Gobierno.
+
+
+
+
+Más incómodo pero más honesto es pensar al menemismo como un state of mind: escribir esta expresión en inglés podría considerarse en sí mismo un gesto menemista. (Hoy, con todos los locales gastronómicos ofreciendo delivery y take away no parece tan descabellada aquella vieja idea de Jorge Asís -un menemista de la primera hora y hasta el fin- de prohibir las palabras en inglés en la cartelería de los locales comerciales.)
+
+
+
+
+El menemismo, entonces, como un lugar que siempre estuvo y siempre estará, donde confluyen el aspiracionismo, la frivolidad, el mal gusto, la plebeyización de las clases altas, las ganas de ser “como el Primer Mundo” (la sala de conferencias de la Casa Rosada, con el cartel copiando al de la Casa Blanca) y el sálvese quien pueda. Todo mechado con Fukuyama: la Historia había terminado y esto era su conclusión natural. Menem no nos hizo así, sino que nos dio un espejo -de colores- para que pudiéramos reflejarnos.
+
+
+
+
+En 1992, Canal 9 estrenó en Argentina Twin Peaks, una serie que -aunque en rigor anterior- tenía ecos oníricos del crimen de María Soledad Morales. La raíz del mal en ese pueblo de ficción era un ente que poseía a distintas personas. De manera análoga, se podría pensar en Carlos Saúl Menem como una de las tantas encarnaciones del lado oscuro y a la vez banal de nuestro inconsciente colectivo.
+
+
+

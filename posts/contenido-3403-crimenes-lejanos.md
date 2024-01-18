@@ -1,0 +1,91 @@
+# Crímenes lejanos
+
+**Una extravagante joya de Miranda July, una serie documental con personajes que podrían ser de ficción y el regreso a los escenarios del gran Palo Pandolfo.**
+
+21 de diciembre de 2020 - COSAS QUE ESTUVE MIRANDO
+
+_por DAMIÁN DAMORE_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/3403-crimenes-lejanos
+
+
+
+Kajillionaire ,de Miranda July, 2020
+
+
+
+
+Seleccionada en la Quincena de Realizadores de Cannes, la nueva película de la directora de Me and You and Everyone We Know, protagonizada por Evan Rachel Wood, Debra Winger, Richard Jenkins y Gina Rodríguez, cuenta la historia de una familia que se dedica a las estafas más curiosas. Es como si la cineasta de El futuro hubiera examinado detenidamente la japonesa Shoplifting (Somos una familia, de Hirokazu Kooreda, 2018), y comprendiera la conmoción que significa vivir la vida robando en pequeñas escalas y el enorme agujero que produce en el corazón vivir de estafa en estafa.
+
+
+
+
+Robert (Richard Jenkins), que tiene cabeza para el tiempo y las cifras, pero la llena de conspiraciones y fobias; Theresa (Debra Winger), que es una especie de sabia chiflada y le transmite a su hija que “los ricos pueden ser muy pobres” y la joven Old Dolio, la hija, ¡¿y ese nombre?! (Evan Rachel Wood), componen una micro empresa de estafas, con sede en una oficina barata donde viven, una especie de fábrica de jabón que derrama montañas de espuma y por la que deben varios meses de alquiler. Los tres son hábiles para evitar las cámaras de los locales, desalmados al elegir sus marcas y despiadados en su regateo cuando intentan vender lo que han obtenido por medios ilícitos. Pero pese a toda esa iluminación que tienen para la estafa están dañados, apagados de alguna manera.
+
+
+
+
+La familia entra obsesivamente en concursos en línea para vender los premios o hacen perder las valijas en un vuelo para cobrar el jugoso seguro, entre una larga lista de engañifas craneadas metódicamente. Los tres caminan por las calles de Los Ángeles, los vemos en su espacio de carroñeros y ladrones, y ahora que son mayores, los padres se apoyan en la hija para que sea la mente maestra y ejecute sus pequeños delitos y estafas. Pero Old Dolio no es igual a ellos, ella tiene sensibilidad pero no sabe cómo separar los tantos. Una nueva conocida, la habladora Melanie (Gina Rodríguez), rompe el esquema y se acerca a ella. Sutilmente, Miranda July, la directora, va hilando una relación ambigua entre ambas para cambiar el rumbo de esta estrambótica joya del cine indie.
+
+
+
+
+[![](https://img.youtube.com/vi/xiMPCevu8Wk/0.jpg)](https://www.youtube.com/watch?v=xiMPCevu8Wk)
+
+
+
+
+Carmel: ¿Quién mató a María Marta? (Netflix, 2020)
+
+
+
+
+Disponible en Netflix, Carmel: ¿Quién mató a María Marta? repasa los hechos ocurridos a partir del 27 de octubre de 2002, fecha en la que fue hallado el cuerpo de la socióloga María Marta García Belsunce, semihundido en la bañera de su casa ubicada en el barrio privado El Carmel, del partido de Pilar. Tenía cinco disparos en la cabeza.
+
+
+
+
+La serie juega su propia carrera por formar un género, tratando de desactivar la bomba retórica del marido, Carlos Carrascosa y los hermanos y medios hermanos de la víctima (los García Belsunce y los Hurtig). Carrascosa fue primero condenado por presunto autor del crimen y el resto por encubridores. Luego todos fueron absueltos.
+
+
+
+
+De sólo cuatro capítulos, la serie aporta una cercanía al crimen que realza nuestra atención. En general estamos acostumbrados a ver crímenes lejanos en ficciones extranjeras, no tanto en casos locales. ¿Fueron realmente encubridores los familiares o quisieron ocultarlo sin querer queriendo? ¿Son asesinos o simplemente oligofrénicos? Cuando Horacio García Belsunce, Irene o John Hurtig, tratan de explicar cada una de sus acciones aquel día hablan con una inocencia tal que parecen personajes del Chavo. Trastabillan con sus propios argumentos y encuentran en su lenguaje vías de escape irrisorias.
+
+
+
+
+Plantado el marco acerca del misterio surge un personaje fascinante, el del fiscal Diego Molina Pico. Estrella mediática del caso, Molina Pico habla con el tono de un bon-vivant que da cátedra de cómo partir la noche al medio. Expuesta la familia, la serie también deja un hueco, la poca atención que recibe Nicolás Pachelo, el sospechoso que pudo matar a María Marta según algunos testigos. La serie, como es habitual ahora, tuvo muchísimo rebote en las redes sociales. La cuenta de @fernandocasullo publicó un hilo titulado Los García Belsunce as Games Of Thrones, con registros paralelos entre la serie que se desarrolla en una fortaleza medieval y la familia argentina, similitudes que condensan el discurrir de una implosión lenta e inexorable.
+
+
+
+
+[![](https://img.youtube.com/vi/k07_DrISizQ/0.jpg)](https://www.youtube.com/watch?v=k07_DrISizQ)
+
+
+
+
+Palo Pandolfo, en el Centro Cultural Mugica
+
+
+
+
+Es uno de los máximos intérpretes de la música popular argentina y su regreso a los escenarios siempre despierta expectativas. Pero este regreso no es un hecho cualquiera por distintos motivos. Luego de dos años de El Vuelo del Dragón, un proyecto que reunió 30 años de canciones esenciales, Palo adelantó nuevo material discográfico. Fiel a su estilo de transformación constante, “El Alma Partida” fue el estreno que nos presentó a las treinta personas que agotamos las plazas ofrecidas y que, dispersas unas de otras, presenciamos una hora y media de show. “El alma…” fue producida por Juan Belvis, quien lo acompaño en el escenario el día sábado (guitarra y loopera), y Juan Giménez Kuj. Fue grabada en el estudio Los Elefantes, en octubre de 2020.
+
+
+
+
+[![](https://img.youtube.com/vi/2lcVpHnjC2s/0.jpg)](https://www.youtube.com/watch?v=2lcVpHnjC2s)
+
+
+
+
+Palo fue uno de los primeros músicos que se asomó a esta experiencia impuesta por la nueva normalidad a raíz de la pandemia. Allá por abril hizo un show por streaming y este fue el primero que hizo con público. Fue catártico para el músico que se mostró emocionado y con ganas de compartirlo. Hay algo en la presencia que pone de relieve la realidad. Su mención a Diego Maradona a Horacio Fontova, Gabo Ferro y Tom Lupo fue como un cachetazo frío en la mejilla. “Hoy me di cuenta que la verdadera iluminación es la muerte”, exudó espiritualidad.
+
+
+
+
+Ofreció un repertorio de distintas etapas de su carrera. Con sus guitarras y su bombo de pie repasó canciones de Don Cornelio y la Zona (la chirriante “Cabeza de platino” o el clásico inoxidable “Ella vendrá”), Los Visitantes (“Sangre”, “Risa roja” y “Estaré” para un cierre acompañado de palmas y gritos), y temas de La Hermandad (“El leñador”). También las hubo de su etapa solista, como “Oficio del cantor” -con ecos del Radiohead de Ok Computer y la nova MPB -, perteneciente a su tercer álbum de estudio, Ritual criollo. “Esto que estoy haciendo ahora es como un salto desde esa etapa, en 2007”, ubica artísticamente su nuevo trabajo.
+
+
+

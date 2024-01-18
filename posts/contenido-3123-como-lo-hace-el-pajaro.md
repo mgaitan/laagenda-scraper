@@ -1,0 +1,121 @@
+# Como lo hace el pájaro
+
+**“No se comprende la música, se la escucha. Escúchame entonces con tu cuerpo entero”.**
+
+12 de diciembre de 2020 - SÁBADOS DE SÚPER FICCIÓN
+
+_por LEILA SUCARI _
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/3123-como-lo-hace-el-pajaro
+
+
+
+Es con una alegría tan profunda. Con un tal aleluya. Aleluya, grito yo, aleluya que se funde con el más oscuro aullido humano de dolor por la separación, pero que también es grito de felicidad diabólica. Porque ya nadie me atrapa. Sigo con capacidad de razonar -ya estudié matemática que es la locura del pensamiento- pero ahora quiero el plasma, quiero alimentarme directamente de la placenta. Tengo un poco de miedo. Miedo todavía de entregarme porque el próximo instante es lo desconocido. ¿El próximo instante está hecho por mí? ¿O se hace solo? Lo hacemos juntos con la respiración. Y con una desenvoltura de torero en la arena.
+
+
+
+
+Yo te digo que estoy intentando captar la cuarta dimensión del instante-ya, que de tan fugitivo ya no es más porque ahora se convirtió en un nuevo instante-ya que también ya no es más. Cada cosa tiene un instante en que es. Quiero apoderarme del es de la cosa. Esos instantes que se suceden en el aire que respiro, en fuegos de artificio que estallan mudos en el espacio. Quiero poseer los átomos del tiempo. Y quiero capturar el presente que por su propia naturaleza me es prohibido. El presente me huye, la actualidad me escapa, la actualidad soy yo siempre en el ahora. Solo en el acto del amor –por la nítida abstracción de estrella de lo que siente- se capta la incógnita del instante, que es duramente cristalina y vibrante en el aire, y la vida es ese instante incontable, mayor que el acontecimiento en sí. En el amor, la joya impersonal del instante relumbra en el aire, gloria extraña del cuerpo, materia sensibilizada por el escalofrío de los instantes; y lo que se siente es al mismo tiempo inmaterial y tan objetivo que sucede como fuera del cuerpo, centelleante en lo alto, alegría, alegría que es materia del tiempo y es por excelencia el instante. Y en el instante está él es de sí mismo. Quiero captar mi es. Y canto un aleluya al aire así como lo hace el pájaro. Y mi canto no es de nadie. Pero no hay pasión sufrida en el dolor y en el amor a la que no le siga un aleluya.
+
+
+
+
+¿Mi tema es el instante? Mi tema de vida. Busco estar a la altura, me divido miles de veces en tantas veces como los instantes que se suceden, soy fragmentaria y precarios son los momentos, solo me comprometo con la vida que nace con el tiempo y que con él crece. Solo en el tiempo hay espacio para mí.
+
+
+
+
+Te escribo toda entera y siento sabor en ser y el sabor-a-tí es abstracto como el instante. También es con todo el cuerpo que pinto mis cuadros y en la tela fijo lo incorpóreo, cuerpo a cuerpo conmigo misma. No se comprende la música, se la escucha. Escúchame entonces con tu cuerpo entero. Cuando llegues a leerme preguntarás por qué no me limito a la pintura y a mis exposiciones, ya que escribo tosco y sin orden. Es que ahora siento necesidad de palabras; y para mí es nuevo lo que escribo porque mi verdadera palabra hasta ahora fue intocada. La palabra es mi cuarta dimensión.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/34839/fb78de5d-ef55-4fae-83ca-d80d4660bafb.png)
+
+
+
+
+Hoy terminé la pintura de la que te hablé: líneas redondas que se entrelazan en trazos finos y negros, y tú, que tienes el hábito de querer saber por qué –y el por qué no me interesa, la causa es un tema del pasado- ¿preguntarás por qué los trazos negros y finos? Es debido al mismo secreto que me hace escribir ahora como si fuera a ti, escribo redondo, confuso y flojo, pero a veces frío como los instantes frescos, agua del riacho que tiembla siempre por sí misma. ¿Lo que pinté en esa tela es pasible de ser fraseado en palabras? Tanto como la palabra muda puede estar implícita en el sonido musical.
+
+
+
+
+Veo que nunca te dije cómo escucho música; apoyo suavemente la mano en el tocadiscos y la mano vibra expandiendo ondas por todo el cuerpo. Así escucho la electricidad de la vibración, sustrato último en el dominio de la realidad, y el mundo tiembla en mis manos.
+
+
+
+
+Y entonces percibo que quiero para mí el sustrato vibrante de la palabra repetida como en el canto gregoriano. Soy consciente de que todo lo que sé no lo puedo decir, solo sé pintando o pronunciando sílabas ciegas de sentido. Y si aquí tengo que usar palabras, ellas tienen que tener un sentido casi únicamente corpóreo, estoy en lucha con la vibración última. Para decirte mi sustrato hago una frase de palabras hechas solo de instantes-ya. Lee entonces mi invento de pura vibración sin otro significado más que el de cada sibilante sílaba, lee lo que sigue ahora: “con el correr de los siglos perdí el secreto de Egipto, cuando me movía en longitud, latitud y altitud con la acción energética de los electrones, protones, neutrones, en lo fascinante que es la palabra y su sombra”. Lo que te escribí es un diseño electrónico y no tiene pasado o futuro, es simplemente ya.
+
+
+
+
+También tengo que escribirte porque tu sitio es la de las palabras discursivas y no lo directo de mi pintura. Sé que mis frases son primarias, escribo con demasiado amor por ellas y ese amor suple las faltas, pero demasiado amor perjudica el trabajo. Esto no es un libro porque así no se escribe. ¿Lo que escribo es un solo clímax? Mis días son un solo clímax. Vivo al borde.
+
+
+
+
+Al escribir no puedo fabricar como en la pintura, cuando fabrico artesanalmente un color. Pero estoy intentando escribirte con todo el cuerpo, enviando una flecha que se clava en el punto blando y neurálgico de la palabra. Mi cuerpo incógnito te dice: dinosaurios, ictiosauros y plesiosauros, con sentido solo auditivo, sin que por ello se conviertan en paja seca, sino húmeda. No pinto ideas, pinto lo más inalcanzable “para siempre”. O “para nunca”, es lo mismo. Antes, pinto pintura. Y antes de eso te escribo dura escritura. Quiero poder tomar las palabras con las manos. ¿La palabra es objeto? Y a los instantes yo les arrojo el jugo de una fruta. Tengo que destituirme para alcanzar el centro y la cimiente de la vida. El instante es simiente viva.
+
+
+
+
+La armonía secreta de la desarmonía: quiero no lo está hecho sino lo que tortuosamente todavía se está haciendo. Mis desequilibradas palabras son el lujo de mi silencio. Escribo por acrobáticas y aéreas piruetas, escribo por querer hablar profundamente. Aunque escribir solo me esté dando la gran medida del silencio.
+
+
+
+
+Y si yo digo “yo” es porque no me atrevo a decir “tu” o “nosotros” o “una persona”. Estoy obligada a la humildad de personalizarme empequeñeciéndome pero soy el es-tu.
+
+
+
+
+Sí, quiero la palabra última que también es tan primera que ya se confunde con la parte intangible de lo real. Todavía tengo miedo de alejarme de la lógica porque caigo en lo instintivo y lo directo y en el futuro: la invención de hoy es mi único medio de fundar el futuro. Desde ya es futuro, y cualquier hora es la hora señalada. ¿Qué mal tiene sin embargo apartarme de la lógica? Estoy luchando con la materia-primera. Estoy detrás de lo que está detrás del pensamiento. Inútil querer clasificarme: yo simplemente huyo sin dejarme, el género no me agarra más. Estoy en un estado muy nuevo y verdadero, curioso de sí mismo, tan atrayente y personal que puedo pintarlo o escribirlo. Se parece a momentos que tuve contigo, cuando te amaba, más allá de los cuales no pude ir porque fui al fondo de los momentos. Es un estado de contacto con la energía circundante, me estremezco. Una especie de loca, loca armonía. Sé que mi mirada debe ser la de una persona primitiva que se entrega toda al mundo, primitiva como los dioses que solo admiten con grandeza el bien y el mal y no quieren conocer el bien enredado como cabellos en el mal, mal que es el bien.
+
+
+
+
+Fijo instantes súbitos que traen en sí su propia muerte y otros nacen. Fijo los instantes de metamorfosis y es de una terrible belleza su secuencia y concordancia.
+
+
+
+
+Ahora está amaneciendo y la aurora es de una neblina blanca en las arenas de la playa. Todo es mío entonces. Apenas pruebo algún alimento, no quiero despertarme más allá del despertar del día. Voy creciendo con el día que al crecer me mata cierta vaga esperanza y me obliga a mirar cara a cara al duro sol. La ventisca sopla y desordena mis papeles. Escucho ese viento de gritos, estertor de pájaro abierto en un vuelo cruzado. Y yo aquí me obligo a la severidad de un lenguaje tenso, me obligo a la desnudez de un esqueleto blanco que está libre de humores. Pero el esqueleto es libre de vida y mientras vivo me estremezco toda. No conseguiré la desnudez final. Y, según parece, todavía no la quiero.
+
+
+
+
+Esta es la vida vista por la vida. Puedo no tener sentido pero es la misma falta de sentido que tiene la vena que palpita.
+
+
+
+
+Quiero escribirte como quien aprende. Fotografío cada instante. Profundizo en las palabras como si pintara más que un objeto su sombra. No quiero preguntar por qué, se puede preguntar siempre por qué y continuar siempre sin respuesta. ¿Conseguiré entregarme al expectante silencio que le sigue a una pregunta sin respuesta? Aunque adivine que en algún lugar o en algún tiempo existe la gran respuesta para mí.
+
+
+
+
+Y después sabré como pintar y escribir, después de la extraña pero íntima respuesta. Escúchame, escucha el silencio. Lo que te digo nunca es lo que te digo sino otra cosa. Capta esa cosa que se me escapa a pesar de que vivo de ella y estoy junto a la brillante oscuridad. Un instante me lleva insensiblemente a otro y el tema atemático se va desarrollando sin plan pero geométrico como las figuras sucesivas de un caleidoscopio.
+
+
+
+
+Entro lentamente en mi dádiva a mí misma, esplendor dilacerado por el cantar último que parece ser el primero. Entro lentamente en la escritura así como ya entré en la pintura. Es un mundo enmarañado de lianas, sílabas, madreselvas, colores y palabras. Umbral de entrada de ancestral caverna que es el útero del mundo y de allí naceré.
+
+
+
+
+Y si muchas veces pinto grutas es que ellas son mi sumergirme en la tierra, oscuras aunque nimbadas de claridad, y yo, sangre de la naturaleza. Grutas extravagantes y peligrosas, talismán de la Tierra, donde se unen estalactitas, fósiles y piedras, y donde los animales, que son locos por su propia naturaleza maléfica, buscan refugio. Las grutas son mi infierno. Gruta siempre soñadora con sus neblinas, ¿recuerdo o nostalgia? espantosa, espantosa, esotérica, verdosa por el limo del tiempo. Dentro de la caverna oscura fulguran colgadas las ratas con alas en forma de cruz de los murciélagos. Veo arañas peludas y negras. Ratones y ratas corren espantados por el suelo y las paredes. Entre las piedras, el escorpión. Cangrejos, iguales a ellos mismos desde la prehistoria, a través de muertes y nacimientos, parecerían bestias amenazantes si fueran del tamaño de un hombre. Cucarachas viejas se arrastran en la penumbra. Y todo eso soy yo. Todo está cargado de sueño cuando pinto una gruta o te escribo sobre ella. Desde el exterior viene un tropel de decenas de caballos sueltos, pateando con cascos secos las tinieblas, y de la fricción de los cascos el júbilo se libera en centellas: heme aquí, yo y la gruta, en el tiempo que nos pudrirá.
+
+
+
+
+Quiero poner en palabras pero sin descripción la existencia de la gruta que hace algún tiempo pinté, y no sé cómo. Solo repitiendo su dulce horror, caverna de terror y de maravillas, lugar de almas afligidas, invierno e infierno, sustrato imprevisible del mal que está dentro de una tierra que no es fértil. Llamo a la gruta por su nombre y ella comienza a vivir con su miasma. Entonces tengo miedo de mí, que sé pintar el horror, yo, animal de cavernas resonantes que soy, y me ahogo porque soy palabra y también soy eco.
+
+
+
+
+Pero el instante-ya es una luciérnaga que se enciende y se apaga, se enciende y se apaga. El presente es el instante en que la rueda del automóvil a alta velocidad toca brevemente el piso. Y la parte de la rueda que todavía no tocó, tocará en una inmediatez que absorbe el instante presente y lo convierte en pasado. Yo, viva y relampagueante como los instantes, me enciendo y me apago, me enciendo y me apago, me enciendo y me apago. Solo que aquello que capto en mí tiene, cuando está siendo ahora transpuesto en escritura, la desesperación de las palabras que ocupan más instantes que un vistazo. Más que instante, quiero que sea flujo.
+
+
+

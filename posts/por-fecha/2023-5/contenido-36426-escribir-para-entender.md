@@ -1,0 +1,1 @@
+../../contenido-36426-escribir-para-entender.md

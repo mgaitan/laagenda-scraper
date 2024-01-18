@@ -1,0 +1,56 @@
+# Otra vuelta de tuerca
+
+**En pleno Black Lives Matter, una relectura del clásico Matar a un ruiseñor, la obra de Harper Lee, a sesenta años de su publicación.**
+
+22 de marzo de 2021 - ANIVERSARIO
+
+_por INÉS MOGUILLANES_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4472-otra-vuelta-de-tuerca
+
+
+
+**la obra de Harper Lee, a sesenta años de su publicación.**
+
+
+
+
+En su aniversario número sesenta, resulta casi inevitable no abordar a la reconocida novela de Harper Lee (1926-2016), ganadora de un premio Pulitzer, en relación a dos sucesos recientes vinculados entre sí que recorrieron el mundo. Por un lado, las manifestaciones que rápidamente se multiplicaron a lo largo y ancho de Estados Unidos (y también en ciudades de otros países) para condenar el racismo y pedir justicia por George Floyd, un afroamericano asesinado en manos de un policía blanco en la ciudad de Mineápolis a fines de mayo pasado. Y por otro lado, la polémica que suscitó la resolución de los ejecutivos de HBO Max de retirar de su catálogo la película Lo que el viento se llevó por considerarla racista (de lo que finalmente se retractaron aunque decidieron agregarle a la cinta una introducción donde se advierta que el film de Victor Fleming de 1939 “niega los horrores de la esclavitud”).
+
+
+
+
+Es que comúnmente Matar a un ruiseñor se alza como la obra por excelencia en torno al tema de la desigualdad racial estadounidense. “Si bien fue publicado en 1960, continúa apareciendo en el canon de lecturas de la secundaria pública en EE.UU. Su recepción es tan extendida que en numerosas encuestas, compiladas en un artículo de la Smithsonian Magazine, la gente nombró a la novela como el segundo libro más influyente en sus vidas, después de la Biblia. El New York Times estimó que el libro vende un millón de ejemplares por año”, precisa Gabriel Matelo, investigador y profesor de la cátedra de Literatura Norteamericana en la Universidad Nacional de La Plata sobre la obra capital de Lee, cuya exitosa versión cinematográfica unos años después no hizo más que acrecentar su popularidad.
+
+
+
+
+Narrada desde el punto de vista de una niña llamada Scout, la historia transcurre en un pueblo ficticio del estado de Alabama en la década del treinta durante la Gran Depresión y se centra en los intentos de su padre, el abogado Atticus Finch, por demostrar la inocencia de Tom Robinson, un hombre negro acusado de violar a una muchacha blanca. A través de las vivencias de Scout, acompañada de su hermano mayor Jem y el compañero de travesuras de ambos, Dill, los lectores son testigos del juicio contra Robinson y de su finalmente injusta condena pese a los esfuerzos de Atticus. Varios elementos remiten a la biografía de Lee: al igual que su alter ego Scout, era oriunda de Alabama, tenía un hermano cuatro años mayor y a su padre, un abogado penalista, le había tocado defender a acusados afroestadounidenses. Asimismo, es conocida la relación de amistad desde la niñez que unía a la autora con Truman Capote, quien se suele afirmar fue la inspiración para el personaje de Dill.
+
+
+
+
+Así como los puntos de contacto entre la vida de la escritora y la novela son visibles, no ocurre lo mismo en lo que respecta al contexto histórico que retrata y su verosímil. “La gente negra en la novela es representada en su mayoría como personas contentas que incluso tienen un ‘cementerio feliz’, de modo similar a los esclavos felices de Lo que el viento se llevó, quienes llegan del campo, despreocupados y entre risas”, observa Matelo. “Acorde a los documentos históricos, el terror omnipresente que los negros experimentaban en la década del treinta en Alabama, nunca se muestra en la novela en su verdadera dimensión y hace pensar al lector que la violencia contra ellos era algo esporádico en lugar de un sistema institucionalizado de opresión, y que ocurría solo en manos de pobres intolerantes e ignorantes”, añade el estudioso. Y concluye que en aquel terror se encuentra la razón por la cual el personaje de Robinson permanece pasivo ante la injusticia cometida contra él. “El lector, llevado a recordar que Tom es tan inofensivo como un ruiseñor, debe ver esa pasividad como signo de bondad. Pero, viviendo en Alabama en la década del treinta, esa contención, más que una indicación de su personalidad, era el proceder obligado para intentar sobrevivir. Todos, hombres, mujeres y niños blancos, podían eventualmente hacerle daño”, explica.
+
+
+
+
+Por otra parte, la primera obra literaria de Lee (a la que le siguieron una serie de artículos de no ficción publicados en diversos medios, y recién en 2015, una segunda novela, Ve y pon un centinela, que en realidad es un primer borrador de Matar a un ruiseñor) se encuentra lejos de, por decirlo de alguna manera, hacerle un guiño al espíritu de la época en que fue publicada. “Ubicada en los años treinta –con el caso verídico Scottsboro como fondo, en el que nueve afroamericanos que viajaban en un tren fueron injustamente sentenciados a muerte por violar a dos mujeres blancas, quienes los habían acusado para evitar ser arrestadas por vagancia– fue escrita y publicada en los años sesenta, en el pico más alto de la lucha por los derechos humanos: Martin Luther King ya lideraba a los afroamericanos en la exigencia de igualdad, mientras que en la historia de Lee es un abogado blanco el que trata de impedir una injusticia hacia un afroamericano. La novela muestra a los afroamericanos adormecidos, esperando que alguien ‘de afuera’ lidere su causa. Es decir, que la novela no acusa recibo del activismo de la comunidad afroamericana organizada en los años sesenta en contra del racismo”, opina Inés Arteta, escritora, historiadora y docente en la Universidad del Salvador.
+
+
+
+
+Para Arteta, la mayor virtud del libro se halla en la construcción que hace Lee del personaje de la rebelde Stout: “se trata de la típica ‘tomboy’ como se llama en inglés a las niñas que rehúsan su lugar femenino-dócil y que, en el sur, devendría en la ‘southern belle’, una mujer agraciada y sumisa”. Además, alude al carácter de best-seller del libro lo que permitió instalar el tema de la injusticia racial a gran escala. “Gracias a la encantadora voz narradora de esa niña, a su éxito en ventas y a la película, devino en símbolo de exposición del racismo al público masivo, que no accedería a obras más exigentes como Faulkner, O’Connor, Welty, u otros muchos escritores y escritoras sureñas”, señala. La figura de Atticus, inmortalizada en la pantalla grande por el actor Gregory Peck, aparece como otro acierto del libro de Lee. Pese a que, intencionalmente o no, contribuya a alimentar la tesis del hombre blanco como salvador, también promueve un modelo de abogado idealista, honesto y tolerante, que supo convertirse en una de las máximas influencias para personajes de la vida real y de la ficción; como es el caso de Kim Wexler de la aclamada serie Better call Saul, quien en la temporada tres cita a Finch como quien la llevó a descubrir su vocación (y que funciona prácticamente como la antítesis del personaje principal de la serie, el entrañablemente turbio James McGill / Saul Goodman).
+
+
+
+
+Ambos entrevistados coinciden en creer que otros autores estadounidenses como, por ejemplo, la premio Nobel Toni Morrison, Zora Neale Hurston, Richard Wright, Ralph Ellison, Langston Hughes y James Baldwin se posicionan como mejores exponentes a la hora de referir a la temática del racismo, con trabajos literariamente superiores a la vez que resultan más rigurosos en términos historiográficos.
+
+
+
+
+A fin de cuentas, se trata de poder debatir las obras artísticas, de pensarlas críticamente, de encontrar sus fortalezas así como sus debilidades, sin olvidar que todo hecho artístico, por más de vanguardia que sea, también es fruto de su época. Se trata de entender que así como la cultura de la cancelación a menudo daña la memoria al pretender negar un aspecto del pasado (y con ello, anula toda posibilidad de reflexión y aprendizaje), ningún producto cultural, por más canónico que sea, debería ser intocable o estar exceptuado de revisión. El arte tiene la cualidad de resignificarse: depende de nosotros, los receptores, buscar esos nuevos sentidos.
+
+
+

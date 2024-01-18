@@ -1,0 +1,1 @@
+../../contenido-10106-personas-en-pose-de-combate.md

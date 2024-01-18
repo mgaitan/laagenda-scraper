@@ -1,0 +1,91 @@
+# El teatro sin nosotros, y viceversa
+
+**por LETICIA FRENKEL**
+
+04 de junio de 2021 - Miradas
+
+_por _
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/5704-el-teatro-sin-nosotros-y-viceversa
+
+
+
+El teatro filmado es una cosa rarísima. Aunque lo intente y lo intente, es difícil soportar la experiencia online cuando lo intrínseco del teatro pasa por lo sensorial y lo colectivo. Hay una fuerza dionísiaca que no logra traspasar a la pantalla de un televisor, de una computadora o, peor aún, del espacio diminuto del celular. Paradójicamente, esa energía arrolladora se resiste también a abandonar del todo las salas polvorientas de los teatros argentinos; como si el dios creador de la danza y del teatro, Dioniso, asomara su brazo desde el foso del escenario, en un gesto desesperado. Los que amamos las artes escénicas nos preguntamos en estos días aciagos: ¿Qué será del teatro sin nosotros? ¿Y qué será de nosotros sin el teatro?
+
+
+
+
+Entre estos manotazos de ahogado, hay varios ciclos audiovisuales que se vienen desarrollando desde el año pasado; el Complejo Teatral de Buenos Aires, por ejemplo, propuso “Modos Híbridos”, que ya lleva más de 10 obras filmadas en la sala Martín Coronado. Y el Cervantes encaró su propia propuesta que se puede ver en Youtube y en la página del TNA (también con versión accesible). “Nuestro teatro” –así se llama– consiste en 21 obras cortas, de aproximadamente media hora, que surgieron a partir de un concurso “para estimular y generar contenidos para que las artes escénicas sigan funcionando”. Luego del proceso de selección –de carácter federal y promoviendo la equidad de género–, el TNA convocó a distintos directores como Pompeyo Audivert, Paula Marull, Santiago Gobernori, Mariana Obersztern, Laura Paredes, Lorena Romanin para que, junto a diversos elencos y equipos técnicos, las filmaron sin público en la sala María Guerrero.
+
+
+
+
+La actriz y directora Analía Couceyro, por ejemplo, fue convocada para dirigir la obra ganadora El derecho de las cosas, de Guillermo Arengo. En relación con este ciclo, ella sostiene que el proceso creativo fue muy placentero. “Implicó volver a salir a la calle, ver gente y trabajar, todo junto, después de tantos meses de encierro. Creo que fue una convocatoria muy acertada por parte del Teatro Cervantes, una forma de reactivar la actividad y ofrecer espacio, estímulo y condiciones de trabajo a muchas personas. Hubo mucho trabajo por zoom con las diferentes áreas y dos semanas de ensayos presenciales con un protocolo muy estricto. Fue un trabajo muy concreto y específico, una puesta en acto del texto que me asignaron y que me dio mucha alegría compartir con les actores y equipo, en este contexto de orfandad del mundo teatral, de gran familia desmembrada, obligada a múltiples exilios y duelos solitarios”, cuenta.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/51982/ef7eedd8-21d5-41d9-921d-5e5f3ab0fca3.jpg)
+
+
+
+
+El derecho de las cosas, en el Cervantes.
+
+
+
+
+Civilización, de Mariano Saba, dirigida por Lorena Vega, fue la primera de las obras que se estrenó en el ciclo “Nuestro teatro”, en diciembre del 2020. María Inés Sancerni y Andrea Nussembaum protagonizan esta comedia de enredos ambientada en la Buenos Aires de 1792. En pleno Virreinato del Río de la Plata, las hermanas Larrazábal deambulan perdidas por los pajonales, luego de haber escapado del incendio del teatro donde quedó atrapada su hermanastra (Julieta Brito). La obra está atravesada por la conocida dicotomía civilización y barbarie, encarnada en las dos hermanas criollas de un lado y, del otro, en la hermanastra despreciada por no ser “hija directa de europeos” (a lo largo de la obra la llaman con todos los epítetos posibles: bastarda, morena, salvaje, fiera rústica, autóctona, ignorante, boludasia). El tándem que se arma entre “las civilizadas” es perfecto: Sancerni y Nussembaum descollan con su lengua bífida, picarona, el tono grotesco y un ritmo de actuación arrollador. Las dos juntas recuerdan al “dúo dinámico” encarnado por Valeria Lois y la propia Lorena Vega en La vida extraordinaria, de Mariano Tenconi Blanco, sobre todo en los momentos en que se chicanean, cuando hablan de sexo o recitan poesía.
+
+
+
+
+El derecho de las cosas, la obra dirigida por Couceyro, opta por una puesta diferente: en vez de filmar desde el público, la cámara se sitúa arriba del escenario, quedando la sala con sus butacas, luces de sala y los palcos como fondo escenográfico. Esta disposición al revés, con la inmensidad de la sala de fondo y las butacas vacías, reafirma la pertenencia teatral de la pieza, pero también le da cierta atmósfera oscura, postapocalíptica. Los dos protagonistas, Daniel Fanego y Camila Santini, por momentos parecen ser los últimos seres del planeta Tierra, como Pozzo y Lucky en Esperando a Godot.
+
+
+
+
+La cámara enfoca entonces en primer plano a Jean Paul, el personaje que interpreta Fanego, que parece algo así como una estrella de rock en decadencia, con el vaso de whisky, el esmalte negro gastado, la campera de cuero y el pelo sucio. Por detrás, en el borde del escenario, una fila de objetos (heladeras, sillones, mesas, televisores etc.) arman una suerte de valla que lo separa del mundo exterior, por donde se mete el personaje de “la chica”, de quien nunca sabemos el nombre. Ella viene del “afuera”, que en este mundo es el teatro, la sala, las luces; es decir, un espacio más luminoso. Salta ese piquete de objetos para interrumpir la misantropía de Jean Paul con un soliloquio lleno de preguntas sin respuestas, que enfatiza el sinsentido beckettiano: “¿Tendrán derechos las botellas de whisky? Si dejáramos de acumularlas y les prestáramos atención, ¿qué nos dirían? A veces pienso que las cosas nos quieren gritar ¿Cómo podes vivir sin preguntarte como están hechas las cosas? ¿Nunca pensaste que las cosas son las que tienen algo para decirnos, revelador o amoroso, algo que nos alivie en esta desesperanza?”.
+
+
+
+
+Esta última pregunta retumba en la cabeza de los espectadores, hoy más que nunca, que estamos encerrados en nuestras casas y los objetos son nuestro paisaje cotidiano. Hoy que vivimos en una permanente sensación de soledad donde pareciera que las cosas son lo único que tenemos, porque las personas de repente se han vuelto seres extraños y hasta peligrosos. ¿Cuántos de nosotros le hemos dedicado horas y horas a revolver cajones viejos cuando ya no sabíamos qué hacer? ¿Cuántos vivimos en un estado de acumulación permanente, jugando carreras de obstáculos por los ambientes de la casa? O al revés: ¿Cuántos se desprendieron de artefactos inútiles, adornos, vajilla o ropa que nunca volverán a usar, porque de pronto se sintieron acorralados por los objetos, amenazados, como en una película de terror?
+
+
+
+
+Mientras la chica habla, Jean Paul se queda impertérrito (otro silencio beckettiano). Recién cuando ella se va, una vez que se queda solo y a salvo del peligro humano, le explica en un soliloquio logradísimo a la botella de whisky que desarrolló un “para afuera monosilábico” y para sí, el arte del soliloquio, “con las palabras reventándote adentro de la cabeza”. Esa imagen, la de Fanego disertando un monólogo a la botella de Johnny Walker con las luces “color whisky” de fondo en los palcos –en un gran trabajo de iluminación a cargo de Sol Lopatin– es, sin duda, uno de los mejores momentos de la obra.
+
+
+
+
+Jean Paul es un solitario que llegó al extremo de vincularse solamente con los objetos. Pero hay muchas otras referencias que, indirecta o directamente, hacen alusión a la situación actual de la pandemia: el encierro, la depresión, el alcohol, y, sobre todo, “el distanciamiento social” entre ambos protagonistas. “Los personajes están entre sí lejos todo el tiempo, parece imposible que se vinculen físicamente, cuando la chica se ofrece a alcanzarle la botella de whisky lo tiene que hacer con un dispositivo donde es el objeto quien se mueve. Bromeábamos durante los ensayos con la idea de que él se fue quedando tanto en su casa replegado en sí, que ideó una especie de carrito con una cuerda para recibir al Rappi que le trae el whisky sin tener que salir de su sillón”, apunta Couceyro.
+
+
+
+
+Estas alusiones a la realidad actual se pueden ver en varias de las obras del ciclo “Nuestro teatro”. Por ejemplo, en Al oeste del amor, de Santiago Gobernori, los personajes cada vez que entran a escena se ponen alcohol en gel, como un gesto automático, incorporado a la rutina de la vida cotidiana. En Civilización se hace referencia a una peste en Buenos Aires, y se habla también de la muerte del teatro (el incendio podría interpretarse como una metáfora de su extinción). En un gran monólogo final, con una música de payada de fondo, el personaje de Remedios, la hermana mestiza dice: “Me pregunto qué será de este teatro que somos nosotras, qué será del teatro en esta tierra maldita, y qué será de nosotras sin el teatro. Como yo, van a ver, el teatro saldrá entre las cenizas, vivito y coleando”.
+
+
+
+
+Ojalá Dioniso reencarne como el Ave Fénix: que los actores y actrices puedan subir a los escenarios y que el público pueda volver a aplaudirlos de pie.
+
+
+
+
+\_\_\_
+
+
+
+
+LETICIA FRENKEL
+
+
+
+
+Es docente y escritora. Licenciada en Letras y Magíster en Escritura Creativa por la UNTreF. Da talleres literarios para adolescentes. Publicó la novela “Amores mutantes”.
+
+
+

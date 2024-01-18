@@ -1,0 +1,1 @@
+../../contenido-33652-hecatombe-de-tecnicos.md

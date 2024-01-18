@@ -1,0 +1,86 @@
+# Abrir el juego
+
+**En 1980, Queen se reconvirtió en una banda pop disco, y sus clásicos “Another One Bites The Dust” y “Play The Game” la llevaron a ser la banda más grande del mundo.**
+
+29 de marzo de 2021 - ANIVERSARIO
+
+_por ILÁN KAZEZ_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4615-abrir-el-juego
+
+
+
+“Si ustedes no la lanzan como single están locos”. Así de duro fue Michael Jackson cuando visitó el backstage de Queen tras un show que dieron en Los Ángeles en 1980. Los británicos acababan de publicar su octavo álbum de estudio, The Game, y el autor de “Don’t Stop ‘Til You Get Enought” estaba entusiasmado con “Another One Bites The Dust”, una composición funk absolutamente novedosa en el universo Queen pero en sintonía justa con los sonidos contemporáneos. Si hay algo en lo que el Rey del Pop tenía expertise era en materia de pop, pero el grupo no estaba convencido. En realidad, con ese comentario estaba reavivando el fuego amigo de las diferencias internas. Después de una larga discusión le hicieron caso, publicaron el single y filmaron un videoclip para promocionarlo. Al poco tiempo, era el sencillo más vendido de su historia.
+
+
+
+
+Hace 40 años, Queen llegó a ser la banda más grande del mundo, en parte gracias a “Another One Bites the Dust”. Quizá si no fuera por la insistencia de Jackson no hubiera ocurrido: la canción no solo no había sido considerada como single, sino que estuvo cerca de quedar afuera del álbum, ya que había generado una grieta en la banda. “Éramos cuatro porongas peleando, hermoso”, describió Freddie Mercury. La división era, por un lado, el ala conservadora rockera integrada por el guitarrista Brian May y el baterista Roger Taylor, quienes creían que se estaban desviando a una dirección demasiada ligera. Del otro, el sector progresista pop que sostenía que Queen debía ajustarse a los tiempos que corrían y animarse a explorar un costado más bailable. En esa postura estaban Mercury y el bajista John Deacon, quien trajo la idea de la canción tras haber pasado un tiempo en el estudio con los miembros de Chic (se ha sugerido con cierto tino que tomó prestado alguna que otra idea de “Good Times”, el hit del grupo de Nile Rodgers, lanzado un año atrás).
+
+
+
+
+Para ese entonces apenas habían pasado siete años desde que Queen irrumpió en la escena musical británica, con un concepto que orbitaba alrededor de la grandilocuencia, la producción sobrecargada, el barroquismo sonoro y la incursión de disciplinas artísticas ajenas al rock como la ópera y el vaudeville. En sus primeros años el grupo se mantuvo en estado de gracia puro: desde su debut en 1973, cada año publicaron un disco de estudio nuevo, en el que no mermó el talento ni la creatividad. Solo en 1974 habían sacado Queen II y Sheer Heart Attack, dos álbumes excepcionales, y apenas un año después vio la luz A Night At The Opera, que incluía su capilla sixtina “Bohemian Rhapsody”. A pesar de la velocidad, ningún trabajo se hizo rápido: por el contrario, Queen era una banda que se destacaba por su meticulosidad y en donde a cada cosa se le daba vuelta una y otra vez. Y las canciones de Queen estaban llenas de cosas: cambios de ritmos, guitarras superpuestas, capas y capas de coros. Recién en 1977, a partir de la llegada del punk, empezaron a simplificar su sonido. Pero el cambio de década estaba pidiendo otra cosa.
+
+
+
+
+En 1979, todo el grupo se trasladó a Munich, Alemania, un poco para escapar de la presión fiscal de Inglaterra, otro poco para cambiar de aire e inspirarse con nuevos estímulos. Llegaron a Musicland, un estudio de grabación fundado por Giorgio Moroder, en el que empezaron a trabajar junto al productor alemán Reinhold Mack, cuya metodología era opuesta a la de los británicos. “Uno de mis fuertes es trabajar realmente rápido”, explicó el productor. “Y Queen trabaja muy lento. Mi plan era cambiarlos, porque se quedaban estancados en sus métodos”. De repente, la banda se encontró con alguien que les ponía un freno a la manía con los detalles. Ya no se trataba de grabar y regrabar los coros o los solos hasta que quedaran perfectos. Ahora regía la simpleza y la eficiencia.
+
+
+
+
+Al que más le costó fue a Brian May. Dos datos sueltos sobre él que quizás ayuden a comprender su personalidad: construyó su propia guitarra eléctrica y se recibió de doctor en astrofísica. La obsesión era una de sus características, y para él la grabación de un disco tenía mucho de ciencia dura. A veces se lo podía encontrar solo en el estudio en el medio de la madrugada tratando de hacer que la guitarra sonara exactamente como él pretendía.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/43786/da98767c-0ee6-40fa-8c68-4362585f65b0.jpg)
+
+
+
+
+Un cambio de look europeo y porn, muy lejos de la estética barroca.
+
+
+
+
+“Tengo una idea, pero hagámosla ahora antes de que llegue Brian”, le dijo Mercury un día al productor. El vocalista fue el que más rápido se entendió con Mack. En unos 10 minutos había compuesto “Crazy Little Thing Called Love”, un homenaje implícito a Elvis Presley, y sentía que la frescura de la canción debía mantenerse intacta, sin ahondar en detalles. Eso significaba que May no participe. La banda grabó el tema y, efectivamente, cuando el guitarrista llegó al estudio no le gustó nada. Y peor aún: Mack le pidió que no la toque con su Red Special, sino con una Telecaster, para que tuviera un sonido más similar a los ’50. May no la pasó nada bien, pero entendió el punto. En efecto, esa frescura se impregnó en la canción. Para el videoclip, todos pasaron por la peluquería para rebajarse el pelo y se vistieron de cuero negro. En octubre de 1979, el tema fue lanzado como single y por primera vez en su historia Queen había alcanzado el puesto 1 en Estados Unidos, territorio que había sido esquivo a los encantos de la reina. Una nueva generación conocía a un nuevo Queen.
+
+
+
+
+Las nuevas reglas del juego
+
+
+
+
+Dentro del mainstream, en 1979 el rock olía a naftalina. La combustión punk se había apagado, los héroes de los ’60 estaban desgastados, “Saturday Night Fever” había puesto a la música disco a la moda y Bee Gees, Village People y Donna Summer estaban en lo alto de su carrera. Como resistencia, el DJ Steve Dahl promovió desde Chicago la campaña “Disco sucks!”, que el 12 de julio derivó en la “Disco Demolition Night”: una noche de protesta que incluyó la quema de álbumes del género. La grieta al interior de Queen respondía a este contexto, aunque poco a poco la facción bulsarista se estaba imponiendo. Mucho de eso tuvo que ver en el hecho de que, mientras vivieron en Munich, el grupo empezó a abrirse y comprender de qué se trataba el fenómeno disco y synth-pop.
+
+
+
+
+“Cuando hicimos The Game, todo era divertido, y nuevo, y brillante, pero los problemas empezaron con ‘Vamos a tomar algo después del estudio’”, contó May. La rutina after-office en Musicland empezaba a las seis de la tarde, cuando se encontraba todo el equipo de colaboradores de la banda para preparar cocteles. Después de algunas copas, cenaban y se iban a bailar. Mercury y su equipo solían ir a Old Mrs. Henderson, un popular punto de encuentro de la comunidad gay de Munich. El resto se iba a Sugar Shack, “la disco más caliente del mundo”, como la calificó Taylor. Al cabo de unas horas, todos se reencontraban y abrían una botella de champagne. Así, algunos miembros empezaron a componer canciones pensando en cómo sonarían adentro de un boliche, con más groove y espacios. Bajo ese marco, salió una gema funk-rock de May llamada “Dragon Attack”, cuya letra menciona al Sugar Shack, y el huevo de oro de Deacon, “Another One Bites The Dust”, cuya interpretación fue tan precisa que había radios norteamericanas de música negra que la pasaban una y otra vez sin tener idea de que estos Queen en realidad eran cuatro británicos blancos.
+
+
+
+
+Otro punto de discusión caliente pasó por el uso de sintetizadores. A principios de los ’70, en pleno auge del rock progresivo, Queen se jactaba de no usar ninguna clase de sintetizadores y crear todos los efectos sonoros de modo artesanal. Sin embargo ese gesto, que antes se veía como audaz, en la flamante década de los ’80 iba a sonar como un viejo gritándole a las nubes. Así que para The Game, por primera vez se animaron a usarlos, y la banda se encargó de que quede claro desde los primeros segundos, en la intro cósmica de “Play the Game”.
+
+
+
+
+Pero el cambio tenía que ser completo: dicha canción, una balada clásica al estilo Mercury, fue el tercer single que lanzaron, cuya portada y videoclip mostraron por primera vez en público al bigote de Freddie, el toque final para la transformación. Europeo, pornográfico, al mejor estilo Castro Clon, el mostacho definió la nueva estética del grupo, muy alejados de la foto barroca tomada por Mick Rock en 1974, en la que se veían las cuatro caras emergiendo de la oscuridad. El nuevo look, sin embargo, encontró resistencia en los viejos fans y tanto en las oficinas de la banda como en algunos de sus shows los seguidores llegaban con hojas de afeitar en señal de protesta.
+
+
+
+
+The Game fue lanzado en junio de 1980, las críticas fueron positivas y fue un éxito comercial. Queen había conquistado el mundo y se lo tomó tan literal que buscó poner el pie en territorios desconocidos. Con ese ímpetu desembarcaron en Sudamérica en 1981. También a partir de ese momento cambiaron la búsqueda artística. Ahora se trataba de ajustar la sintonía pop y conseguir el hit masivo, aunque no siempre estuvieron a la altura de las circunstancias: su siguiente disco Hot Space (1982) redobló la apuesta bailable con resultados absolutamente magros. Pero en The Game lo habían conseguido a la perfección. Si en sus primeros años Freddie Mercury y los suyos creaban canciones con un estilo teatral, permitiéndoles encarnar personajes extravagantes, ahora el gesto era similar, pero con personajes pop. En un mismo álbum podían ser Elvis Presley, James Brown y Elton John. Era cuestión de jugar el juego con convicción y compromiso.
+
+
+
+
+[![](https://img.youtube.com/vi/OoYqfVzXAGw/0.jpg)](https://www.youtube.com/watch?v=OoYqfVzXAGw)
+
+
+

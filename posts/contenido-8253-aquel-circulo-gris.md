@@ -1,0 +1,66 @@
+# Aquel círculo gris
+
+**Me uní a un grupo de cosplay que descubrí en Facebook. Casi todas usaban seudónimos, una se hacía llamar Mumi. La ficción sostenía nuestros vínculos.**
+
+03 de septiembre de 2021 - Experiencias
+
+_por Antonia Kon_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/8253-aquel-circulo-gris
+
+
+
+Una adolescente se suicida y, pocos días más tarde, sus compañeras de clase reciben mails suyos que parece enviar desde el más allá. Aunque su cuerpo se haya estrellado desde la terraza de la escuela, envía mensajes diciendo que no es un chiste y que pudo encontrarse con dios, que es posible alcanzar una identidad incorpórea a través de la dimensión virtual. Así empieza la historia de Serial Experiments Lain, un anime emitido a fines de los años noventa que, previo a la existencia de las redes sociales, exploraba la idea de una nueva era tecnológica con una mirada perturbadora y una sensibilidad cyberpunk. Lain, la protagonista, es una chica de catorce años que se adentra en la dimensión virtual impulsada por los mensajes de su compañera muerta. Descubre que La Red -así la llaman- es el artificio perfecto para escapar de una realidad que cada vez le resulta más inquietante. En ese terreno misterioso, más allá del plano físico, convergen los pensamientos de todo el mundo. Su identidad entra en crisis y se descubre a sí misma como software, como virus, una diosa producto de la conciencia colectiva. La habitación en la que vive encerrada se convierte progresivamente en un ecosistema de pantallas, agua, ventiladores y cables a los que conecta su cuerpo para mantenerse con vida. No importa adonde vayas, todos estamos conectados, repite como si fuera un mantra. La Red se presenta como una entidad en sí misma, una especie de caja de resonancia que une las mentes de todas las personas. Cerca del final de la serie (“Ego” es el título de su último episodio) una Lain convertida en deidad digital asegura que no necesitamos nuestros cuerpos. Que nuestras almas viven por siempre, conectadas en La Red.
+
+
+
+
+![](https://cdn.feater.me/files/images/101651/aaad49d4-0284-486b-afe8-68b8632465a1.jpeg)
+
+
+
+
+Cuando llegué a Buenos Aires, a mis doce años, me uní a un grupo de cosplay que descubrí en Facebook. Una pequeña comunidad de adolescentes que se llamaban a sí mismas cosplayers. Hay quienes explican el fenómeno del cosplay como un hobbie o una subcultura, otras personas se refieren a esta práctica como una forma de arte performático. Se basa en imitar estéticamente a personajes de ficción a través de trajes, pelucas y maquillaje. En general, los personajes elegidos pertenecen al mundo del anime, el manga, cómics o videojuegos. El cosplay se popularizó en Tokio durante la década de los setenta y no tardó en expanderse alrededor del mundo. Pero dudo que esta definición sea suficiente. Para mí, sería más acertado decir que el cosplay es una constante puesta en escena, una resistencia a las identidades estáticas, un capricho poético.
+
+
+
+
+Yo, una niña de pueblo, todavía no estaba acostumbrada a usar ese celular Nokia que mis padres me habían dado para no perderme de vista. Pero era mi primer fin de semana en la ciudad y ya me había puesto una peluca, entraba sola al Jardín Japonés para reunirme con un grupo de chicas desconocidas que tenían de quince a veinte años. Ese encuentro produjo en mí una obsesión inmediata, enterré el celular en la mochila y no contesté ninguna llamada. Me camuflé entre ellas sin dar demasiadas explicaciones y, aunque no supiera nada sobre sus vidas, se convirtieron rápidamente en la estrella en torno a la cual orbitaba mi mundo. Coleccionábamos lentes de contacto que nos agrandaban los ojos, teníamos pupilas en forma de corazón. Se abría un portal de nuevas posibilidades para mí: mientras me adaptaba a la filosa vida social preadolescente en aquel nuevo colegio porteño, conocía a mi primera novia en esos eventos de cosplay a los que asistía religiosamente. En mi grupo casi todas éramos mujeres. Algunas se vestían de chicos, se vendaban el pecho para interpretar a personajes masculinos y eso me parecía genial. Se hacían piercings y se teñían el pelo. Empecé a verlas todos los fines de semana. Nos maquillábamos en las estaciones de tren, hacíamos viajes interminables hasta zonas para mí desconocidas, todo para llegar a algún evento de cosplay. La gente pensaba que éramos animadoras infantiles.
+
+
+
+
+Casi todas usaban seudónimos y no les dábamos mucha importancia a nuestros nombres reales. Tampoco sabía a qué colegio iban, cómo estaban compuestas sus familias. Yo era demasiado tímida para indagar en esos detalles y, de todas formas, no nos interesaba mucho. La ficción sostenía nuestros vínculos. Más que una amiga me sentía una observadora, una alumna que registraba sus movimientos, sus maneras de hablar y de habitar el mundo. Una de ellas se hacía llamar Mumi. Más tarde, ese junio de 2013, cuando su cara apareció en todos los canales de noticias, me enteré de que su verdadero nombre era Ángeles Rawson. Se discutían los detalles del caso, los últimos lugares donde ella había estado, su edad y su amor por el animé. Compartían fotos suyas haciendo cosplay, posando en su cuarto con un sombrero en la cabeza, las paredes con pósters que todavía recuerdo. El país entero hablaba de ella. Descubrí que era abanderada en un colegio católico. Una de esas chicas increíbles que yo idolatraba, ante la mirada de los adultos era solo una niña. Dieciséis años, vista por última vez en la cancha de deportes donde hacía educación física. Más adelante se supo que fue estrangulada hasta la muerte por el portero de su edificio. Decían que ella lo había acompañado hasta una zona apartada porque le tenía confianza, hacía once años que conocía a ese hombre. También hablaban de un crimen sexual. Ella se había resistido: encontraron el ADN del asesino debajo de sus uñas. Durante los meses siguientes, las fotos de Ángeles Rawson siguieron reproduciéndose en todos los televisores del país, todavía era la protagonista de los titulares de noticias. Rastreaban sus redes sociales, decían que en algunas de sus últimas publicaciones hablaba de la muerte. El contraste entre su verdadero nombre y el seudónimo que yo conocía le otorgaba a mi mente la posibilidad de distanciar estos hechos de la realidad. Como si esa chica, la que aparecía todos los días en la tele, no fuese la auténtica Mumi. Como si la que yo había conocido no fuese la misma adolescente a la que el portero le había fracturado quince costillas, la clavícula derecha y una vértebra. Su cadáver fue arrojado a la basura, envuelto en bolsas de consorcio. Consumí fragmentos de esa información hasta que no quise saber más.
+
+
+
+
+Entraba a Facebook y me congelaba en la ventana de mi chat con Mumi. Al lado de su nombre estaba la foto con peluca, y el círculo gris que en ese momento simbolizaba la desconexión del usuario. Entonces me concentraba en ese círculo como si pudiera activarlo con la mirada, establecer una conexión telepática con el más allá. Nunca me animé a mandarle un mensaje pero contemplaba esa posibilidad mientras mis dedos recorrían el teclado. Escribía y borraba, me arrepentía, pero ese acto, de alguna forma, era suficiente para mí. Como si la conciencia posterior a la muerte estuviera intacta en ese chat, un foco luminoso en la oscuridad de mi cuarto.
+
+
+
+
+![](https://cdn.feater.me/files/images/101652/e3a0dbbf-94e6-4306-917a-977dac6eaff5.jpeg)
+
+
+
+
+Ilustración: Gaby Apezteguia.
+
+
+
+
+\_\_\_
+
+
+
+
+Anotnia Kon
+
+
+
+
+Nació en Buenos Aires en el 2000. Escribe en el Suplemento SOY de Página 12 y es redactora en Proyecto Ballena del CCK. En Twitter es @konantonya
+
+
+

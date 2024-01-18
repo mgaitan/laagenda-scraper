@@ -1,0 +1,1 @@
+../../contenido-15605-destruccion-parcial.md

@@ -1,0 +1,51 @@
+# El último hombre en pie
+
+**A los 71 años, Springsteen mira hacia atrás y condensa dolor y gloria. Temporada 10 de un clásico, Curb Your Enthusiasm y lo nuevo de Miley Cirus.**
+
+14 de diciembre de 2020 - COSAS QUE ESTUVE MIRANDO
+
+_por JUAN RAPACIOLI_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/3136-el-ultimo-hombre-en-pie
+
+
+
+En una entrevista reciente con Jimmy Fallon, Bruce Springsteen hace un comentario que, en cierto sentido, define su obra: “Siempre me gustó la música en donde el cantante suena feliz y triste simultáneamente”. Esa respuesta, dicha como al pasar, ayuda a comprender no solo el tono de su nuevo álbum, Letter To You , sino la poética del joven ambicioso que se escapó corriendo de Freehold, New Jersey, para convertirse en un ícono del rock and roll. Ahora, a sus impecables 71 años, el hombre nacido para correr se toma el tiempo para mirar hacia atrás y, en ese gesto, condensa un sentir donde conviven el dolor y la gloria. Porque si en su carrera siempre trató de buscar un futuro, de seguir intentando (de bailar en la oscuridad), nunca desconoció la herida íntima de su propia existencia y, en proyección, de esa abstracción confusa que es América del Norte. Como alguna vez le dijo a Elvis Costello, “todo lo que escribo es sobre la identidad”. De Greetings from Asbury Park, N.J. (1973) a Western Stars (2019), la pregunta por la identidad (o sea, la pregunta por quién es uno en este viaje con destino final) se hace presente de diversas maneras a través de una vitalidad avasallante que no esconde su lucha contra la depresión. Pero en Letter To You se revela otra obsesión que de alguna manera funciona como contrapeso a esa vitalidad: la reflexión sobre la muerte. No la muerte como final, sino como diálogo con fantasmas. Con su modo visceral, Bruce le inyecta cierta esperanza incluso a la desolación. Como si le sacara el polvo a un viejo álbum de fotos, la voz recorre fragmentos del pasado que lo llevaron a ser quien es. Ahí está el recuerdo nostálgico de George Theiss, su compañero de The Castiles, la banda adolescente donde todo empezó, “ahora soy el último hombre en pie”, pero también una celebración de los 45 años de potencia intacta de la E Street Band, donde sobrevuela la respiración fantasmal del inconfundible saxo de Big Man Clemons. Springsteen conecta con el Dylan de los 70 en If I Was The Priest y Song For Orphans, encuentra la épica en House Of A Thousand Guitars y la política en Rainmaker. En la felicidad melancólica de The Power Of Prayer se advierte algo de su amor por el gospel que parece conversar con las plegarias de Roy Orbison. Aunque las canciones cargan el peso del final, el tono del Jefe nunca es fatalista: siempre hay un tramo más para correr.
+
+
+
+
+[![](https://img.youtube.com/vi/AQyLEz0qy-g/0.jpg)](https://www.youtube.com/watch?v=AQyLEz0qy-g)
+
+
+
+
+Curb Your Enthusiasm , Temporada 10, 2020
+
+
+
+
+Aunque Seinfeld trascendió como “una serie sobre nada”, es válido apuntar que, por el contrario, es una serie sobre muchas cosas; entre las más destacables: la imposibilidad de comprometerse, la resistencia a madurar y la amistad no como elección sino como resignación. ¿Cómo superar ese sistema de núcleos narrativos diseñado por Jerry Seinfeld y Larry David que cambió para siempre la historia de las sitcoms? La respuesta de Jerry, aunque exitosa, no parece haber sido la más interesante: una continuación de su mirada ante el ridículo social por otros medios, como los autos de carrera y el café con celebridades. La de David, por otra parte, entendió que la cosa no pasaba por continuar sino por cuestionar. No hay Curb sin Seinfeld, pero en Curb hay un respiro de todo lo que en Seinfeld sonaba esquemático. Hay una suerte de libertad que solo puede nacer del espíritu de improvisación que atraviesa al programa (aun después de 20 años al aire Larry se sigue tentando de risa frente a las cámaras). Obsesivo, incrédulo y siempre desconfiado, David llega a su décima temporada con una creatividad afilada que logra moverse en los bordes de zonas vidriosas como el acoso sexual y el trumpismo, siempre en el límite de un narcisismo neurótico que deviene fracaso (verlo a Jon Hamm aprender a ser como Larry es una de las joyas de la temporada). No hay que olvidarse que George Costanza, el rey de la derrota, es un personaje inspirado en el propio David. Pero mientras George, a lo largo de Seinfeld, parece tener vedado cualquier atisbo de felicidad, Larry lleva sus problemas a otro nivel: aun siendo el exitoso guionista de una serie televisiva clave, no puede estar bien; o mejor: su única forma de estar bien es estar en conflicto. Con Curb, Larry David no solo demostró que se podía superar Seinfeld sino que escribió una teoría de la incomodidad donde deja en claro que su disfuncionalidad es un modo de saber que nada funciona.
+
+
+
+
+[![](https://img.youtube.com/vi/u7bnE6XiOEQ/0.jpg)](https://www.youtube.com/watch?v=u7bnE6XiOEQ)
+
+
+
+
+Plastic Hearts , Miley Cyrus, 2020
+
+
+
+
+La nueva versión de la artista alguna vez conocida como Hannah Montana cumple con todas las fases de la obsesión por el pasado de la que habla Simon Reynolds. La retromanía de Miley Cyrus atravesó el año pandémico como una forma de escapismo que la cantante usó para terminar de salir del pop con tintes de country folk y lanzarse de lleno a una síntesis de sus ídolos: de Dolly Parton a Blondie, pasando por Stevie Nicks y Billy Idol. Muchos de sus referentes, como Joan Jett, incluso participan del álbum de la nueva Miley. Pero el homenaje no solo se da en los covers y en los préstamos, sino en el sonido y en la estética: todas las canciones del álbum son, en cierto sentido, una reescritura del imaginario rockero que va de finales de los 70 a finales de los 80. No es casual, además, que el autor de la imagen de portada sea Mick Rock, histórico fotógrafo de Lou Reed, Debbie Harry, Freddie Mercury e Iggy Pop, entre muchos otros íconos de la cultura popular. Además de los radiales Prisoner (con Dua Lipa) y Midnight Sky, el disco tiene piezas conmovedoras -menos sobreproducidas- como Never Be Me y Golden G String, que le otorgan un color más genuino. Sin embargo, a pesar de su fuerza vintage y su entrega emotiva, algo no termina de funcionar: la artista hace un gesto extraordinario, busca el límite, se esfuerza, pero el resultado no pasa de ser correcto, esperable y por momentos complaciente. De alguna manera, el álbum no refleja la potencia arrasadora de su protagonista. Quizás, siguiendo el camino de los cambios, Miley quiso retomar el concepto que alguna vez David Bowie usó en Young Americans: el plastic soul, la reformulación artificial de sus influencias. Pero en Bowie, más allá de sus propios fracasos, la reformulación vino siempre con disrupción. Ahí otra lección que la artista seguramente anotará para el futuro.
+
+
+
+
+[![](https://img.youtube.com/vi/vStru2voDjY/0.jpg)](https://www.youtube.com/watch?v=vStru2voDjY)
+
+
+

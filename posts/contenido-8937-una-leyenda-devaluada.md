@@ -1,0 +1,91 @@
+# Una leyenda devaluada
+
+**Considerada infilmable durante décadas, la saga Fundación, de Isaac Asimov, ha resistido todo intento de ser adaptada al audiovisual. Hasta ahora.**
+
+18 de noviembre de 2021 - Series
+
+_por Diego Lerer_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/8937-una-leyenda-devaluada
+
+
+
+"Fundación", de David S. Goyer y Josh Friedman (Estados Unidos, 2021, Apple TV+) 10 episodios
+
+
+
+
+Considerada infilmable durante varias décadas, la saga Fundación –serie de siete novelas que Isaac Asimov escribió a lo largo de buena parte de su vida—ha resistido todo intento de ser adaptada al audiovisual. Proyectos para cine y televisión cayeron bajo el peso de la fama o de la compleja lógica narrativa de esta ambiciosa serie de historias que transcurren a lo largo y a lo ancho de una galaxia miles de años en el futuro. Y si bien otras piezas legendarias de la literatura popular del siglo XX han logrado ser trasladadas al formato audiovisual –el caso más resonante, sin dudas, ha sido “El Señor de los Anillos”—nadie había podido con la mítica ganadora del Premio Hugo a la mejor serie de novelas de ciencia ficción de la historia.
+
+
+
+
+Pero todo llega y el viernes 24 de septiembre esa larga espera terminó. Estrenada en Apple TV+ como una serie con una primera temporada de diez episodios, Fundación, creada por David S. Goyer y Josh Friedman, está pensada como un proyecto de largo aliento que necesitaría, según sus creadores, unos 80 episodios para desarrollarse en su totalidad. ¿Suena descabellado? No tanto. Grandes sagas literarias del género fantástico, como Game of Thrones, necesitaron de temporadas y temporadas (73 episodios en ese caso) para presentar su complejo entramado de mundos, razas y conflictos políticos y bélicos entre poderosos imperios y variadas alianzas revolucionarias. Fundación es, en cierto sentido, la nave nodriza de este tipo de relatos que pretenden abarcarlo todo, de esas ficciones que inventan y desarrollan la historia de un mundo entero creado ad hoc. No por nada se la considera una referencia inevitable a la hora de hablar de Star Wars, Star Trek y decenas de otras sagas que se montaron a la ambición totalizadora de la serie de Asimov.
+
+
+
+
+[![](https://img.youtube.com/vi/X4QYV5GTz7c/0.jpg)](https://www.youtube.com/watch?v=X4QYV5GTz7c)
+
+
+
+
+Pero Fundación plantea un desafío extra. Formateada como saga a posteriori por el propio escritor nacido en la Unión Soviética pero radicado desde muy pequeño en los Estados Unidos, se trata de una serie de historias breves separadas entre sí, con ejes, personajes y tiempos distintos, y con un estilo narrativo que prioriza la discusión de temas e ideas y que ofrece bastante poco en términos de acción dramática convencional. Las series, especialmente las de ciencia ficción, se mueven hoy a caballo de la tensión, el suspenso, los arcos dramáticos de sus personajes principales y enfrentamientos más o menos claros entre rivales de características opuestas. Hay poco de eso en la serie de Asimov. Hay un protagonista que muere apenas comienza el relato, hay saltos permanentes en el tiempo por décadas o cientos de años y hay personajes que entran pisando fuerte para desaparecer rápidamente. Y ese tipo de construcción no siempre es material apto para el llamado binge watching, esa costumbre cada vez más buscada por las plataformas de llevar a los espectadores a ver temporadas enteras de una serie en un fin de semana.
+
+
+
+
+Por suerte, Apple TV+ tuvo la delicadeza o la inteligencia de mantener el viejo estilo del estreno semanal. Tras los dos primeros episodios que se vieron el viernes, la serie sumará de a uno por semana hasta noviembre. Es, quizás, la única forma en la que el sistema resista porque, convengamos, pese al encomiable esfuerzo por transformar los conceptos de Asimov en un formato de serie de ciencia ficción funcional y atractiva, y más allá de los enormes gastos de producción que demandó filmar esta ambiciosa saga intergaláctica, la primera temporada de Fundación es un hueso un tanto duro de roer, una pelea constante –en la que se pierde más de lo que se gana—por traducir y adaptar un mundo ideado en los años ’40 y ’50 del siglo pasado a los conceptos que priman siete u ocho décadas después. La tarea es encomiable, pero los resultados son por lo menos inconsistentes.
+
+
+
+
+La serie Fundación toma como eje –más allá de una inmensa cantidad de cambios y alteraciones—el primer tomo de la trilogía original, publicado en 1951. Ese tomo es, en realidad, una colección de cuatro relatos breves que el escritor publicó la década anterior más uno, que funciona como apertura y presentación, y que escribió especialmente después. El punto de partida es muy atractivo tanto desde lo temático como en función de las posibilidades narrativas que despierta. Y la serie lo utiliza también como carta de presentación. Se trata de la llamada “psicohistoria”, teoría científica desarrollada por el matemático Hari Seldon (interpretado aquí por Jared Harris) a través de la cual, mediante complejas ecuaciones, se puede pronosticar y predecir el futuro. Se trata de una ciencia que, analizando variables numéricas a lo largo de la historia, puede calcular con bastante certitud el destino de la galaxia. Algunos, simplemente, la llamarían Ciencias Económicas. Pero Asimov lo lleva para otro lado.
+
+
+
+
+El tal Seldon es convocado por el Emperador Galáctico (Lee Pace), máximo líder de Trentor, centro político y económico de una galaxia compuesta por millones de planetas, para exponer sus teorías. Y es allí que, con ayuda de Gaal Dornick, una joven matemática que es la única capaz de resolver además de Seldon esas complejas ecuaciones (en la novela es un varón, acá es una chica afrolatina, Lou Llobell), el hombre da el puntapié inicial a la estructura dramática de Fundación. Según su teoría, el Imperio caerá en 500 años, tras lo cual empezará un período oscuro que se extenderá por 30 mil años más, hasta que de sus cenizas pueda resurgir un nuevo imperio. Entre horrorizado, descreído y furioso, el Emperador planea matar al hombre y desestimar sus ideas, pero Seldon lo convence con una especie de “oferta que no puede rechazar”.
+
+
+
+
+La propuesta consiste en armar un grupo que sea capaz de salvaguardar todos los saberes de la historia de la humanidad en una Enciclopedia Galáctica. Seldon asegura que, haciendo eso, se podrán reducir esos 30 mil años de caos a tan solo mil, ya que habrá una base desde la cual reconstruir la civilización. El Emperador acepta a regañadientes y manda a Seldon, a Dornick y a un enorme grupo de sabios, investigadores y especialistas a Términus, el planeta más lejano de la galaxia, para que armen allí su bendita Enciclopedia. Ellos serán, supuestamente, la Fundación. Pero todo el plan, en realidad, es bastante más complejo y enredado que eso.
+
+
+
+
+Más allá del cambio del personaje de Gaal, la serie de Goyer –conocido por ser uno de los guionistas de la saga Blade, de la trilogía El caballero de la noche, de Christopher Nolan y de Batman vs. Superman, de Zack Snyder, entre muchos otros títulos taquilleros— y Friedman –de “La guerra de los mundos”, de Steven Spielberg y la inminente Avatar 2, de James Cameron-- utiliza de manera casi idéntica al libro ese punto de partida y lo desarrolla en los primeros dos episodios. Luego de eso, la serie reacomodará las piezas de forma bastante radical, sosteniendo algunos de los conceptos y movimientos básicos del libro pero alterando casi todo el resto. De algún modo, la sensación que uno tiene al verla es que la novela que inspiró a sagas como “Star Wars” hoy realiza el viaje inverso, ya que su versión audiovisual toma muchísimos elementos del universo de George Lucas para expresarse visualmente. Al no tener demasiadas escenas concretas de acción en sus páginas, Goyer ha debido directamente inventar historias, personajes y combinar elementos de una forma bastante radical.
+
+
+
+
+De todos modos, Fundación nunca termina por tener una entidad propia, diferenciada. Al dejar de lado buena parte de sus discusiones conceptuales de la novela –algunas permanecen pero suelen estar opacadas por decenas de enfrentamientos y conflictos del tipo bélico--, la serie termina siendo demasiado parecida a muchísimas otras que circulan por el ancho mundo de la ciencia-ficción contemporánea. La ironía, claro está, es que estos productos en los que la serie se inspira no existirían sin Fundación, no tanto en lo que respecta a la acción en sí sino en su estructura de imperios galácticos, ejércitos rebeldes, naves capaces de viajar a velocidades imposibles y otros tropos del género. En especial, el llamado “viaje del héroe”, que acá ha mutado por el de heroínas. Y uso el plural porque otro personaje clave de la saga, ya verán cuál es, ahora también es una mujer negra.
+
+
+
+
+Esos cambios de géneros y razas son algunas de las alteraciones que aplica Goyer a la serie, con la intención de actualizar los personajes creados por Asimov, que en las novelas eran casi todos hombres. Los miembros de la Fundación, esa entidad armada para reemplazar en el futuro al Imperio, pertenecen casi todos a minorías (latinos, asiáticos, árabes y varios etcéteras) y son los que, tras una serie de eventos desafortunados, deberían terminar uniéndose para enfrentar a los poderosos. De los cambios que Goyer aplicó a la trama quizás el más inquietante –uno que también se inspira en otros libros de Asimov— sea el ligado a los Emperadores y sus descendencias. A diferencia de las monarquías más convencionales, aquí los hijos no heredan el trono sino que el propio líder es clonado infinitamente y se mantendrá en el cargo hasta que la “psicohistoria” haga lo suyo… si es que lo hace.
+
+
+
+
+Si bien algunos motivos clásicos de la literatura de Asimov aparecen en las distintas subtramas que se desarrollan a lo largo de la temporada –robots en conflicto con sus amos, identidades falsas y mutantes, la lucha entre la ciencia y la religión--, la serie desgasta buena parte de la paciencia del espectador en innecesarios combates y enfrentamientos entre distintos grupos rebeldes. Recién en los últimos dos o tres episodios, algunos eventos fuertes --la mayoría de ellos inexistentes en el libro original y en algunos casos extraídos de sus secuelas o de otros libros del autor de “Yo, robot”-- vuelven a darle cierto peso y una mayor consistencia dramática a los personajes y a la trama. Pero no parece ser suficiente.
+
+
+
+
+Si la Fundación de Goyer y Friedman sobrevive a la primera temporada, hay al menos cuatro libros más que continúan la historia –dos que son parte de la trilogía original editada en los ’50 y dos más escritos en los años ’80—, además de otros dos libros que viajan al principio de la trama, lo que hoy conocemos como “precuelas”, y que Asimov escribió poco antes de su muerte, en 1992. Hay material para años y más años, episodios y más episodios. Y los 80 prometidos por Goyer no suenan descabellados en función de la envergadura y el tamaño del proyecto. Pero a juzgar por la primera temporada, es difícil imaginar que esta enorme pero un tanto desangelada estructura se pueda sostener durante tanto tiempo. Habrá ver qué dice la “psicohistoria” respecto al futuro de la serie, pero desde el presente se lo ve bastante complicado.
+
+
+
+
+Diego Lerer
+
+
+
+
+Diego Lerer es crítico de cine. Fue editor del suplemento Espectáculos del diario Clarín y edita el blog Micropsia. En Twitter es @dlerer
+
+
+

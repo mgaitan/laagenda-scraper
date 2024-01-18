@@ -1,0 +1,1 @@
+../../contenido-18759-placer-equidistante.md

@@ -1,0 +1,1 @@
+../../contenido-15095-la-mente-sobre-la-tecnica.md

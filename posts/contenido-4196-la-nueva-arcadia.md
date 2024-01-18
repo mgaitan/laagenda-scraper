@@ -1,0 +1,176 @@
+# La nueva arcadia
+
+**Los daban por muertos, sepultados bajo riffs de Led Zeppelin y odiseas de Pink Floyd, cuando las armonías de los Beach Boys volvieron a brillar en Sunflower.**
+
+11 de marzo de 2021 - ANIVERSARIO
+
+_por PABLO S. ALONSO_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4196-la-nueva-arcadia
+
+
+
+La oportunidad de un lucrativo contrato con la Deutsche Grammophon se perdió cuando Brian habló ante la prensa de la malaria comercial por la que el grupo estaba atravesando. De igual forma, les dijeron no CBS, MGM y Polydor. Pero Reprise, presidido por Mo Ostin, admirador de Wilson, estaba interesado en escuchar nuevo material y, sobre todo, averiguar si seguía siendo un genio en sus cabales, algo en duda a juzgar por las historias que circulaban sobre Brian. Este recibió a los suits, les mostró el estudio y les hizo escuchar grabaciones en las que estaban trabajando. Todo salió bien a excepción de un pequeño detalle: Brian los atendió con la cara completamente verde.
+
+
+
+
+Stephen Desper, por entonces ingeniero de grabación del grupo, le contó a Peter Amis Carlin, biógrafo de Wilson: “Brian era el perfecto caballero, muy astuto y muy educado, solo que con su cara pintada de verde. Y él sabía perfectamente qué estaba haciendo. Pero la cosa más graciosa fue que nadie dijo nada”. Era su particular forma pasivo-agresiva de expresar fastidio por la presión que un nuevo contrato iba a imponer sobre él. Una vez que los ejecutivos se despidieron, Nick Grillo, entonces manager de la banda, explotó: “¡Brian! ¿Qué carajo estás haciendo?” Como un chico que quiere testear hasta dónde puede tirar de la cuerda, Brian respondió “Sólo veía qué podía pasar”.
+
+
+
+
+The Beach Boys estaban terminando la década muy distinto a cómo la habían transitado tan solo tres años atrás, cuando “Good Vibrations” los había llevado por tercera vez al primer lugar del ranking de simples. Después de la debacle del proyecto Smile en 1967, Brian dejó de ser nominalmente el productor del grupo, aunque siguió marcando la dirección y componiendo la mayoría de los siguientes tres álbumes: los señeros lo-fi Smiley Smile y Wild Honey (ambos del ‘67) y el plácido Friends (1968). Cada uno de estos pequeños grandes discos tuvo una performance cada vez más decepcionante en su país.
+
+
+
+
+Aunque había abandonado las giras en 1964 para concentrarse en el estudio, Brian retiró a la banda a último momento de Monterey Pop, festival del que integraba la junta organizadora. De golpe, pasaron a ser vistos como un anacronismo. Al comenzar 1969, Brian le propuso a sus compañeros acortarse el nombre a, simplemente, Beach. “Ya no somos chicos, ¿no? ¡Somos hombres!”, proclamó, pero no tuvo quórum.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/38730/4d29dd80-730f-4bd9-aeb5-d5f78a39878d.jpg)
+
+
+
+
+El 17 de junio de 1969 habían sido el primer grupo occidental en tocar en Checoslovaquia después de la invasión soviética del año anterior. Alexander Dubček, la cabeza de la Primavera de Praga, estaba entre el público mientras los Beach Boys -recibidos por los jóvenes checos como heraldos de Occidente- le dedicaban “Break Away”, el single que habían editado en Estados Unidos el día anterior. Brian Wilson había puesto todo de sí, pero no pasó del número 63 en la Billboard, mientras que en el Reino Unido lograba un número 6. Los shows en su propia patria estaban muy lejos de las giras triunfales de ayer nomas. Para peor, aun habiendo tenido un hit en 1968 con “Do It Again”, cuando el contrato se venció en 1969 Capitol reaccionó a una demanda de la banda por mala liquidación de regalías borrando todo su catálogo de las disquerías.
+
+
+
+
+Ni siquiera el propio progenitor de los hermanos Wilson creía en ellos. Murry Wilson, uno de los padres más nefastos de los que se tenga registro en el mundo del espectáculo, pensó que lo mejor era tomar el dinero y huir. Sin tener el poder legal para hacerlo, presionó a Brian para vender los derechos editoriales de todas las canciones que había registrado por 700 mil dólares de entonces, menos de cinco millones actuales, todos encanutados por Murry, quien murió en 1973. Actualmente, esos temas valen decenas de millones.
+
+
+
+
+Para sumar tensión, a principios de agosto se sucedieron en Bel Air los asesinatos dirigidos por Charles Manson, amigo de Dennis Wilson. Manson llegó a grabar en el estudio del grupo. “Tenía talento musical”, opinó Desper, ingeniero de las sesiones, guardadas bajo siete llaves. Los Beach Boys habían grabado un tema de Manson, “Cease to Exist”, retitulado y firmado a solas por Dennis como “Never Learn Not To Love”, editado en febrero en el álbum 20/20. En septiembre, Charlie hizo llegar telefónicamente una amenaza de muerte a Dennis, pidiendo más dinero. Manson fue detenido en diciembre pero Dennis, siempre temeroso de alguna represalia contra su familia, se negó a declarar en el juicio.
+
+
+
+
+Por eso, la firma el 18 de noviembre de un nuevo contrato con Reprise -donde pesó la recomendación de Van Dyke Parks, colaborador de Brian en Smile y entonces trabajando en Reprise- auguraba a 1970 como un reboot para The Beach Boys. Década nueva, sello nuevo, vida artística nueva.
+
+
+
+
+¿Qué es lo que hace que, a cincuenta años, hablemos de Sunflower? Es el mejor álbum de The Beach Boys, si por ellos entendemos a un grupo de seis intérpretes y autores y no a los “fucking mensajeros” de Brian Wilson, como alguna vez los definió Dennis, lo que deja afuera de la competencia a discos solistas virtuales de Brian como Pet Sounds y The Beach Boys Love You (1977).
+
+
+
+
+Sónicamente, Sunflower se beneficia de la coordinación general sonora de Stephen Desper. Las voces, dobladas o triplicadas como era habitual, suenan en estéreo (Brian, por ser casi sordo de un oído y por seguir el dictum de su ídolo Phil Spector, prefería el mono) y ultra-comprimidas: traen felicidad, calma y, sobre todo, amor por, entre otras cosas, el mero hecho de hacer música. Por cercanía y aportes grupales, Sunflower es el Abbey Road de los Beach Boys, pero con dieciséis canales en vez de ocho: los estudios ingleses por entonces andaban a la zaga de los estadounidenses. De hecho, entre la mucha música inédita que grabaron por entonces, hay una versión de “You Never Give Me Your Money”, como detalla Keith Badman en su libro sobre el grupo.
+
+
+
+
+Las canciones de Sunflower comenzaron a grabarse en enero de 1969, precediendo al último material que sería editado por Capitol. Paradójicamente, un contrato de 250 mil dólares por cada álbum nuevo y con la garantía de autonomía artística (los masters son propiedad del grupo) comenzó con un traspié: aunque no tenía derecho legal para hacerlo, en febrero y mayo de 1970 Reprise rebotó las dos primeras versiones de Sunflower, tituladas Add Some Music. No queda lindo decirlo, pero el sello tenía razón y Sunflower, tal como lo conocemos y fue aceptado por Reprise en julio de 1970, es muchísimo mejor que lo originalmente ofrecido.
+
+
+
+
+En lo comercial, Sunflower fue una decepción total. Ya en febrero, el primer single, “Add Some Music To Your Day”, folk que dialogaba con Crosby, Stills, Nash & Young pero cuyas armonías portaban una luminosidad inalcanzable para el supergrupo, quedó afuera del Top 50. “Slip On Through”, el segundo adelanto, ni siquiera charteó. Sunflower salió el 31 de agosto de 1970 y apenas llegó al lugar 151 de Billboard, donde aguantó un mes, y al 29 en el Reino Unido, beneficiado por un tema extra, la segunda versión que la banda había hecho de “Cotton Fields” de Lead Belly: esta es la configuración que Odeon Pops, perteneciente a EMI, editó en nuestro país en 1971.
+
+
+
+
+Artísticamente, fue un momento único: Brian Wilson, aunque ya había tenido una internación por motivos psiquiátricos, todavía estaba prolífico, aunque evitaba ser la voz líder en las grabaciones. Por lo general, iniciaba canciones y producciones que luego otros (su hermano Carl, Al Jardine, y Bruce Johnston, reemplazante de Brian en las giras) completaban. Brian desparramaba magia y delegaba los laureles.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/38731/9f04d0c1-71ac-4573-aaa1-50588f0caf42.jpg)
+
+
+
+
+The Beach Boys modelo 1972 (sans Brian).
+
+
+
+
+“This Whole World” es un buen ejemplo. “Esa canción vino de lo profundo en mí, del sentimiento que tenía de que todo el mundo debería basarse en el amor”, le dijo Brian al escritor Ben Greenman para sus memorias I Am Brian Wilson, editadas en castellano con el título-homenaje a Chevy Chase Yo soy Brian Wilson… y tú no. Para cuando el fade comienza a los 1:45, “This Whole World” ya ha pasado por cuatro modulaciones, regresando sin esfuerzo alguno a la tonalidad original. Brian compuso, produjo, tocó el piano, cantó la primera frase y es preponderante en el arreglo vocal, pero la voz principal quedó a cargo de Carl.
+
+
+
+
+El ya mencionado “Add Some Music To Your Day” incluye a los seis integrantes alternando líneas vocales. La letra, en su mayoría coescrita entre Mike Love y Joe Knott, un amigo de Brian, pondera la ubicuidad y la necesidad de la música: ¿qué es un día (¿qué es la vida?) sin aunque más no sea un poco de música?
+
+
+
+
+“All I Wanna Do” ya había tenido su embrión en 1968. En marzo de 1969, la canción fue regrabada en los estudios Gold Star, sede de muchísimos triunfos artísticos de Brian. Un sitar fue reemplazado por una guitarra de doce cuerdas a cargo de Carl Wilson, pero lo más determinante es el piano eléctrico Rockisichord también a cargo de Carl que -magia de Desper mediante- suena como un Chamberlin o Mellotron. La canción se anticipa al dream pop o al shoegazing más tranquilo. Y así como en otras sesiones de Sunflower participaron veteranos de la Wrecking Crew -el team de sesionistas cracks- como los bajistas Ray Pohlman o Lyle Ritz, aquí tocaron Hal Blaine en batería y el pianista Mike Melvoin, el padre de Wendy, de The Revolution.
+
+
+
+
+Blaine reaparece en “Our Sweet Love”, la evolución de “Our Happy Home”, también esbozada en 1968. Esto es lo más cercano que el grupo estuvo de recrear la vibra de “God Only Knows”. Con el piano en staccato de Brian y el arreglo de cuerdas -otra muestra de Brian cediendo espacios- del talentoso Michel Colombier, “Our Sweet Love”, según le dijo a la revista Goldmine Al Jardine, coautor junto a Brian y Carl, “fue una que terminamos sin Brian (…) Nos volvimos completistas de ideas.”
+
+
+
+
+“At My Window” fue iniciada por Jardine en base a la música de “Raspberry, Strawberrys”, una grabación de The Kingston Trio, los mismos que habían inspirado a Jardine para adaptar “Sloop John B” para Pet Sounds. Para contribuir a la dinámica grupal, la melodía definitiva fue cantada por un muy comprimido Bruce Johnston, con Brian intentando hablar unas frases en francés. En la concertina, un instrumento de la familia de los acordeones, estuvo Carl Fortina, el mismo que se hizo cargo de los fuelles en Pet Sounds. Cuando las voces armonizan en el estribillo, cuesta creerles que no se tomen muy en serio la presencia de un ave en su ventana, en una letra inspirada en los pájaros del fondo de la casa de Brian.
+
+
+
+
+La contribución final de Brian para Sunflower fue su cierre: “Cool Cool Water” se elaboró sobre la versión grabada durante las sesiones de Wild Honey, y a su vez se desprendía del último tema grabado, sin terminar, para Smile, “I Love To Say Da Da”. Brian realiza un tour de forcé en piano, órgano y algunas de las varias pistas de Moog, incluyendo sonidos tomados de fuentes de agua cercanas. Su voz complementa la de Mike Love: una clave del éxito artístico de Sunflower es que hay poco (y lo poco es bueno) del reaccionario primo de los Wilson.
+
+
+
+
+Sunflower también es engalanado por dos canciones de Bruce Johnston, músico al cual habían intentado reemplazar en 1969 -dejaría el grupo en 1972 y sería convocado para salvar las papas en 1979-. “Deirdre”, con una mínima contribución de Brian en la letra, es una canción pop poco menos que perfecta, sobre todo en el estribillo. “Tears in the Morning” tiene un arreglo -otra vez a cargo de Colombier- adecuado para el fundador de Reprise, Frank Sinatra.
+
+
+
+
+La tercera pata compositiva -o segunda, al considerar su aporte- es de Dennis Wilson. Sunflower abre con su “Slip On Through”. La sensación de desplazamiento que produce la sincopa de la batería en las estrofas se resuelve poderosamente en los estribillos. Y si las voces de los seis Beach Boys suenan como nunca antes, qué decir del cencerro reverberante. More cowbell.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/38732/cc44be2f-ba6b-45aa-ab0c-ca1f5ca64974.jpg)
+
+
+
+
+Los cinco muchachos (algo crecidos) de la playa, en su elemento.
+
+
+
+
+“Got to Know the Woman”, con tres voces femeninas en coros, deja en evidencia a Dennis riéndose de su propio machismo, mientras el estribillo emula una progresión armónica por tonos del libro de su hermano mayor, especialmente de “Good Vibrations”, suficiente para alejarla de un rock and roll genérico de la época.
+
+
+
+
+De la misma forma, “It’s About Time”, con una mano de Jardine en la música, y letra en su mayoría del ajeno al grupo Bob Burchman, más la batería de Earl Palmer (quien grabó los clásicos de Little Richard y también con la Wrecking Crew, además de discos de Lalo Schifrin) y congas santanescas configuran, tras una confesión de hedonismo, un llamado a la hermandad y la ayuda entre iguales, tan típica de la Era de Acuario como de David Lebón.
+
+
+
+
+Pero lo mejor que Dennis escribió para los Beach Boys fue “Forever”, con letra de Gregg Jakobson. Con su armonía descendiente bachiana, “Forever” se acerca a la canción de amor definitiva: escúchese la explosión del coro de voces -los tres Wilson y su primo- durante el estribillo.
+
+
+
+
+La foto de tapa fue tomada en una propiedad de Dean Martin por Ricci, uno de sus hijos, a quien Carl le produciría un disco en 1977. Allí se ve al grupo con parte de su descendencia. Brian recordó en sus memorias: “En la foto estaba en el centro de la banda pero para cuando el disco salió, no estaba el centro nunca más. Algunos dirán que me alejé del centro. Otros dirán que fui empujado. Quizá fue un poco de ambos”.
+
+
+
+
+La suerte de The Beach Boys comenzaría a revertirse en 1971 con Surf’s Up, cuyo tema central es una de las canciones malditas de Smile, pero también con su aparición como invitados de The Grateful Dead en el Carnegie Hall, entre otras movidas de efecto. De golpe, y con el aporte importante del nuevo manager Jack Rieley, que buscaba erradicar la vergüenza en el público que era capaz de comprar Sunflower pero esconderlo entre vinilos de Led Zeppelin y Jethro Tull, los (ya no tan) chicos de la playa volvieron al estar en la onda.
+
+
+
+
+Entre lo quedó afuera de las configuraciones previas de Sunflower y el resto del material cosechado en esa época, hay un corpus de canciones que álbumes posteriores y varias compilaciones de rarezas -incluyendo dos box sets- no alcanzaron a agotar, ni siquiera considerando los piratas que circulan. De hecho, se ha compilado un nuevo box set -del cual el año pasado se adelantaron tres temas por streaming- del período comprendido entre 1969 y principios de la década siguiente.
+
+
+
+
+Titulado Feel Flows, como un tema de Carl de 1971, dicha caja no solo incluye todas las canciones que quedaron colgadas, o material para un álbum country inédito que Brian Wilson produjo para Fred Vail, el road manager de la banda por aquél entonces: según sus compiladores, redefine el lugar que ocupan en ese momento de la historia del rock y el pop. Capitol Records ya dio el OK. El problema que pone en riesgo su salida está, otra vez, en algún lugar dentro del grupo, uno de los más disfuncionales de la historia, factor que los lazos familiares exacerban. Cuando se trata de las relaciones internas de The Beach Boys, falla lo que sobra en su música: armonía.
+
+
+

@@ -1,0 +1,1 @@
+../../contenido-26561-locos-x-el-rating.md

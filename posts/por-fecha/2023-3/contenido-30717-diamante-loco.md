@@ -1,0 +1,1 @@
+../../contenido-30717-diamante-loco.md

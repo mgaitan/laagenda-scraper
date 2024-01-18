@@ -1,0 +1,116 @@
+# Churrasco de guanaco
+
+**por ANDREA CALAMARI**
+
+18 de junio de 2021 - Miradas
+
+_por _
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/5925-churrasco-de-guanaco
+
+
+
+En un saladero instalado a orillas del río Ramallo, en la provincia de Buenos Aires, un chico de 17 años está tendido en la cama leyendo. Es un libro publicado en Francia hace casi cien años sobre filosofía política, un tratado sobre la libertad e igualdad de los seres humanos por medio de un acuerdo que involucra al Estado y a los ciudadanos. Está leyendo “El contrato social” de Jean-Jacques Rousseau, y lo interesante son las circunstancias. Estamos en 1848. El joven se llama Lucio V. Mansilla (la V de Victorio) y es el hijo del dueño del saladero. Está ahí porque fue castigado. Debería estar salando carne pero se ha tendido a leer. El saladero es propiedad familiar y el que lo descubre leyendo es su padre Lucio N. Mansilla (la N de Norberto) que había sido un coronel y héroe de la independencia nacional. Ya es famoso lo que le dijo:
+
+
+
+
+“Mi amigo, cuando uno es sobrino de don Juan Manuel de Rosas no lee ‘El Contrato Social’ si se ha de quedar en este país; o se va de él, si quiere leerlo con provecho.”
+
+
+
+
+Juan Manuel de Rosas es hermano de su madre y es, desde antes de que él naciera, gobernador del territorio más grande y el principal caudillo de la confederación de provincias que se convertirá en la Argentina. Había sido administrador de campos y estanciero, había sido capitán de gauchos y comandante en la campaña al desierto que barrió con todos los caciques y tribus que se interponían. Solo quedan los más bravos, son los ranqueles que bajaron desde la cordillera y con los que tuvo que aprender a negociar el Gobernador y Restaurador de las Leyes e Instituciones de la Provincia de Buenos Aires. El tío de Lucio no era un hombre fácil, la madre tampoco.
+
+
+
+
+Agustina Ortiz de Rosas, hermana menor del gobernador, había sido la belleza de la federación y a los quince años se casó con un general que ya tenía más de cuarenta. A los nueve meses nacería su hijo Lucio, el primero de seis, el mismo que ahora está castigado. Resulta que el primogénito se enamoró de Pepita, una hija de inmigrantes que trabajaba como modista, poca cosa para esta familia. Los jóvenes organizaron una fuga a Montevideo hasta que doña Agustina descubrió los planes. La chica terminó en un convento y el chico en el saladero. Aunque lo del saladero fue después: primero pasó por la cárcel, luego a una estancia familiar, después a la casa de un tío donde se enamoró de la prima y finalmente sí, lo encontramos en el saladero, tendido en la cama.
+
+
+
+
+El sobrino del Restaurador tiene nombres de emperadores romanos: Lucius Victorius, todo su linaje es de hombres de acción pero él es un dandy. Quizás tiene razón el padre y este no sea un lugar para él: saldrá de viaje para leer con provecho. Con 18 años y una pequeña fortuna a su disposición parte hacia Europa, Egipto, Oriente y con eso está inaugurando una tradición: la de los porteños acomodados que salen a ver cómo está hecho ese mundo, que no está recién confeccionado como este, y del que han leído todo. Mansilla no va a dejar de viajar y escribir durante toda su vida.
+
+
+
+
+Cuentan que lo que más le gusta es “el arte de la conversación’’ y eso es lo que traslada a sus escritos: sus lectores pueden sumergirse en unas charlas distendidas como si estuvieran en un club o en un café de Buenos Aires. Fue andando por ahí como Mansilla se hizo escritor. Con cada regreso también se iba construyendo un nombre más allá de sus apellidos ilustres y se convirtió en un personaje público: fue periodista, fue político, fue militar.
+
+
+
+
+Cuando el rosismo cayó, él quedó del lado de los que lo hicieron caer. Ahora el presidente es Sarmiento -en algún momento compañero de viaje, también escritor- y Mansilla espera que lo nombre ministro de guerra. Pero hay otros planes para él. La Argentina es un concepto nuevo, hasta hace muy poco esto era un rejunte de provincias en disputa, cada cual con su caudillo. Sarmiento dice que quiere hacer una nación y para eso también hace falta definir sus fronteras. El problema más grande está al sur, no en la Patagonia sino mucho más cerca: los indios ranqueles dominan una zona más grande que la que el poder central quisiera y hay que incluirlos -“pacificarlos” es la palabra usada- o hacerlos bajar. Cuando Rosas gobernaba con la suma del poder público el trato con los indios lo manejaba a discreción: los estancieros debían entregar ganado, aguardiente y caballos una vez por mes y con eso se conseguía la paz.
+
+
+
+
+![](https://cdn.feater.me/files/images/53760/7262a50a-ae51-4b86-acf3-5e0833611c79.jpeg)
+
+
+
+
+Ahora Mansilla es nombrado comandante de las fronteras del sur -que no es otra cosa que esa zona de Córdoba que está entre los ríos Cuarto y Quinto- y partirá en una expedición de veinte días que terminará con un primer mapa topográfico de la zona y la primera crónica nacional que se llamará Una excursión a los indios ranqueles. Los dos, hechos por Mansilla, que todavía no tiene 40 años.
+
+
+
+
+Una de sus encomendaciones es entrevistarse con el cacique ranquel Panghitruz Güer, al que él conoce con otro nombre que le resulta muy familiar: Mariano Rosas. La historia ya la había contado el propio Mansilla: Panghitruz Güer era más o menos de su edad y nació en el medio de la pampa, hijo de un cacique y una cautiva huinca -una mujer blanca, del pueblo invasor y llevada a vivir a las tolderías-. A los nueve años una partida militar tomó prisioneros a todos los niños de su tribu y, como era la costumbre, los llevó frente al gobernador. Cuando Juan Manuel de Rosas supo que uno de esos chicos era el hijo de un cacique famoso lo tomó como ahijado, lo bautizó, le cambió el nombre y lo mandó a trabajar a su estancia. El chico fue manso y obediente con el patrón, aprendió a ensillar a los caballos “como hacen los gauchos”, también a leer y a escribir bajo la vigilancia dura que le imponía su padrino, que no era solo el hombre más temido por los indios sino también por toda la confederación. Apenas tuvo la ocasión -que no fue pronto, tal vez diez o doce o trece años- juntó a los ranqueles que pudo y se escaparon una noche. Ahora es un hombre maduro, es también el nuevo cacique y con él tendrá que parlamentar el sobrino de su captor y convencerlo de trasladar su comandancia.
+
+
+
+
+A Mansilla el plan de excursión lo entusiasma, primero “por cierta inclinación a las correrías azarosas y lejanas” y segundo, porque siente una irresistible necesidad de ver con sus “propios ojos ese mundo que llaman Tierra Adentro”. Ese mundo es todo lo que él desconoce, sabe que no se parece en nada a Buenos Aires, El Cairo, París o Asunción: en este país está todo por hacer.
+
+
+
+
+“Digan lo que quieran, si la felicidad existe, si la podemos concretar y definir, ella está en los extremos.” La primera experiencia extrema de la que habla es el churrasco de guanaco y aquella tortilla de huevos de avestruz que nunca va a olvidar y que comió en la improvisada mesa bajo una toldería. Tanto lo exalta el viaje que está decidido: va a escribir todo lo que viva, lo que vea, lo que recuerde, lo que piense y lo que escuche. Mansilla dice que los gustos se simplifican con el tiempo y se burla del joven superfluo que era. Le escribe a un amigo, pero también a los lectores. Mansilla sabe que sus cartas serán publicadas en un diario porteño en forma de apostillas y entonces quiere entretener al público como antes lo hacía en los cafés y después lo va hacer en sus columnas. Ya lo había dicho: no puede moverse en silencio.
+
+
+
+
+![](https://cdn.feater.me/files/images/53761/8b1a081b-ad73-4192-8c3a-d321f85f2ae5.jpeg)
+
+
+
+
+Tolderías ranqueles.
+
+
+
+
+Después de los ranqueles Mansilla será echado del ejército, hará periodismo y será diputado, se batirá a duelo, será diplomático, buscará oro en el Paraguay, escribirá sus causeries (breves relatos autobiográficos con la forma de charlas), seguirá viajando y escribiendo, irá muchas veces a Europa y desde allá sabrá de la muerte de su esposa -la prima que había conocido a los 17- y después de las de sus hijos. Escribirá sus memorias que no pasarán más allá de su juventud. Con el nuevo siglo y más de 70 años, Mansilla decidirá quedarse a vivir en Francia y gastar el tiempo que le queda como flanêur sudamericano en París. Antes de quedarse ciego seguirá escribiendo sobre un mundo que está cada vez más lejano al que conoció durante aquellos días en las tolderías. Ahora escribe sobre literatura y política, sobre mujeres y tecnología. Le interesan la electricidad y el funcionamiento del teléfono, imagina que el fonógrafo y el fenaquistoscopio se combinan y de ahí sale un cine sonoro. Lo que quedó atrás y en el sur parece ser de otro mundo y de otra vida.
+
+
+
+
+En aquel mundo había gauchos, indios, cautivas y paisanos. Había guitarreros, peones, matacos, caciques, troperos y patrones, también desertores. Había ranchos, palenques, fortines, tolderías y corrales. Estaban los malones. Había tropeles, fronteras inciertas, bendiciones y padres nuestros, brujerías y aves marías, endiablados y gualichos. Había fusilados. También jinetes, cinchas, alforjas, verijas, espuelas, cencerros y tropillas. Rienda, trote y galope. Había soldados, fusiles, escopetas y carabinas, facones, cuchillos y puñales bajo el poncho. Había viruelas, tísicos, purgantes y curanderos. Los remedios eran buches de avestruz. Había naipes, primera y truco, pingos, potros, mate, cigarros, riñas y lancoteadas. Había paja, cuero, chala, chicha y piquillí. El paisaje eran montes y pajonales: gramilla, espinillos, guadales, cañadas y cañadones. Había algarrobos, caldenes, chañares, lagunitas con gansos, patos y gallaretas. También moscas, chinches, pulgas y ratones. Había jagüeles, espadañas y medanitos. Había matacos, chasquis y emisarios, baqueanos, frailes, arrieros y ladrones. Había ahijados y compadres. Había churrasco, caldo, zapallo y choclo, maíz tostado y algarroba para el postre, fogones con vino y aguardiente. Había intemperie y lontananza: puro viento, cielo y tierra. Toldos, mantas y ponchos para guarecerse, botas de potro, faja, pañuelo y chiripá. Boleadoras para cazar: guanacos, avestruces y mulitas. No había caminos sino rastrilladas, arribeños y abajeños, sudarriba y sudabajo. Las distancias se medían en leguas.
+
+
+
+
+Hace 80 años el lugar donde nació era una confederación de provincias donde mandaba un tío suyo. Hace 65 años pasaba sus días leyendo todo lo que llegaba de Europa. Hace 60 años que el tío fue derrotado y el país quiso ser una república. Hace 43 años que cabalgaba por unos campos desiertos que, él imaginaba, tendrían “un porvenir grandioso”.
+
+
+
+
+Hace 43 años que escribió “Una excursión a los indios ranqueles”, el libro que lo va a hacer inmortal. Es el 8 de octubre de 1913 y Lucio V. Mansilla, el excursionista, se muere de viejo en una casa en París.
+
+
+
+
+\_\_\_
+
+
+
+
+ANDREA CALAMARI
+
+
+
+
+Es doctora en Comunicación. Es docente de Audiocreativa y el Taller de Lectura y Escritura de la carrera de Comunicación Social de la Universidad Nacional de Rosario. Escribe en Jot Down cultural magazine y conduce el podcast El oficio de leer. En Twitter es @AndreaCalamari
+
+
+

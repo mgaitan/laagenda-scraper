@@ -1,0 +1,81 @@
+# Yo la quise
+
+**Siempre me pareció absurdo vivir tan lejos del suelo, metros y metros hacia arriba, sin contacto con la tierra.**
+
+16 de marzo de 2021 - SÁBADOS DE SÚPER FICCIÓN
+
+_por JOSEFINA GIGLIO_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4344-yo-la-quise
+
+
+
+¿Decíamos? Como decíamos ayer, dicen que dijo Miguel de Unamuno en 1930 frente a su clase al volver después de siete años de exilio, aunque también lo habría dicho fray Luis de León por motivos similares en el siglo XVI. Se ve que los castellanos somos largueros para las explicaciones. O será que siempre queda la posibilidad de retomar el hilo, de volver a contar lo que veníamos contando aunque ya no seamos esos ni sepamos cómo termina el cuento. Tengo una buena historia pero me falta ella. Me falta su olor, el vestido que mejor le queda, me falta el tono de su voz cuando pide por favor (¿pide por favor?) que le alcancen el pan o la sal en la mesa. Me falta el color de su piel.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/41051/9171a073-b21c-4751-bc86-9a4048fa7e1c.png)
+
+
+
+
+Debería sentarme a escribir o ir a la cocina, servirme otro whisky y sentarme a escribir, pero insisto con la frente apoyada en el vidrio frío como si eso pudiera poner las cosas en su lugar, ordenar este espacio lleno de imágenes superpuestas, ideas, fragmentos de canciones o de viejos libros, interrupciones de la radio… Sé que atrás de todo el ruido está la historia, pero falta que la limpie para poder contarla. Siento un latido fuerte en mi ojo izquierdo, y cierta ansiedad que me da calor, un retumbar en el pecho, un latido que se desacopla. Mejor será salir, estirar un poco las piernas y comprar puchos antes de intentar escribir. Espero el ascensor. Es lento. Es una caja angosta de metal, con una puerta plegadiza, sin mirilla. Aprieto el botón de planta baja con el codo; es una vieja manía: me da asco tocar lo que han tocado otros antes: los pasamanos en el subte, los botones de los ascensores y de los porteros eléctricos, los picaportes de los baños públicos. En el ascensor, además, siento el temor de quedarme encerrado, o que se
+
+
+
+
+corten de golpe todos los cables y caer. Pero no, el artefacto responde fiel a su mecánica y me deposita, con cierto vaivén asmático, en el hall de entrada. Salgo a la calle. Siempre me pareció absurdo vivir tan lejos del suelo, metros y metros hacia arriba, sin contacto con la tierra. ¿Qué creemos que estamos pisando cuando no estamos en tierra? De noche todos los gatos son pardos, decía mi viejo casi con desprecio. O sea, de noche todo da lo mismo, tanto los buenos como los que no. También era su forma de referirse a las mujeres de mala vida, que hacían lo que querían por las noches, mientras los demás apenas mirábamos el noticiero antes de dormir.
+
+
+
+
+Para mí, la noche es todo lo contrario. Hay otros colores, hay más palabras para nombrar las cosas de siempre; de noche me animo, soy poderoso, puedo volar desde el décimo piso. De noche todavía puede
+
+
+
+
+suceder algo. Es el momento de las promesas. El Lezama ya cerró. Apenas son las dos de la mañana. ¿Hoy es viernes? ¿O es sábado? No puede ser que cierre tan temprano. Quizá sea domingo, y ya todo haya terminado. No tengo hambre, pero sigo hasta el Británico para ver si hay algún conocido. No hay nadie. Saludo al Gallego, cansado ya, que está bajando la persiana y apenas asiente con la cabeza. El ruido oxidado de la cadena me responde. Después el golpe de la persiana de metal contra el escalón de mármol de la entrada, el rebote seco, la patada del Gallego que la empuja hasta el final. Veo que se agacha trabajosamente sobre sus várices para poner la traba, un candado grueso que fija la persiana en la anilla de hierro amurada en el piso. Ya está, no queda nadie en la calle, solo algunos gatos pardos que me miran desde las escalinatas del anfiteatro.
+
+
+
+
+Camino hasta Independencia, encuentro un kiosco, compro cigarrillos y un encendedor nuevo. Es una cábala: cuando estoy estancado en algo, compro un encendedor nuevo. Vuelvo al departamento, pongo la radio, música clásica, me siento. Miro la Olivetti. Tengo una fecha de entrega, un contrato que cumplir. Mejor me voy a acostar. Mañana pensaré en ella. Tenía la piel de un blanco isabelino (¿isabelino o victoriano?) que contrastaba perfecto con su pelo negro, partido al medio, pesado y lacio hasta los hombros. Tenía las cejas espesas, los ojos oscuros y las caderas anchas, con unos huesos fuertes que la hacían parecer más alta de lo que era.
+
+
+
+
+Era callada, pero cuando hablaba la gente se daba vuelta para mirarla. Tenía una voz preciosa, ronca y brillante a la vez, como después de un trago de ginebra. A veces se recogía el pelo con un pañuelo de seda que ataba en la nuca con cierta coquetería burlona que la hacía resaltar entre las modositas del curso de Introducción a la Psicología que cursábamos en el viejo edificio de Humanidades. Yo me había anotado en Historia, pero me interesaban algunos seminarios de Psicología –carrera que reunía a las chicas más lindas de la facultad–, así que cursé las dos durante los primeros años.
+
+
+
+
+En la primera asamblea que compartimos me hice notar. Dije algo pretencioso, me miró, nos vimos. Ella era tan linda. Y tan seria. Usaba un vestido corto con mocasines marrones, muy masculinos, y el pelo suelto. No se pintaba. Ese día yo repetí alguna frase libertaria que había oído por ahí, y ella sonrió levantando apenas la comisura izquierda del labio, un gesto que yo aprendería a conocer muy bien, un gesto de cuando no podía creer la tontera que estaba escuchando.
+
+
+
+
+Pasaron más asambleas, más encuentros en los pasillos y finalmente la invité a salir. Fuimos a comer una pizza a Bacci y después hice lo que hacía siempre: la llevé a Plaza Moreno. Era un clásico de nuestra educación sentimental de aquellos años. Todos los nativos –en La Plata cualquiera jugaba de local apenas con un par de meses de residencia en alguna pensión mugrienta cerca de la estación del tren– llevábamos a los recién llegados a conocer Plaza Moreno; las estatuas de alrededor, los secretos masones escondidos en los muros neogóticos de la Catedral, las leyendas sobre la fundación de la ciudad.
+
+
+
+
+Yo (¿quién me habrá llevado a mí por primera vez?) había enriquecido el relato estándar que circulaba con mucho de información histórico- política, referencias literarias y una cantidad importante de citas robadas a amigos, estudiantes de arquitectura algunos, astrólogos y chamanes otros, sobre la ironía de la ciudad perfecta en el plano, pero maldita en su destino. (Ahora que lo pienso es lógico que La Plata sea esa ciudad tan intensa. Todos los recuerdos que tengo sobre esos años son exuberantes, plenos, encofrados, satisfechos de sí mismos.
+
+
+
+
+¿Nadie tomó nota de ese sino trágico: la ciudad perfecta en su diseño arquitectónico, pero maldita en su destino político, la que nunca le daría un presidente a la República? Es un buen tema para un ensayo; lo anoto en mi lista de posibles.) Para los que veníamos del interior a estudiar, era una ciudad de una escala perfecta, nos conocíamos todos como en un pueblo, pero podíamos inventarnos una vida nueva, una épica, éramos otros, éramos los que queríamos ser. Cuando La Plata nos quedó chica y ya nos aburrimos de ir a las mismas casas y a las mismas peñas, empezamos a ir a Buenos Aires. Entonces sí queríamos sentirnos anónimos y arriesgados. Íbamos a beber sangre a la Capital para volver a brillar en las peñas de los centros de estudiantes de Arquitectura o de Humanidades, volvíamos mejores, nuevos, más experimentados. Esa noche le mostré la Catedral, tan tétrica con sus afiladas torres a medio construir. La leyenda decía que cuando pusieran el último ladrillo el edificio se vendría abajo por un mal cálculo de base –después terminaron las torres y el campanario, es decir que solo era cuestión de plata–. Con esa excusa habían dejado los laterales y las torres a medio hacer: crecían helechos y plantas de palán palán con sus flores amarillas entre los altos muros de piedra y las palomas se comían la conchilla que los recubría, picoteando las paredes como presidiarios. Si hacíamos silencio (¿hicimos silencio?) se podía escuchar la arenilla cayendo sobre nosotros, como arena de otro tiempo. Era un escenario de Poe, ideal para enamorarse.
+
+
+
+
+Ilustraciones: María Roboredo
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/41052/743a7a04-6e48-40a4-9af7-989f13c1e0f7.jpeg)
+
+
+

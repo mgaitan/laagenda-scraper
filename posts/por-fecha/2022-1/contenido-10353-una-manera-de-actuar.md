@@ -1,0 +1,1 @@
+../../contenido-10353-una-manera-de-actuar.md

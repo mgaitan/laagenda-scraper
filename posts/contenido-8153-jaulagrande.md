@@ -1,0 +1,106 @@
+# Jaulagrande
+
+**“Cómo fue que las mariposas se convirtieron en bichos de alas grises que apenas levantan medio metro de vuelo se deshacen en el aire, caen al piso, muertos”.**
+
+21 de octubre de 2021 - Sábados de súper ficción
+
+_por Guadalupe Faraj_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/8153-jaulagrande
+
+
+
+Día 1
+
+
+
+
+Jaulagrande. Nadie quiere ir. A qué, piensa Boris y mira el cielo de aspecto enfermizo como si el sol estuviera dando los últimos rayos que le quedan. El camino está vacío. La línea por la que van corta la mitad o lo que a él le parece la mitad de ese paisaje sin color. Desde el asiento de atrás puede ver las nubes moverse lento, grandes hongos de humo copando el cielo. Tienen que doblar a la derecha y seguir por ripio hasta dar con la puerta principal de la base. Hay partes de pasto seco hasta donde llega la vista: poco crece en un lugar así. Lo único que se diferencia del tono monocorde del paisaje son los troncos negros, sin follaje. La hilera combada que se extiende sobre el final y que irradia brillo. Una luminiscencia suave que le da forma al bosque.
+
+
+
+
+1
+
+
+
+
+Aparece un ganso por el costado izquierdo y empieza a seguir la camioneta. Boris acerca la cabeza a la ventanilla, el animal corre y lo mira fijo, su plumaje es blanco, no hubiera imaginado que un ganso lograra esa velocidad con patas tan pequeñas.
+
+
+
+
+Tiene una mancha negra en el cuello con la forma de un corazón, de un puño. La camioneta acelera, el ganso desaparece.
+
+
+
+
+![](https://cdn.feater.me/files/images/99439/0c3ca2cd-b4be-4964-9aa0-01a4b9f79474.jpeg)
+
+
+
+
+El general Fresno maneja con la vista en el parabrisas. Hace unos días se enteró de que su destino sería Jaulagrande y desde ese entonces habla en voz baja, gesticula, no se lo puede oír. A Peggy le pasó lo contrario, habla en voz alta, consigo misma. Boris la escucha repetir Jaulagrande, Ofrenda, Caja. Pero su madre nunca da explicaciones. Sin embargo el chico supone que es algo a lo que hay que temer porque cuando ella dice esas palabras, su tono de voz decae y se queda mirando el piso como si le hubiera venido una imagen que no le gusta, una idea despreciable. Al rato Peggy mira a Fresno y se entusiasma, encuentra en su fisonomía alguna razón que la ordena, la magnetiza. Su madre lo confunde. Va de un estado de ánimo a otro, vive en dos lugares a pesar de habitar bases militares hace más de veinte años: adentro de una cueva y afuera de la cueva.
+
+
+
+
+Otra vez el ganso. Toma velocidad y queda en la misma ubicación que Boris, abre el pico y él le ve algo parecido a un segundo pico que produce un sonido agudo. Boris se ríe, podría hacerse amigo del ganso, piensa.
+
+
+
+
+—¡Qué grito! ¿Viste, Fresno? ¿Hace cuánto que no vemos uno de esos? —dice Peggy con la vista en la ventanilla—. ¡Con cuidado! Esto es un camino espantoso. Eso es lo que es.
+
+
+
+
+—No más que el anterior —dice el general.
+
+
+
+
+—Ni me lo digas, querido.
+
+
+
+
+2
+
+
+
+
+Hay olor. Vaho a amoníaco. Peggy se tapa la boca, tose, frunce la nariz, parece un conejo, una ardilla. A veces ella misma siente que es uno de esos animalitos inquietos que ya no existen —¿o existen y no sabe dónde están?—. En otra época, cuando los destinos de Fresno eran los de un militar en ascenso, y Boris no había nacido, viajaban de una base a otra por caminos de flora verde y húmeda donde había animales echados en el pasto. Vacas que los miraban pasar como si estuvieran arriba de una nave llevando prosperidad de un lado a otro. Fresno estacionaba la camioneta para estudiar el mapa y ella abría la puerta, se descalzaba, caminaba sobre el pasto carnoso, un colibrí aleteaba cerca, o no, está exagerando, no un colibrí, pero sí una mariposa. Cómo fue que las mariposas se convirtieron en bichos de alas grises que apenas levantan medio metro de vuelo se deshacen en el aire, caen al piso, muertos. Una vez, por el camino se cruzó una liebre, fue un momento dichoso, pudo verla correr, estirar las patas y avanzar con elegancia. Qué pacificador identificarse con ese animal, el corazón se le expandió queriendo salir. Cuando le venía nostalgia de esa época en la que habitaban bases que eran paraísos, la recordaba en voz alta, hablaba durante horas. Boris la observaba y ella lo esquivaba. Lo mantenía a distancia, le contaba algunas cosas, no muchas, las que ella quería y no las que él preguntaba. ¿Por qué no podemos ver eso?, decía él, y Peggy seguía de largo como si estuviera arriba de la nave de aquel entonces. Los pensamientos eran más ligeros que las preguntas de su hijo. Ahora se siente chiquita —no es más una liebre elegante, y no puede evitarlo—. Golpea con un puño la guantera de la camioneta: cómo pasó que el mundo se volvió igual a la tela de un vestido viejo. Quiere gritar, que ni Fresno ni Boris le digan una sola palabra, que ni se enteren de que está, quiere hacer lo que se le dé la gana y no sentir que alguien la metió adentro de una caja y le dejó cinco agujeros para respirar y un poco de espacio para moverse. Se le cierra la garganta, le pica, le falta el aire. Jaulagrande, dice en voz alta. El sonido queda suspendido como las nubes del cielo. Fresno da un volantazo a la derecha.
+
+
+
+
+—¡Jaulagrande una mierda! ¡Dejá de repetir Jaulagrande, carajo, Peggy!
+
+
+
+
+Boris escucha el lloriqueo de su madre que suele empezar bajito y alborotarse en la mitad hasta convertirse en un llanto. Busca en su mochila un pañuelo, algo para darle, revuelve.
+
+
+
+
+—¡Ceremonia en siete días y el que no está listo tiro en el culo! ¡Me oís! —dice el general.
+
+
+
+
+Ella se seca las lágrimas con una remera que acaba de darle Boris. Quisiera partirle un ladrillo en la cabeza a Fresno, pero siempre hay algo que se interpone entre la idea y la acción concreta, como si le apretaran un botón detrás de la oreja y ella se rearmara igual que una muñeca de aire. Las palabras de Fresno primero le molestan, después se convierten en pedacitos de algo bueno y tranquilizador. Consiguen que olvide lo que la llevó a ese estado lamentable. No todo está perdido, piensa y mira por la ventanilla: el reto de él la ubica, vislumbra cierta orientación. Si se lo propone podría regresar a esos días. A lo que eran juntos. Podría embellecer para la ceremonia, colaborar con Fresno. En caso de que ella misma sea una ofrenda, será por algo bueno, se dice, algo en favor de él y, en consecuencia, por su propio bien. ¿En qué puedo ayudarte, querido?, le gustaría decir.
+
+
+
+
+Guadalupe Faraj
+
+
+
+
+Guadalupe Faraj nació en Argentina en 1976. Formada en filosofía, es escritora y fotógrafa. Su primera novela, Namura, ganó el premio de novela corta Concejo de Siero, otorgado en España, en 2011, y fue publicada en Argentina en 2018. En 2019 su obra El año reptil recibió una mención en el concurso de Letras del Fondo Nacional de las Artes, y en la convocatoria 2020 del mismo certamen su novela Jaulagrande fue galardonada con uno de los premios especiales. Colaboradora en revistas literarias, de viajes y de psicoanálisis, Faraj dicta talleres de escritura y fotografía y vive en Alberti, provincia de Buenos Aires. Jaulabrande acaba de ser publicada por Fiordo.
+
+
+

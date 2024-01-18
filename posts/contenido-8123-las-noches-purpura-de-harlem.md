@@ -1,0 +1,71 @@
+# Las noches púrpura de Harlem
+
+**Se cumplen cincuenta años de Shaft: la película que cifró el blaxplotaition y la gloriosa banda sonora de Isaac Hayes.**
+
+02 de agosto de 2021 - Aniversario
+
+_por ín E. Graziano_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/8123-las-noches-purpura-de-harlem
+
+
+
+Nadie sabe distinguir entre una buena noticia y una mala noticia. El 10 de diciembre de 1967, el bajista James Alexander perdió su turno en la rotación y fue el único miembro de los Bar-Kays que no encontró butaca en el avión privado de Otis Redding. Un bajón. Viajaría solo y en la clase turista de un vuelo cualquiera. El clima era malo, pero sus compañeros igualmente se subieron al Beechcraft H18 y Alexander los despidió en los pasillos del aeropuerto de Cleveland. De acuerdo a la agenda de la gira, se verían solo un día después en la prueba de sonido del Factory, un boliche de Wisconsin. Las cosas no salieron de acuerdo a lo planeado. En lugar del camarín, Alexander se reencontró con casi todos en la morgue. El trompetista Ben Cauley, único sobreviviente de la catástrofe, estaba en el hospital. En honor a los muertos, se juraron revivir a los Bar-Kays y llevar el soul de regreso al cielo sureño de los Estados Unidos. Nadie habló de un Oscar.
+
+
+
+
+A juzgar por la voz de barítono, las joyas y el cuerpo trabajado en ébano, nadie le decía que no a Isaac Hayes. A fines de los sesenta, para colmo, estaba exactamente en la cima: apoltronado en su oficina de Stax Records, dirigiendo el planeta de la música negra desde su trono de diseño rojo. En un arranque entre la urgencia económica y la confianza ciega, Hayes reclutó a los nuevos Bar-Kays y se metió en los estudios Ardent con un tema de Burt Bacharach y otro de Jymmy Webb. Para hacer un long-play completo tenía gusto a poco, pero podía sacarle agua a las piedras. El tipo se sentó detrás del Hammond, tiró un par de indicaciones y la banda usó la balada popularizada por Dionne Warwick como pista de carreteo. Guitarras de acid-rock, cuerdas cinematográficas, riffs de bronce, sexo tántrico. En una oficina de Hollywood, alguien dijo eureka.
+
+
+
+
+El tiempo no corre en una sola dirección. Así como suele pensarse que cada paso de la tecnología es un avance, a veces se da por sentado que el pensamiento de una época es una evolución con respecto a la anterior. ¡Ojalá! A principios de los setenta, por ejemplo, Hollywood era capaz de soltarle un millón de dólares a un quemado como Dennis Hopper para que rodara su película en Perú, pagara los pasajes de sus amigos y tomara mescalina de estricta y orgánica producción local. No eran boludos. El bombazo de Easy rider no solo había recaudado una fortuna, sino que había descubierto los horizontes de un público nuevo para las salas de cine. Los productores se frotaron las manos.
+
+
+
+
+En un abrir y cerrar de ojos, salieron al ruedo tipos como Scorsese, Coppola o Peter Bogdanovich. Cowboy de medianoche ganó un Oscar y, en las hondas catacumbas de la cinefilia, crecía como un hongo el culto a fugitivos de la talla de John Waters o Cassavettes. El mundo hizo plop. De pronto, las pantallas de todo el planeta se llenaron de hippies, drags, buscavidas, vagabundos, gigolós, drogones, prostitutas, pandilleros y putos. Negros, lo único que faltaba. Así, con el espaldarazo de unos documentales sobre el guetto, el fotógrafo Gordon Parks logró dirigir la adaptación su propia novela de iniciación: The Learning Tree (1969). Palabras más, palabras menos, la primera película financiada por los grandes estudios y dirigida por un afro-norteamericano. Anotemos.
+
+
+
+
+Teniendo en cuenta el tenor de la ópera-prima (un drama de época, situado en las plantaciones de Kansas), nadie se esperaba que Parks cayera en los cuarteles de Metro Goldwyn Meyer con la carpeta de Shaft: una suerte de policial negro que, siguiendo la estela de un detective privado con mucha onda y una ética cuestionable, se metía de cabeza en la noche de Harlem. El apuesto Richard Roundtree era su hombre, aunque no era nada sin su chaqueta de cuero, las armas, el bourbon, el cameo de los Panteras Negras y las rencillas cruzadas entre pandillas. Parks era músico. Sin embargo, por alguna razón, decidió dejar el soundtrack en manos ajenas. Su primer nombre no fue Hayes.
+
+
+
+
+De acuerdo con el propio Isaac, MGM se acercó al sello gracias al inesperado éxito de Sweet Sweetback's Baadasssss Song: una película de bajo presupuesto escrita, co-producida, dirigida, editada y protagonizada por Melvin Van Peebles. Acaso el verdadero primer blaxplotaition. La canción central fue un bombazo de Earth, Wind & Fire, el gran tapado dentro del catálogo de Stax Records. Hayes ni se molestó en llamar a la banda. Con los Bar-Kays y los arreglos de Johnny Allen era suficiente. “Tenés que capturar la esencia de la personalidad de Shaft”, le dijo Parks. “Siempre está en movimiento, deambulando, merodeando". Solo con el hi-hat y la guitarra wah wah, Hayes lo puso en marcha. El bajo de Alexander se limita a marcar la tónica, como si despejara el camino del detective. Poco a poco, se cruzan en el camino las frases de flauta y bronces, que parecen discutir sobre su hombro. Todo el arrojo y la ambivalencia moral de Shaft están concentradas en ese primer minuto de música. No hay que subestimar el poder de un pedal.
+
+
+
+
+La película se estrenó en julio de 1971 y, para agosto, el soundtrack ya estaba en la calle. El combo fue asesino. Por empezar, la distribución planetaria permitió que un desorientado en las calles de Lima o Buenos Aires accediera a ese mundo (en Latinoamérica se tituló Shaft: Las rojas noches de Harlem) y tratara de asimilar hasta la forma de prender los cigarrillos de Roundtree. La banda sonora no solo fue el primer disco doble de un músico afro-norteamericano, sino que vendió miles de copias y se ganó tres premios Grammy. Para cuando abrieron el sobre y anunciaron que “Theme from Shaft” era la ganadora del Oscar como Mejor Canción Original, el molde ya estaba quebrado.
+
+
+
+
+Paradójicamente, aunque la unión de película y banda sonora logró cristalizar un subgénero, el paso del tiempo permitió que la música se independizara completamente de la película. Aun a pesar de tener la forma idiosincrática de los soundtracks: es decir, su correspondiente “Theme from Shaft”, sus leit-motivs melódicos, una pila de tracks titulados con su escena de referencia (verbigracia, “Bumpy’s Lament”) y hasta un cierre a toda orquesta para recoger todos los vidrios rotos que dejó tanta violencia gratuita. Sin embargo, miles y miles de personas alrededor del planeta escucharon el disco y no vieron la película. La operación benefició a Hayes. La película se convirtió en patrimonio cultural de los Estados Unidos y su culto sigue vivito y coleando, pero envejeció. Es natural. Es lo que suele pasar. No es normal convertirse en clásico.
+
+
+
+
+Desprendida de su significante, la música sube como un globo aerostático. Los Bar-Kays se aferran al groove como garrapatas y la sección de vientos toca su ostinato para que se pueda escuchar en la otra punta del planeta. Esta no es la catedral de Phil Spector. Dios, para Isaac Hayes, se metió adentro del bar sin nombre, tiene un arma en el sobaco y una deuda que pagar. No anda con dinero encima, así que ya saben lo que viene.
+
+
+
+
+\_\_\_
+
+
+
+
+**Martín E. Graziano**
+
+
+
+
+Es periodista. Se graduó como Licenciado en Comunicación Social en la UNLP. En el año 2007 publicó su libro Estación Imposible (Periodismo y Contracultura en los ’70: la historia del Expreso Imaginario) y en 2011 Cancionistas del Río de la Plata.
+
+
+

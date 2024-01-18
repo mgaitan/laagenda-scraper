@@ -1,0 +1,1 @@
+../../contenido-27187-counter-strike.md

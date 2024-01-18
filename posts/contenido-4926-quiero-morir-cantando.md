@@ -1,0 +1,136 @@
+# Quiero morir cantando
+
+**Hace 30 años Freddie Mercury entregó sus últimas energías en el disco Innuendo. Unos 25 años después David Bowie hizo lo mismo con Blackstar.**
+
+04 de febrero de 2021 - ANIVERSARIO
+
+_por ILÁN KAZEZ _
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4926-quiero-morir-cantando
+
+
+
+¿Cómo enfrentó cada uno semejante desafío? ¿Cómo canalizaron en una obra el miedo, la nostalgia, la trascendencia y la irremediable sensación de no saber qué viene después? Innuendo tiene la urgencia y la visceralidad de un hombre cuyo cuerpo estaba cada vez más debilitado por una enfermedad que para ese momento era sinónimo de muerte. Blackstar tiene desesperación, pero fue gestado con un Bowie entero que pudo planificar sus movimientos. Innuendo es un disco que mira al pasado; Blackstar piensa en el futuro. Innuendo es emocional y clásico; Blackstar es enigmático y vanguardista. Los dos, a su forma, son discos trascendentales.
+
+
+
+
+Ir por todo
+
+
+
+
+En 1989 Queen publicó el disco The Miracle, el primero después de tres años de silencio. Para ese entonces, los rumores del HIV positivo de Mercury empezaron a rondar en la prensa y promovieron un acecho voraz de los medios sensacionalistas. “Habían rumores de que estaba sufriendo, pero no sabíamos qué tenía y los rumores seguían creciendo”, recordó Brian May, guitarrista de Queen, en el documental Days Of Our Lives de 2011. “En cierto momento él se reunió con nosotros y nos dijo: ‘Miren, probablemente ya sepan lo que les voy a decir, ustedes saben de lo que padezco, saben cuál es el problema, pero no quiero hablar de eso. Solo quiero hacer música hasta el día que me muera’”.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/45360/42af11bb-2fb0-4db0-8ef3-7431f9c9454a.png)
+
+
+
+
+Después de The Miracle, a finales de 1989, la banda se trasladó al estudio que tenía en Montreux, Suiza, para trabajar en nuevas canciones. Luego los cuatro regresaron a Londres, al estudio Metropolis. A medida que pasaba el tiempo, la salud de Mercury se deterioraba. Durante la grabación, sufría de dolores en las articulaciones, tenía ataques de tos y problemas en la piel que le impedían usar auriculares de retorno (para solventar el problema, tenía que grabar con dos monitores de pie en la pecera). El tiempo apremiaba; su voz no tenía la fuerza que en otras épocas pero estaba dispuesto a ir hasta el final. “Freddie se había debilitado y le costaba estar parado por momentos. Pero se tomaba un par de vodkas en la consola para darse ánimos e iba por todo”, contó May. “Mientras más se enfermaba, más necesitaba grabar -dijo Roger Taylor, baterista del grupo- Necesitaba tener una razón para levantarse. Por lo que fue un período de trabajo realmente intenso”. En ese contexto, la banda cerró filas y trabajó a modo grupal, dándole a Mercury todo el apoyo necesario. Una decisión clave fue que compartieron los créditos de las canciones, a fin de evitar las peleas de egos.
+
+
+
+
+Bowie, a diferencia de Mercury, tuvo control sobre la situación y pudo calcular sus movimientos. En marzo de 2013, lanzó sorpresivamente The Next Day, su primer álbum después de una década de silencio. El trabajo fue producido por su histórico compañero Tony Visconti y grabado con la banda que lo había acompañado en la última gira. Ahí Bowie presentó un sonido clásico pero ajustado, en el que se lo escuchaba animado y al mismo tiempo con ciertos aires de nostalgia. Hacia mediados de 2014 empezó a trabajar en su siguiente disco y para ello cambió la nómina de músicos que lo acompañaban. Asentado en Nueva York y fascinado con los grupos de jazz vanguardista y la música de Kendrick Lamar, reclutó al quinteto liderado por el saxofonista Donny McCaslin, quienes tuvieron que firmar un acuerdo de confidencialidad. “Si hubiéramos utilizado a los ex músicos, serían gente de rock tocando jazz. Tener a gente de jazz tocando música rock ponía todo patas arriba”, explicó Visconti a la revista Mojo.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/45361/26e6b738-737a-4362-821e-66daf23ac212.jpeg)
+
+
+
+
+Paralelamente al disco, Bowie trabajó en la composición del musical off-Broadway “Lazarus”, inspirado en el personaje de El hombre que cayó de la tierra, la novela de Walter Tevis cuya adaptación cinematográfica lo tuvo como protagonista en 1976. Según Visconti, la idea de escribir un musical formaba parte de la lista de cosas que quería hacer antes de morir.
+
+
+
+
+Al inicio de las grabaciones de Blackstar, Bowie le contó a McCaslin que padecía de cáncer de hígado. A pesar de eso, él estaba entero y lúcido. Antes de cada sesión, le mandaba demos a los músicos para que sepan lo que tenían que hacer; en el estudio daba indicaciones; estaba detrás de la producción y las sesiones tenían horarios de trabajo marcados. “Algo muy inspirador fue ver cómo desde el primer día, desde la primera nota, él estaba totalmente metido”, contó McCaslin en el documental The Last Five Years. “Nunca nos pareció que estuviera enfermo -recordó el bajista Tim Lefebvre al New York Times- Solo entraba y cantaba como loco".
+
+
+
+
+Sonidos del futuro y el pasado
+
+
+
+
+Pese a que las condiciones de salud de Mercury y Bowie a la hora de grabar eran distintas, ambos encararon un trabajo frente a frente con la muerte y eso se revela en la oscuridad que invade los discos, en los distintos indicios sonoros, poéticos y estéticos que cobraron sentido o se resignificaron tras los decesos. De ahí, precisamente, que el disco de Queen se titule Innuendo, una palabra que proviene del latín y significa una indirecta, una insinuación o un eufemismo para sugerir algo malo.
+
+
+
+
+“Innuendo” también es la canción que abre el disco, una pieza superlativa de más de seis minutos en la que Queen se conectó directo con sus raíces setentosas: épica zeppelinesca, estilo progresivo y cambios de ritmos que incluía una sección coral y un solo de guitarra flamenca a cargo de Steve Howe (Yes). Una reminiscencia ineludible a “Bohemian Rhapsody”, la capilla sixtina de la reina de 1975. En efecto, el espíritu transversal del disco es el regreso de Queen a sus orígenes de banda de rock con vuelo artístico y orquestal, un formato que habían dejado atrás en la marea del pop ochentoso. “I’m Going Slightly Mad” es una joya de teatralidad sombría; en “The Hitman” rockean como si estuvieran en 1974; “Ride the Wild Wind” es una suerte de secuela del clásico “I’m in Love With My Car” y en “All God’s People” trabajan los arreglos corales como si fueran del disco A Day at the Races. Incluso la portada, con dibujos inspirados en J. J. Grandville, recuerda a las de A Night at the Opera o News of the World.
+
+
+
+
+“Ese retorno tiene que ver con que ellos estaban volviendo un poco a ser una banda, volvieron a zapar y componer juntos”, analiza en diálogo con La Agenda Alexis Valido, periodista musical y co-conductor de Puerto Bulsara, un podcast dedicado a Queen. “El principal revés que sufrieron ellos fue que muy pocas veces se dio un cambio estilístico tan grande como fue la música de los ‘70 con la de los ‘80. Eso los hizo alejarse de la épica de sus primeros años. En [el álbum] Hot Space lo hicieron a conciencia: querían que la gente baile sus canciones. El espíritu de Innuendo es más orquestal. Un reencuentro que tiene que ver con esa esencia de preguntarse: ¿Nosotros qué éramos? Éramos una banda rockera con cosas elaboradas”.
+
+
+
+
+“Adentro mi corazón se está quebrando / Mi maquillaje puede estar descascarado / Pero mi sonrisa permanece encendida”, canta Freddie Mercury en la dramática “The Show Must Go On”. En Innuendo no hay un concepto central acerca de la muerte; más bien lo que se percibe es la lucha de un hombre que dedicó su vida al esplendor del espectáculo y ahora se está apagando. Su voz suena más aguda pero pega en todas las notas, dando como resultado un nivel de emotividad insoslayable. “El show debe continuar” no es un mandato para la posteridad, sino un estado de situación. “Yo creo que Freddie está describiendo exactamente lo que le pasaba”, dice Valido. “Está hablando un tipo que dice ‘sigo, pero la verdad es que me estoy muriendo’. Y se estaba muriendo en cada línea. De ahí el último fraseo de la canción: en esa performance deja la vida”.
+
+
+
+
+El álbum oscila entre la desesperación presente y la nostalgia del pasado. Por un lado, “Innuendo” y “All God’s People” evocan a una espiritualidad casi ausente en el repertorio de Queen. Por el otro sobrevuela la melancolía: “These Are The Days on Our Lives” es una canción que Roger Taylor escribió viendo crecer a sus hijos, pero interpretada por Mercury cobró un significado de despedida. “Delilah” es un tema liviano en el que el cantante le declara su amor a sus gatos. “Bijou” -compuesta por Mercury y May- es solemne, con una letra acotada acerca de dos amantes que se prometen estar juntos “el resto de nuestros días”.
+
+
+
+
+El drama que vivía Mercury y la banda provocó que hicieran un movimiento hacia el pasado, al lugar desde donde se inició el camino que le dio sentido a sus vidas. David Bowie fue hacia una dirección contraria: miró el futuro. Optó por un sonido de vanguardia y un género que hasta ahora no había explorado de lleno: el jazz. The Next Day fue quizá una despedida más clásica, en la que evocaba lugares que ya había transitado, pero en Blackstar fue más allá. “Ya no era el hombre nostálgico de su disco anterior, sino una especie de criatura mitológica que se debatía entre la vida y la muerte. La música también era distinta: nada de abandono o complacencia”, escribe el periodista Juan Rapacioli en su libro Por qué escuchamos a David Bowie (Gourmet Musical).
+
+
+
+
+El sonido en Blackstar es árido y estremecedor. Hay paisajes lúgubres, temblores y agitación, como si la música estuviera acalambrada. El tema que abre el disco y primer single adelanto es una canción de casi diez minutos que oscila entre el free jazz y la música electrónica e incluye fraseos arabescos, ritmo de drum & bass y cambios de compases. Es el retorno a un Bowie ávido de riesgos. “El Bowie de Blackstar es el que se fascinó con el jazz de Nueva York, el que se iba a los bares a escuchar a las orquestas experimentales, y después trata de hacer una traducción de eso. Desde el comienzo, su poética es de uso y de descarte. Es la mezcla de asimilar cosas, apropiarlas y digerirlas de una manera muy particular. Pero para eso necesita estar muy fascinado. Es lo mismo que le pasó con el glam, con el soul, con el krautrock, con la electrónica. El sonido de The Next Day es más esperable, hace un recorrido por lo que ya hizo. En Blackstar agrega el componente que hace de Bowie lo que es Bowie, que es el componente del futuro. Está haciendo lo que a él le parece que es por dónde va la mano”, señala Rapacioli.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/45362/563dfcf7-e7e2-4075-abd9-69dce7812e1b.jpeg)
+
+
+
+
+Bowie como Lazarus, en lo que serían sus últimas imágenes
+
+
+
+
+“Mira acá arriba / estoy en el cielo / tengo cicatrices que no se pueden ver / tengo drama que no puede ser robada / todos me conocen ahora”, canta en “Lazarus”, espina medular de la obra y personaje de su musical. No es por nada: el personaje está inspirado en el Lázaro de Betania, figura bíblica reconocida como símbolo de la resurrección. “La muerte es muy fuerte en toda la obra de Bowie. Pero en Blackstar claramente se mete en una disociación: se mete con David Jones, con el que está detrás de todas las máscaras, con el humano. Se mete con esa idea: con lo que puede perecer y con lo que es inevitable, el fin de lo humano. Pero también con lo que está más allá, con lo poshumano. Él se duplica y aparece Lazarus. Se adelanta y dice: “Ya estoy en el cielo”. Blackstar es un intento que siempre ha buscado, que fue adelantarse a todo”, analiza Rapacioli.
+
+
+
+
+Si bien hay un control sobre la situación, la forma humana de Bowie también muestra destellos de desesperación ante el desenlace inminente. “El nervio amargo nunca es suficiente, me estoy cayendo / No creas ni por un segundo que te estoy olvidando / Estoy tratando de / Me estoy muriendo también”, canta en “Dollar Days” y repite esas dos últimas líneas hasta el cansancio. El tema que cierra del álbum, “I Can’t Give Anything Away”, bordea la sensación de muerte y ofrece una resistencia al abandono que dura hasta el final. Un gesto similar al loop de “The Show Must Go On” que oficia de cierre en Innuendo.
+
+
+
+
+La última imagen
+
+
+
+
+Para promocionar Innuendo, Queen lanzó cinco videoclips. El punto crítico estuvo en “I’m Going Slightly Mad” y “These Are The Days of Our Lives”. Al momento de la filmación, el estado de salud de Mercury era muy delicado. Para disimular su demacración, los videos se filmaron en blanco y negro y Mercury se sometió a varias capas de maquillaje. Hay, sin embargo, una diferencia entre ellos: el primero, filmado en febrero de 1991, está cargado de humor, teatralidad y sátira. Mercury usa una peluca, hace morisquetas, se tira al piso y juega con el resto de los músicos. “These Are The Days of Our Lives”, por el contrario, es solemne. Se filmó en mayo de 1991, seis meses antes de su muerte, y constantemente tenían que frenar la filmación para que pudiera descansar. El resultado, por supuesto, hiela la sangre: vestido con un chaleco de gatos, Mercury está delgadísimo y canta a cámara con movimientos suaves. Sobre el final, agacha la cabeza, mira directo a cámara, sonríe y susurra: “Los seguiré amando”. Esa fue su última imagen pública.
+
+
+
+
+Por su parte, antes de la publicación de Blackstar Bowie lanzó dos videos que lo tuvieron como protagonista: “Blackstar”, filmado en septiembre de 2015, y “Lazarus”, registrado en noviembre, dos meses antes de su muerte. Para ellos inventó un nuevo personaje, The Blind Prophet (El profeta ciego), que tenía ojos vendados y dos botones en lugar de ojos. Ambos videos tienen múltiples símbolos. En “Blackstar” hay un traje de astronauta con una calavera debajo y un esqueleto flotando en el espacio. ¿Está hablando de su propio final? ¿O finalmente se pudo ver el destino de Major Tom, el personaje que tuvo un trágico desenlace en “Space Oddity”? “Lazarus” tiene más carga dramática. Al momento de la filmación, Bowie ya había finalizado su tratamiento contra el cáncer y no quedaba nada por hacer. Ahí canta y se eleva desde una cama que parece ser de hospital. Debajo de ella hay un personaje siniestro que lo acecha. Su interpretación es nerviosa y agitada. La última imagen es él entrando en un oscuro guardarropa.
+
+
+
+
+Hay un paralelismo en cómo se mostraron corporalmente Mercury y Bowie en sus últimos videos. En “I’m Going Slightly Mad” y “Blackstar” se los ve con una actitud casi burlona, como si estuvieran desafiando a la muerte. En “These Are The Days of Our Lives” y “Lazarus” están más frágiles y afligidos, como si la muerte fuera inminente. Puestos en contraste, es como si representaran una batalla entre el humano y el artista, entre la muerte y la trascendencia, entre lo perecedero y lo eterno. Al fin y al cabo, de eso tratan Innuendo y Blackstar: de adelantarse y trascender a la muerte, una oportunidad que solo tienen unos pocos.
+
+
+

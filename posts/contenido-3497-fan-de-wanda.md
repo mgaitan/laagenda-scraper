@@ -1,0 +1,101 @@
+# Fan de Wanda
+
+**Dijo que era virgen, así empezó su carrera. Participó en algunos programas de televisión, se casó con un futbolista, tuvo hijos, se separó, se casó con otro.**
+
+24 de diciembre de 2020 - RELATO
+
+_por MANUEL SORIANO_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/3497-fan-de-wanda
+
+
+
+No son de verdad, son brackets simulados, un montaje digital para que los seguidores opinen sobre cómo le quedaría la ortodoncia, pero antes de votar deberías conocer un poco los antecedentes. Empecemos hace unos ciento cincuenta años, cuando los ingleses inventaron el fútbol. El deporte se fue profesionalizando y hoy los mejores jugadores ganan más de un millón de dólares por mes. Entonces, hace quince años, una chica apareció en una revista de chimentos usando un calzoncillo que supuestamente era de Maradona. ¿Sabés a qué me refiero si digo Maradona? La chica, sin embargo, negó el romance. Dijo que era virgen, y así empezó su carrera. Participó en algunos programas de televisión, se casó con un futbolista, tuvo hijos, se separó y se casó con otro futbolista, amigo del primero, más joven y con mejor promedio de gol. Se los acusó de alta traición, pero para mí estaban enamorados. ¿Qué otra cosa podían hacer? En esta foto los podés ver. Esas son sus iniciales escritas con diamantes en la cabecera de la cama. Acá los podés ver con el Papa, después de un partido por la paz. ¿Sabías que la iglesia abolió el limbo hace unos años? Esta chica ahora es empresaria y maneja la carrera de su marido pero antes de eso participó en el programa con mayor audiencia de la televisión argentina. Ahí bailaba, en calidad de famosa, con alguien que era bailarín pero no famoso, y si ganaban el concurso podían cumplir el sueño de otra persona, que tampoco era famosa, y que necesitaba, por ejemplo, un techo impermeable para una escuela rural, o una silla de ruedas para su hermanito parapléjico. En ese contexto, en la tribuna del programa, apareció este muchacho que tanto te gusta. ¿Qué votamos, entonces? ¿Brackets sí o brackets no?
+
+
+
+
+No había más camas en tu coso normal, por eso te derivaron al Hospital Evangélico. Además, este patíbulo tiene mejor hotelería. ¿Sabías que usan la palabra hotelería para esto? Afuera está todo muy raro. Apenas subís la escalera de mármol, el guardia te apunta a la cabeza, te mide la temperatura y te rocía alcohol en las manos. Tenés que darle la cédula, contener la respiración, y descubrirte la cara para que el guardia pueda comparar. El azulejo de los pasillos es en tablero de ajedrez. Eso creo que te gustaría. ¿Te acordás cuando me hacías copiar las partidas del diario? A veces, de la nada, pienso en los movimientos y sus nomenclaturas. Ahora en el pasillo pensaba: debería pisar solo los azulejos blancos, o solo los negros; elegir un color y moverme como una reina o como un caballo.
+
+
+
+
+¿Para qué tanto protocolo? ¿Qué es lo peor que les puede pasar? La primera vez que me dejaron subir te salían tubos de las muñecas y de la panza. Tenías los ojos cerrados, el pelo blanco seboso. Te lo peiné hacía atrás y me olí las manos.
+
+
+
+
+Arriba de tu cabeza hay un cristo crucificado. Si yo echara sangre o vino sobre la corona de espinas, las gotas recorrerían su cuerpo atlético torturado y caerían sobre tu frente. ¡Vaya forma de morir para un hombre de izquierda
+
+
+
+
+¿Querés ver otra vez el video en el que llora? A todos nos gusta cuando llora, hasta a Charly le gusta. Me parece que van a traer a alguien a la cama de al lado. Le acaban de cambiar las sábanas. Vamos a tener que apurar un poco la historia. Como te venía diciendo, este chico apareció en la tribuna de ese programa de televisión como fanático de la esposa del futbolista. Acá lo podés ver con una vincha rosada, tiene el nombre de la chica en letras verdes. Se está por largar a llorar. Es increíble cómo te brillan lo ojitos cuando llora. Tu corazón se acelera, como dice la canción, y también lo dice la ciencia, el pip pip pip de las máquinas. ¿Qué dirían los muchachos de la redacción? No hay que avergonzarse. A la gente le pasaba lo mismo que a vos, por eso el chico fue teniendo cada vez más minutos frente a la cámara, y con el paso del tiempo fue consolidando su carrera, se hizo conocido y de esa manera pudo participar como famoso en el programa en el que antes había participado como fanático; llegó a tener sus propios imitadores y fanáticos, y hasta a conducir la versión boliviana del mismo programa de bailes. Después dijeron que todo era falso. Falso el fanatismo, falso el llanto y su nombre. Y no solo eso, también era falso el calzoncillo de Maradona y la virginidad que había llevado a la fama a la chica que acá provoca su falso llanto desconsolado. ¿Estoy hablando demasiado? ¿Querés que lo escuchemos llorar?
+
+
+
+
+Me pidió la enfermera que bajemos un poco la voz. No le pude ver la boca, pero creo que te gustaría. A los hombres de tu generación les gustan las chicas de uniforme. Yo sé que estabas un poco enamorado de mi novia. No hay drama, sonso. Era algo que todos consensuábamos. Hace rato ya que nos separamos pero estoy seguro de que te gustaría mi novia nueva. También podrías contarle tus historias de guerra y elogiarle sus vestidos floreados, tratarla con ese usted juguetón, y encenderle los cigarrillos, y decirle que la vida es una sola y que lo único importante es el amor.
+
+
+
+
+En el cajón de la mesita de luz tenemos el Nuevo Testamento. Te podría leer alguna parte pero no creo que te guste. Como literatura, me parece mejor logrado el Antiguo. Mejor volver a los diarios: Esme Mitre estalló en llanto. Ves lo que te decía, no es mi culpa si esto aparece en el diario. Esme Mitre, descendiente directa del presidente que sometió al Paraguay, tradujo la Divina Comedia y fundó el diario que vos leías para despreciar, aparece ahora como la sucesora natural de El Fan de Wanda en el mundo del espectáculo. De hecho, el propio Fan le acaba de dar su endorsment en su cuenta de Instagram. Ya sé que no te gusta que use palabras en inglés pero te juro endorsment es la mejor que puedo usar.
+
+
+
+
+Otras cosas que hace Mariano: Súper sorteo: ganate este aro de luz. / Huevo de Pascua gigante para los héroes del Hospital San Fernando. / Me transformo en Tini. / Sábados solidarios: hoy hicimos doscientos medallones de merluza con puré. / Negocios en cuarentena: lloro en velorios. Servicio simple, normal o premium.
+
+
+
+
+Como podrás ver, es un tipo súper solidario. ¿Ya te dije que se llama Mariano? Si te parece, le podemos mandar un mensaje. Le puedo decir que nos encantan sus videos. A vos también te importaba la fama, no te hagas, igual que a todos tus amigos escritores. Les pido hablen de mi obra pero no de mí, aunque mi vida y obra son una misma cosa entreverada; quiero que me lean, no me olviden, pero no me lo digan a la cara, no me pregunten cosas, lo que tenía que decir ya lo dije en mis libros; pero por favor no me olviden, quiero vivir, quiero que los jóvenes escriban mi nombre.
+
+
+
+
+¿Sabías que el historial de búsquedas en Google representa un mapa exacto del alma?
+
+
+
+
+No vas a poder creer lo que vi cuando salí a fumar al patio. Un tipo le hizo un agujero al tapabocas para poder encajar el cigarrillo. Se notaba que no era la primera vez que lo hacía porque también largaba el humo por el agujero, hacia arriba, como una ballena, en una finísima columna plateada. No tiene ningún sentido pero me dieron ganas de probar. ¿No te parece una linda metáfora? Además, el tipo tenía pinta de médico con ese saco sport y la carpetita de cuero. ¿A vos te parece que los murciélagos están sufriendo como especie? ¿No sería reconfortante saber que también están sufriendo un poco?
+
+
+
+
+Le acabo de preguntar a Mariano cuánto cuesta el servicio simple de llanto. Su actuación está pensada para velorios pero me parece mejor hacerlo antes. Ni siquiera tendría que venir: puedo mandarle una transferencia y después los conecto con la cámara del celular. Lo tendrías llorando solo para vos, quince o veinte minutos, lo que dura el servicio simple. Con el simple creo que alcanza, salvo que la calidad del servicio no dependa de la duración sino de la intensidad del llanto. En ese caso creo que tenemos que ir por el premium. Queremos el mejor llanto posible, ¿no? ¡Mi vida! Te brillan los ojitos de solo pensarlo.
+
+
+
+
+Ayer por fin conocí a mi hermanito. Me estaba esperando con su madre a la salida del hospital. La mujer te sigue queriendo a pesar de todo. Dice que no viene de visita quote “por una cuestión de delicadeza” unquote. Me pidió que te diera esto: es un chocolate con forma de paragüita. Dijo que eran tus preferidos. ¿No sabía que tenías un chocolate preferido? ¿Con forma de paragüita? ¿Hacían cosas chanchas con los chocolates con forma de paragüita? No tenés que darme explicaciones. A decir verdad, me pareció una amante muy adecuada, el complemento perfecto para mamá. No me contó cómo se conocieron. ¿Era una de esas mujeres que te esperaban a la salida de las conferencias y te pedían una firma o una foto o te regalaban sus propios libros de poesía comprometida? El chico no sé si te quiere mucho, aunque solo abrió la boca para saludar. Tenía puesto un sombrero negro con una pluma y una cinta celeste. ¿Quién usa sombrero hoy en día? Me parece que es un poco, como es que decías vos…feminoide. Quizá le faltó una figura paterna en su casa, un poco más de presencia, tiene sentido, ¿no te parece?
+
+
+
+
+Un sacerdote en Texas usa una pistola de agua para bautizar a un bebé respetando la distancia de seguridad. Tendrías que ver la foto: la mamá sostiene al bebé todo vestido de blanco por encima de su cabeza; el sacerdote, también de blanco, está parado a dos metros y apunta con el arma a la cabeza del bebé. Creo que la foto captura el momento previo, un segundo antes de la descarga divina.
+
+
+
+
+También deben usar las pistolitas para jugar a la guerra de agua con los monaguillos. Te morís por decir algo así, ¿no? Quiero que sepas que esos pensamientos van a sobrevivir en mí, aunque no los escriba, las frases me aparecen en la cabeza, aparecen con tu voz, un murmullo azul, y no hay nada que pueda hacer para evitarlo. Nunca me quedó claro si estabas bautizado. Supongo que sí porque fuiste a un internado católico. No sé si alguna vez habrás reparado en la paradoja, pero esos curas que tanto odiabas son también los que te dieron vida como escritor. Tu historia, tu legado, todo lo que la gente piensa cuando escucha tu nombre, es consecuencia de esos borrachines irlandeses de narices coloradas.
+
+
+
+
+No contestó Mariano todavía. Por lo que veo acá, el mensaje le llegó, pero quizá esté un poco desconcertado. Quiero creer que lo del servicio de llanto para velorios es también falso, otra vuelta de tuerca en esta enorme broma blanca, ¿pero qué se puede hacer en un caso como el nuestro, en el que realmente lo necesitamos? Quizá lo haga pro bono si le explico bien la situación.
+
+
+
+
+Un chico italiano se tatuó al Fan de Wanda en la pierna. Te leo algunos comentarios de sus seguidores: Casate! / Marian, sos un orgullo nacional. / Tiene una japi en el cuello? / Amigo, llegaste. / Alguien te lleva por siempre en su piel.
+
+
+
+
+Querido Mariano: Me gustaría ir concretando el asunto del llanto. Ya no sabemos cuánto tiempo nos queda. Mi padre está despierto y consciente pero tiene lo ojos blancos, no responde a ningún estímulo del mundo exterior. Los médicos lo llaman locked-in síndrome; eso significa que está encerrado en sí mismo. Y sin embargo mirá lo que le pasa cuando le pongo tu video. Es uno de 2011, cuando te dijeron que no podías participar como famoso en el concurso de baile. Apenas vos te largás a llorar, a mi padre se le humedecen los ojos. ¿Se llega a ver en la cámara? Ahora le estoy dando la mano. Siento en mis dedos una levísima presión. Los médicos no me creen cuando se los cuento. Llevás más de treinta segundos llorando en primer plano para la cámara. La gente en sus casas no puede dejar de mirarte. Marcelo te dice que te van a dar una oportunidad y tu llanto se vuelve luminoso. Ahora los ojos de mi padre están completamente mojados. Se le caerían las lágrimas si solo pudiera cerrar los párpados. ¿Te imaginás qué hermoso si pudieras llorar solo para él? El pip pip pip de las máquinas, cada vez más rápido, ¿escuchás?, el sonido amarillo del corazón.
+
+
+

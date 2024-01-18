@@ -1,0 +1,1 @@
+../../contenido-30267-buenas-vibraciones.md

@@ -1,0 +1,86 @@
+# Reír para no llorar
+
+**por MAIA DEBOWICZ**
+
+08 de julio de 2021 - Miradas
+
+_por _
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/6130-reir-para-no-llorar
+
+
+
+Hacks, (Estados Unidos, 2021). Serie de 10 episodios en HBO Max
+
+
+
+
+When you’re smilin’ keep on smilin’/The whole world smiles with you/And when you’re laughin’, oh, when youre laughin’.
+
+
+
+
+![](https://cdn.feater.me/files/images/55854/29f01f41-b601-4d61-9acb-05ad1a92f06b.jpeg)
+
+
+
+
+Las películas y series que retratan a cómicos y comediantes se caracterizan por mostrar al profesional recubierto de fortaleza arriba del escenario; disparando dardos con la lengua, haciéndonos creer que nada lo puede afectar. Porque, quien se ríe de uno mismo se adelanta a la ofensa del otro quitándole esa posibilidad. Se pone a salvo en los brazos del chiste. Por ende, no existe kriptonita que destruya esa autoestima. Sin embargo, en algún momento sucede un acontecimiento que deja a esa estrategia sin efecto y el bromista queda expuesto en toda su fragilidad. La serie de comedia Hacks presenta a su protagonista en su trabajo, de pie en el escenario de un casino de Las Vegas: el timbre de su voz llega antes que la imagen. La vemos de espaldas, su cuerpo está forrado con una tela llena de brillos. Su voz llega antes que la imagen porque la palabra es el germen de su profesión, un arma en su constante batalla, porque Deborah Vance (Jean Smart) es comediante de stand up. Los chistes que escupe con puntería como si viajaran hasta el espectador a través de una cerbatana delinean al personaje, a esta mujer de más de 70 años que construyó su riqueza en base al humor. Cada vez que termina su show, la comediante saluda al público con el latiguillo “Aún soy Deborah Vance”. El telón baja y ella recorre el camino hacia su camarín: abandona los zapatos a un costado, recibe halagos de los técnicos, comentarios de su asistente, mientras nosotros le seguimos el paso. Sus ojos no miran de frente a la cámara, recién conocemos su rostro cuando llega al camarín y se sienta frente al espejo. No es a ella a quien vemos sino a su reflejo. Ese detalle define tanto a la serie como al personaje que retrata. Pero, ¿quién es realmente Deborah Vance?
+
+
+
+
+Deborah Vance parece irrompible dando la sensación de que su peinado recogido quedaría intacto hasta en el medio de un huracán. Al salir del casino firma algunos autógrafos y se sube a un lujoso Rolls Royce que la acerca a su jet privado. Deborah Vance es mucho más que una comediante: es una marca. Tiene su propio spa de pies que vende en infomerciales, un kit de maquillajes y hasta un suplemento de progesterona que lleva su nombre. Cuando termina su día regresa a su inmensa mansión, se quita la peluca y prepara la comida en el horno. “¡La cena está lista!” grita con dos platos en la mano. Son para sus amados perros, quienes la acompañan mientras ella come sola en la cabecera de la mesa de la cocina. ¿El éxito la condenó a la soledad o simplemente no necesita a nadie?
+
+
+
+
+Deborah Vance no parece tener amigos, pero en el pasado tuvo un marido con el que formó una familia. En los años 70 fue madre de una niña que la acompañó en cada una de sus giras. Pero algo cambió para siempre la carrera de Deborah: en la cresta de la ola, justo cuando se estaba por convertir en la primera mujer en conducir un show nocturno en TV, su marido y también manager la abandonó para ponerse en pareja con su hermana. Ante la noticia, y como símbolo de venganza frente a semejante traición, la comediante incendió la casa del ahora ex marido. Ese hecho enterró la oportunidad del show televisivo para Deborah, y la dejó en la ruina. La comediante tuvo que empezar de cero, y show a show, trabajando sin respiro, logró edificar un imperio alrededor de su saliva corrosiva. La gran hazaña reside en haber convertido aquel drama personal que la ridiculizó en tapas de revistas, y que amenazó con hundir su carrera, en la base de su negocio. Deborah transforma a la acusación de pirómana en material de sus monólogos. Desactiva la mirada machista que la trató de mujer loca y cornuda cuando decide ser ella quien cuenta el incidente en paso de comedia. El chiste es el mejor escondite para el dolor.
+
+
+
+
+Deborah Vance no parece tener mayores preocupaciones, hasta que quien programa sus shows en el casino de Las Vegas, Marty (Christopher McDonald), le comunica que deberá hacer menos espectáculos porque en su lugar estará otra artista más joven. De alguna manera, Marty le da a entender que ya es hora de trabajar menos horas porque su carrera tiene techo y está llegando a su fin. Si Deborah se despide de su público gritando “Aún soy Deborah Vance” es porque nunca cambió: hace 40 años que hace los mismos chistes. Es en ese momento donde el representante de la comediante decide ponerle una guionista desempleada de 25 años, Ava (Hannah Einbinder), para que actualice su material. A pesar de tener 50 años de diferencia, Deborah y Ava tienen una cosa en común: ninguna de las dos quiere trabajar con la otra. La brecha generacional entre estas dos mujeres y la mala relación es uno de los ejes de esta serie creada por Lucia Aniello, Paul W. Downs y Jen Statsky. “No son chistes, son como poemas pensados”, le dice Deborah con desprecio a la joven guionista cuando lee los chistes que escribió. “ (Deborah) Solo patea gente cuando están en el suelo, incluida ella misma”, comenta Ava a espaldas de la comediante. Ella padece a su jefa en cada mirada y gestos: Deborah es agresiva a través de su humor arriba y abajo del escenario. El chiste la vuelve impune.
+
+
+
+
+En el inicio de la película El cómico de la familia (Mr. Saturday Night), dirigida y protagonizada por Billy Cristal, el comediante Buddy Young Junior sale al escenario rompiendo con el cuerpo una puerta de cartón, tiene la obligación de hacer reír. Su familia (la madre, la esposa y sus dos pequeños hijos) lo mira desde el camarín a través de una pequeña televisión en blanco y negro. “Anoche tuve una pelea con mi esposa. Nada serio. Tres patrulleros”, le cuenta el cómico a su festejante público. La hija de Buddy le pregunta, con tono de preocupación, a su madre si eso que relata es cierto. “No, es una broma”, responde mientras ríe. Entonces la niña lanza una carcajada. El stand up de Buddy continúa: “Mi hija tampoco es un genio. No me hagan hablar. Tiene seis años. Tendrá siete si lo logra”. La madre vuelve a avisarle que es una broma, sin embargo la niña ya no puede reír. El humor de Deborah Vance es igual al de Buddy Young Junior: es cruel. Jerry Lewis explicó en su libro El oficio de cineasta que para el público la violencia de la pantalla está representada por la escena de un vientre destripado con un cuchillo de siete pulgadas o el estallido de una ráfaga de ametralladora. Sin embargo, no parecen advertir la violencia de la comedia ni se detienen a analizar la tremenda carga que encierra. Buddy, el personaje de Billy Cristal, hace 40 años que hace los mismos chistes, al igual que Deborah Vance. Y, como la comediante de Las Vegas, maltrata a todo el mundo. Está enojado porque no está en el lugar que desea, cree que está para mucho más que lo que tiene. Hay otra gran similitud entre El cómico de la familia y Hacks: ambas obras hablan de un conflicto entre hermanos, peleas que son contadas como la principal historia de amor.
+
+
+
+
+![](https://cdn.feater.me/files/images/55860/e8f4d08b-7bd6-4cd4-b364-746a5f18b2dc.jpeg)
+
+
+
+
+Hacks es una serie llena de ética que nunca traiciona a su protagonista.
+
+
+
+
+Tanto para Buddy como para Deborah, lo más importante en sus vidas es el contacto con el público. La esposa de Buddy, Elaine (Julie Warner), comprende ese vínculo: “No importa cuanto lo ame, y lo amo…más necesita el abrazo que consigue solamente con los extraños”, le explica Elaine a su cuñado Stan (David Paymer). Quien padeció las humillaciones de su hermano desde que se convirtió en su representante. A Deborah, en cambio, nadie la comprende salvo algunos de sus empleados. El odio de Ava hacia Deborah perdura, y crece, hasta que un día descubre un secreto de su pasado que cambia la visión sobre su jefa. La guionista le propone con insistencia que debe relatar esas vivencias en su monólogo. Dejar de hablar con sarcasmo y orgullo de cómo incendió la casa de su ex marido para contar por primera vez la verdad de lo que ocurrió aquel día. Pero para Deborah la verdad no es graciosa y, al igual que Buddy, no puede darse el lujo de no sacarte una carcajada. “Puedes hacer graciosa cualquier cosa”, le dice Ava sin darse cuenta de que le dedicó un elogio a la persona que más aborrece. De esta forma nace una complicidad entre estas dos mujeres tan distintas, que tienen mucho que aprender una de la otra. Ava se convierte en una piedra en el zapato que la desafía a Deborah a modificar su monólogo tras décadas de repetirlo sin cambios. Salir del lugar de confort y exponerse para iniciar una nueva carrera cuando los demás creen que se está terminando.
+
+
+
+
+A medida que avanza la serie se revela que Deborah Vance padeció y padece muchas situaciones injustas y desgarradoras. Todas relacionadas a su familia. De a poco vamos conociendo el costado más humano de la comediante de carácter podrido, pero eso no quita que también sea una perra. Vonnegut escribió en el prólogo de Madre noche: “Somos lo que aparentamos ser, entonces cuidado con lo que aparentamos ser”. Esa frase se aplica a la personalidad de Deborah Vance y por eso Hacks es una serie tan profunda e impiadosa. Para la protagonista el humor es un lenguaje para sobrellevar las humillaciones que ella padeció de su círculo cercano. Utiliza el chiste para hablar con el mundo. Aunque el remate siempre está a cargo de la comediante, la última palabra, el tiro final, pertenece a Deborah. Hacks es una serie llena de ética que nunca traiciona a su protagonista. La muestran como una mujer poderosa, jamás como un personaje patético. Incluso cuando todo está servido para caer en la tentación de ir por el atajo, la demagogia de sacarle al espectador una risa fácil. Hacks es una obra acerca de la capacidad de trabajo, y sobre cómo la profesión puede ser el gran amor de tu vida. El romance en esta serie es entre la protagonista y su carrera: la comedia. Y, como en cualquier pareja, puede ser que algunas cosas cambien, pero lo que no cambia es todo lo que se conocen y saben la una de la otra. El escenario le confirma cada noche que pudo contra todas las adversidades; los aplausos le recuerdan que jamás estará sola.
+
+
+
+
+\_\_\_
+
+
+
+
+MAIA DEBOWICZ
+
+
+
+
+Maia Debowicz es periodista. Escribe en Suplemento SOY (Página 12), Haciendo Cine, Infobae y El Amante. En Twitter es @Maia\_Debowicz
+
+
+

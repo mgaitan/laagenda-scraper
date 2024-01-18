@@ -1,0 +1,86 @@
+# Alrededor es todo pampa sin fin
+
+**por DANA MADERA**
+
+10 de julio de 2021 - Miradas
+
+_por _
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/6151-alrededor-es-todo-pampa-sin-fin
+
+
+
+Laura me llamó temprano a la mañana y escucharla me emocionó. Hacía años que intercambiábamos mensajes virtuales, saludos de cumpleaños, actualizaciones de noticias importantes que nos metían en la vida de la otra pero que no tenían cuerpo ni voz. El tono con el que hablaba, tan parecido al de siempre, me hizo dar cuenta de lo mucho que la había extrañado. Era una casualidad enorme encontrarnos las dos en el pueblo; ella se había mudado por la zona pero no volvía nunca, yo me había ido a capital y cada vez iba menos. Mientras arreglábamos los detalles para encontrarnos hice la cuenta: nueve años que no nos veíamos la cara. Me pasaba a buscar a la tarde, dijo, porque quería que la acompañara a un lugar. Eso me puso incómoda. Me acordaba de los lugares a los que había tenido que acompañar a Laura: casas de familiares enfermos, trabajos donde no se le pagaba, hospitales, la casa del Gordo. Pensé en suspender, en decirle que me precisaban en casa o que me dolía algo. Pero de verdad quería verla y enterarme de todo lo que había hecho, las cosas siempre pueden cambiar.
+
+
+
+
+Cuando la vi en la puerta de casa se me mezclaron muchas ideas. Laura tenía la misma cara que en el secundario, ni una marca, ni una arruga, el pelo rojo y lacio que le pasaba los hombros, una faja de campo, los dientes blancos alineados que nunca precisaron aparatos. La abracé con ganas; estás igual, le dije con los ojos enormes, como no creyéndolo. Te juro, Laura, estás igual. Ella se rio y dijo no pasó tanto tiempo mientras subía al auto. Pero habían pasado nueve años y yo no me había dado cuenta. Cuando me senté en el asiento del acompañante enseguida me dijo que no se podía fumar porque el auto era del novio nuevo. Novio nuevo, como si yo recordara cuántos habían pasado, quiénes eran, qué trabajos tenían. Como si no leyera por arriba los mensajes que me llegaban en el horario de oficina, adonde me contaba que estaba estudiando esto o aquello, que trabajaba en la pollería o la pescadería de alguna suegra de turno, que el novio se llamaba tal o cual y que tenía tantos hijos con otra mujer. Me dio culpa no ubicar de quién hablaba; hice algún comentario acartonado y general que le diera pie para contarme de su vida. La escuché atenta, a la espera de pescar alguna información de sus otras relaciones de las que yo ya debería saber, algún nombre o detalle sobre su trabajo o adónde vivía entonces.
+
+
+
+
+A la altura del acceso, casi saliendo del pueblo, por fin me entero de que el novio nuevo se llama Javier y vive en Nueve de Julio. También escucho, como todas las veces, que es para siempre y que no es como los demás. El tipo tiene nuestra edad, aunque vos no lo creas, me agrega con un guiño y sube a la ruta; una sola hija, cuidador nocturno en una empresa de cereales, a ella le consiguió un laburo de portera en uno de los pocos edificios que hay en el nueve. Laura le dice “el nueve” a Nueve de Julio y yo me río como si eso me pareciera una novedad, como si yo no le hubiera dicho “el nueve” toda mi vida. Por suerte no me presta atención y sigue hablando mientras agarramos velocidad, tengo ganas de fumar. Me acuerdo del primer auto con el que apareció Laura cuando teníamos quince años. Un Fiat Super Europa color naranja. Nunca supimos de dónde lo había sacado, creíamos que se lo había regalado el padre, pero del tipo no sabíamos nada. Con mis amigos nos encantaba hablar de él. Había semanas en las que creíamos que tenía campos en Santa Fe o en Córdoba, que pensaba en Laura todo el tiempo y que era cuestión de meses para que la viniera a buscar. Otros días decíamos que era peón de alguna estancia en Patricios o en Chiclana y que se lo comían los piojos. Laura nunca estaba cuando hablábamos de eso y del padre no decía nada. Le pregunto ahí mismo, a la altura del Gauchito Gil, te acordás del Europa, quién te lo regaló. Ella piensa un poco y dice me lo regaló el Gordo, el que era novio de mi vieja, no sé si te acordás. Me avanza una culpa rara, hay un momento de silencio que no identifico si es incómodo o no. Ojalá no vayamos a verlo al Gordo. Sí, me acuerdo, digo como al aire y me aclaro la garganta. Se apareció con el auto un sábado a la tarde, a modo de disculpa. Yo cierro los ojos y me hundo en el asiento, tenemos casi treinta años y sigo sin querer pensar en todo eso. Me sale un perdón débil, tapado del todo por las ruedas sobre el asfalto. Laura no desvía los ojos de la ruta pero sonríe y me dice, como si fuera tu culpa.
+
+
+
+
+Abre la ventana y me señala el atado de cigarrillos. Fumá si querés, a Javier no le devuelvo el auto hasta el lunes, para entonces el olor se va. Pienso que no y que ella lo sabe, en los asientos del Fiat Europa el olor del cigarrillo se había impregnado como una costra que a veces no nos dejaba respirar. Los sábados Laura decía que había que airear el auto. Salíamos por un camino asfaltado que daba al cementerio viejo, todas las ventanas abiertas. Doblábamos por un camino arenoso, ella nunca perdía el control del volante, nunca se reía con nosotros cuando las ruedas traseras patinaban cerca del canal. Terminábamos envueltos en una nube de polvo, con los pelos duros y sucios. Volvíamos fumando y con el auto más mugriento que antes. Siempre igual. Abro mi ventanilla y prendo un cigarrillo, ella me hace una seña para que le convide y prendo otro más. También digo que ese auto era una mierda y nos reímos las dos.
+
+
+
+
+![](https://cdn.feater.me/files/images/55918/88df4b8b-8989-4db7-95b2-1d8da23208c1.jpeg)
+
+
+
+
+Hace quince minutos que estamos en la ruta y yo sigo sin saber adónde vamos, le pregunto de nuevo y ella tuerce un poco la boca, una mueca que no llego a leer, como divertida, como misteriosa, pero que a mí no me gusta. Un domingo a la noche Laura vino a buscarme, me llevó a la casa de una curandera sin decirme adónde íbamos. Llevamos una foto del Gordo y su mamá. Yo no tenía que hacer nada me dijo ella, mirar, escuchar. La casa era horrible. Había osos de peluche cortados en un moisés viejo y ventanas tapiadas. La curandera le pasó a Laura unos inciensos por la cara que a mí me dieron náuseas. Le tocó la panza. Le hizo cortar la foto en dos. Laura me pregunta por mis novias y eso me distrae, me saca de eje. Nueve años y yo me olvido que una única vez hablamos de que yo en vez de novios tenía novias. Fue a los diecinueve, el primer verano que volvía de estudiar. Ella aún vivía en el pueblo, trabajaba en un almacén y quería hacerse una casa al fondo del terreno de una suegra ahora olvidada y para mí siempre desconocida. Estábamos en la plaza de madrugada, tiradas en el pasto, hablando de que su mamá y el Gordo al fin se habían separado, que ahora la madre se iba a mudar con ella a una casita alquilada y después verían. Laura estaba hablando de corrido y de pronto se incorporó y me miró fijo. Por si algún día querés contarme, yo ya sé. Sabes qué. Lo de Ana, todo el secundario, yo ya sé. Me acuerdo de la escena hasta ahí y no puedo darme cuenta de lo que pasó después, pero salgo del nerviosismo raro y le pregunto, ella me dice que no pasó nada, que dije algo así como bueno y que me puse a hablar de su mamá otra vez. Qué cagona, pienso.
+
+
+
+
+Me acomodo en el asiento y veo que pasamos la laguna grande que está a la altura de Guanaco. Empiezo a hablar de mi última relación y de la anterior a esa. Las presento como un objeto de estudio, con una distancia casi académica, como si habláramos de otra gente. No quiero hablar de las novias que tuve y que ella conoció. Me hace sentir una mentirosa. Como si faltáramos a un recuerdo que ella formó de nuestra amistad. La miro mientras hablo, presto atención a los gestos que hace al volante. Su cara no me dice nada. Mira la ruta, pero cada tanto asiente para dar signos de que está escuchando las idas y venidas con mi última ex. Al final, dice, me hacés acordar a mi mamá, siempre medio boluda en eso de elegir. La comparación me duele porque de la madre de Laura pienso lo peor y sé que ella también. Pero en vez de decir eso le pregunto, Carmen cómo está. Me contesta que no están hablando, que vivieron un tiempo juntas alguna vez, pero que lo último que supo es que volvió con el Gordo. Yo pienso en la casa que tenían en el barrio, en Laura y la madre muertas de hambre y el Gordo irrumpiendo en esas vidas con la plata de la lotería clandestina. Me acuerdo del miedo que le teníamos aún de grandes. La casa donde vivían con el Gordo era enorme y mis amigos solamente la conocían de afuera. Yo había entrado unas veces pero no se lo comentaba a nadie, era un secreto entre Laura y yo. Ella me llamaba al fijo de mi casa y me decía el Gordo está en el campo, y se nos generaba una agitación, una complicidad rara entre las dos. Yo corría a la casa y ella me abría a la hora de la siesta, preparaba el mate y yo me admiraba del patio enorme que se veía desde la cocina y del living con una mesa larga, un televisor caro y las fotos de los hijos del Gordo que vivían con la madre y que odiaban a mi amiga. Laura no tenía permitido tocar casi nada, no prendíamos la computadora, no abríamos la heladera, no escuchábamos música. A las piezas ella no entraba, entonces yo tampoco. Nos dábamos cuenta de que ese no era el orden natural de las cosas, pero había un acuerdo tácito de fingir que sí. Que así se manejaba cualquier chica en su casa y cualquier amiga en la casa de otra. Después de hacer el mate nos íbamos a su habitación, que estaba en un garaje viejo; el Gordo le había puesto una cama, un ropero de un cuerpo y un calentador. Tenía un baño sin ducha cruzando el patio. A todos nos admiraba que de alguna manera viviera sola. Cuando nos juntábamos ahí no nos molestaba ningún padre, podíamos fumar, tomar alcohol o llevar a cualquiera; solo con eso nos parecía que su vida compensaba todo lo demás, eso que no tenía, ni queríamos que tuviera, un nombre concreto.
+
+
+
+
+Laura pone las balizas y baja a la banquina. Llegamos, pregunto. No, falta un tramo de tierra. Mi vieja me robó las cosas de la última casa sabés, se llevó hasta las fotos. El auto empieza a rebotar por los pozos y porque vamos rápido; Laura prende otro cigarrillo y yo le digo que vaya más lento, que vamos a romper el piso. A veces salíamos en la moto que la madre le dio cuando el Gordo le hizo desaparecer el Europa de un día para el otro. Íbamos por los mismos caminos, pero más ligeras de todo el armazón pesado del auto viejo. Ahora pienso, mientras la miro de perfil, que Laura vivía enojada. Fue la única vez que tuvimos un accidente. Ella se quebró una pierna y yo me abrí la piel contra el asfalto. Falta poco, dice y dobla a la izquierda, pasamos unos campos con girasoles y busco alguna señal que me indique dónde estamos, cerca de qué pueblo, a cuántos metros de la ruta, pero no tiene mucho sentido porque hace años que no vengo por acá. No me vas a comentar nada de lo de mi mamá, pregunta ella. No sé qué decirle entonces digo que las relaciones son difíciles, la de ella y la madre más, que hace años que no sé cómo están las cosas. Frena el auto en una tranquera, dice las cosas están como siempre, y se baja. Yo me quedo sentada sin saber qué hacer hasta que viene por el otro lado y abre la puerta, se agacha, acerca su cara y siento como si me oliera. Le agarraste miedo al campo, me dice. Bajo y caminamos, una detrás de la otra, hasta la tranquera, la pasamos y seguimos por un camino largo sin árboles. Al final se ve un rancho de adobe, un bebedero con un molino roto y unos chanchos que andan sueltos. Qué hacemos acá. Laura no me escucha y camina más rápido que yo, no sé si apurar el paso o mantener distancia. Hace calor y está por llover. Alrededor es todo pampa sin fin. Se me arrugan los ojos por la resolana que atraviesa el cielo denso de nubes. Empiezo a pensar cosas raras, nueve años es mucho y yo no estuve prestando atención. Y si lo del novio es mentira, y si Laura vive escondida acá, y si están la madre y el Gordo en ese rancho esperándonos, a qué vinimos hasta acá, al medio de la nada, a hacer qué, lo que me dijo es cierto, le agarré miedo al campo. Cuando nos acercamos más, estudio rápido el panorama; me tranquiliza no ver gente, ni más movimiento que los chanchos que están a unos metros y quiero que lo que sea que vinimos a hacer lo hagamos rápido.
+
+
+
+
+Laura entra al rancho pero yo me quedo afuera y un poco más lejos, intento seguirla con la vista a través de los postigos podridos. Hay un nido de avispas arriba de la puerta de entrada. Me dan miedo las avispas. Imagino que el nido va a caer, va a romperse y la cara de Laura se va a llenar de bichos, que va a convulsionar en el piso con el cuerpo infestado, va a gritar y a tratar de cubrirse, me va a llamar y yo no voy a poder entrar. Se va a morir de dolor en ese rancho de mierda. Cuando hago unos pasos hacia la puerta, Laura sale con dos bidones amarillos y ni me mira. Rodea la casa, la pierdo de vista. No quiero quedarme ahí parada, con los chanchos que se tiran y revuelcan en un charco enorme de barro. Para peor, empieza a tronar. Pienso en salir hacia la ruta por los caminos de tierra, me muevo despacio para no tropezar con algún pozo escondido entre los pastos. Ojalá tuviera las llaves del auto. A veces Laura desaparecía dos o tres días, yo nunca pregunté dónde estaba. Aparecía en casa como si nada, a pedir las hojas de la escuela, a preguntar por alguna novedad. No sé si tengo culpa o miedo. Al fin rodeo la casa y la veo con uno de los bidones en la mano, al costado está el Europa y por un minuto casi no lo puedo creer. Es el mismo, pregunto. El mismo, dice ella sin mirarme, lo trajo acá para que se lo coma el campo, para que yo no lo tenga. El naranja del auto ahora está más gastado. Adentro le creció la maleza y tiene el piso agujereado de podrido. El primer día que Laura llegó con el auto a mi casa, le sacamos una foto posando en el volante. Siento una bronca rancia que nace en el estómago y apoyo la mano en un árbol. Escupo una baba espesa que no termina nunca de tocar el pasto. Sé lo que va a pasar y no me parece mal. Estamos en uno de los campos del Gordo, vamos a prender fuego el auto y el rancho también. Ayudame, dice Laura y me pasa el otro bidón. Entrá a la casa y llenala toda de kerosene, afuera lo mismo.
+
+
+
+
+Hay otra entrada en la parte de atrás. La manija oxidada se me queda en la mano. Empujo con ganas la puerta y entro al rancho que huele a tierra, a humedad y está lleno de ramas, bichos muertos y cacharros oxidados. En la sala más grande hay una mesa larga y una cocina a leña tapada de cajas con juguetes, peluches, un juego de mesa, tizas, postales y fotos. En la sala más chica hay dos camas grandes, un respaldar de madera, libros y diarios viejos, un ropero con un espejo partido en dos. Hay un único cuadro de la familia colgado en la pared de la puerta de entrada, cerca de las avispas. Las fotos son de Laura. Los juguetes también. Quiere quemarlo todo.
+
+
+
+
+La miro por la ventana. Está terminando de rociar el Europa. Empiezo a tirar el kerosene en los muebles y en el piso. Lo hago pensando en la prolijidad del surco que dejo en la tierra, en no mancharme el pantalón, en el olor que me queda en las manos. Salgo y rodeo la casa con un único hilo de kerosene. Laura me grita y voy hasta el auto, que ya se pierde de a partes en el incendio. El calor choca y contrasta con el día de tormenta. Tengo el bidón en la mano. Formo un trazo de parafina invisible que une el auto con el rancho. Le digo que vayamos del otro lado, cerca del molino roto; a Laura le cuesta apartar la mirada, pero al final me sigue. Los chanchos no están. Nos sentamos en los bebederos y prendemos un cigarrillo del que pitamos las dos.
+
+
+
+
+Cuando empezamos a fumar lo hacíamos en el techo de mi casa. En invierno se nos helaban las manos y en verano se nos quemaba la espalda. Laura fumaba sin toser y me enseñaba a hacer aros con el humo. Desde esa altura se veían las luces del centro que se prendían a la tardecita. Un color anaranjado nos tocaba la cara igual que ahora. Algo explota adentro del rancho y aunque nos asustamos no decimos nada. Las llamas brillan como el Europa cuando estaba nuevo, se agrandan hasta comerse la garúa fina que cae desde hace un rato. Nosotras las miramos quietas. No quisiéramos irnos ahora que entendemos lo que pasa y que vemos que el incendio va ganando altura.
+
+
+
+
+\_\_\_
+
+
+
+
+DANA MADERA
+
+
+
+
+Dana Madera (1989) nació en Carlos Casares y vive en Buenos Aires. Es abogada por la Universidad de Buenos Aires y estudia Licenciatura en Artes de la Escritura en la Universidad Nacional de las Artes. Trabajó como docente, fue parte del proyecto audiovisual Los Confines de la Palabra junto a Liliana Bodoc y del equipo de edición y redacción de la revista digital Palta. Actualmente coordina talleres de literatura en Buenos Aires. Su cuento “Alrededor es todo pampa sin fin” obtuvo una mención de honor en el Concurso Haroldo Conti (2020) y será parte de una antología de autores bonaerenses. Forma parte del libro Nuestros años pasan de la misma manera, que acaba de publicar Rosa Iceberg.
+
+
+

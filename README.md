@@ -7,7 +7,6 @@ De [Qué es La Agenda](https://laagenda.buenosaires.gob.ar/contenido/5137-que-es
 
 Este proyecto es un "scraper" (un software para la obtencion automatizada de información en internet) y a la vez un archivo histórico que almacena los textos publicados en La Agenda Revista desde sus inicios en 2015 hasta la actualidad. 
 
-**Nota: por ahora sólo los articulos del sitio antiguo hasta 2021**
 
 
 Sitio nuevo: https://laagenda.buenosaires.gob.ar/. Sitio antiguo: https://laagenda.tumblr.com
@@ -21,11 +20,21 @@ Tambien estan "linkeados" desde subcarpetas [posts/por-autor/](https://github.co
 
 ## Cómo utilizar el scraper
 
-Para actualizar los articulos del sitio antiguo en Tumblr:
+En primer lugar, instalar los requerimientos
 
 ```
 pip install -r requirements.txt
-scrapy runspider laagenda.py
+```
+
+Para actualizar los articulos del sitio antiguo en Tumblr:
+
+```
+scrapy runspider laagenda_tumblr.py
+```
+
+De sitio nuevo 
+```
+scrapy runspider laagenda_tumblr.py
 ```
 
 ## Cómo crear un ebook a partir de un conjunto de archivos. 

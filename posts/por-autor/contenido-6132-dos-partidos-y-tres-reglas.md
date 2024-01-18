@@ -1,0 +1,1 @@
+../../contenido-6132-dos-partidos-y-tres-reglas.md

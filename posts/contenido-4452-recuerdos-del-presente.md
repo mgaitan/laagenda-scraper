@@ -1,0 +1,56 @@
+# Recuerdos del presente
+
+**A 35 años del estreno de Volver al futuro, film que hizo que fantaseáramos con destinos paralelos aunque, seguramente, ninguno como el actual.**
+
+22 de marzo de 2021 - ANIVERSARIO
+
+_por DIEGO LERER_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4452-recuerdos-del-presente
+
+
+
+Al cumplirse 35 años de “Volver al futuro” es imposible no pensar en el presente. Si la película popularizó el juego del viaje en el tiempo e hizo que toda una generación imaginara posibles destinos paralelos y paradojas temporales, seguramente a ninguno se le hubiera ocurrido una alternativa similar a la que estamos viviendo. Además de todos los otros problemas con los que tiene que lidiar, el propio estudio Universal está sufriendo las consecuencias de la pandemia en sus planes de festejo del aniversario de la película, que se venían armando desde el año pasado con una serie de eventos y lanzamientos que debieron ser alterados, como los que iban a tener lugar en los parques de diversiones del estudio, el reestreno de la película en cines y hasta el lanzamiento de una nueva línea de ropa. Y, obviamente, el musical que quedó suspendido en un limbo temporal del que no parece que podamos escaparnos ni con plutonio ni con la electricidad generada por un rayo.
+
+
+
+
+Las historias y los homenajes a la saga se han extendido a lo largo de estos años al punto que se podría compilar una Biblia para los fanáticos de las anécdotas de preproducción y rodaje, así como los incontables errores que aparecen en cada una de las tres películas. De toda esa trivia hay un dato que es conocido pero que sigue siendo clave: “Volver al futuro” se filmó durante cinco semanas con Eric Stoltz en el rol de McFly hasta que el director Bob Zemeckis tuvo que admitir que la elección no había sido la correcta y el estudio asumió la pérdida de 4 millones de dólares (ajustados a valores de hoy serían más de diez) y se refilmaron todas sus escenas con la entonces joven estrella de televisión Michael J. Fox. Ese tipo de detalle de producción generó una diferencia importante: ¿quién sabe qué hubiera sucedido con Stoltz en el papel principal? ¿O con algunos otros candidatos posibles, como unos entonces poco conocidos jovencitos llamados Johnny Depp, Robert Downey Jr. y Charlie Sheen?
+
+
+
+
+Si la película se mantiene viva al día de hoy es más que nada por la electrizante energía de Fox y de Christopher “Doc” Lloyd, cuya química frenética remeda a los clásicos de la comedia de los años de oro de Hollywood. “Volver al futuro” puede ser recordada por las específicas paradojas de su viaje en el tiempo, por su intrincado guión lleno de detalles o por la inquietante idea de un romance entre madre e hijo que subyace a toda la historia, pero creo que no se sostendría en el tiempo de no ser, más que cualquier otra cosa, la historia de una amistad entre dos seres conectados, más allá de su diferencia de edad, por su espíritu aventurero y por su pasión por el descubrimiento y el riesgo.
+
+
+
+
+Entre las incontables ideas que el film trabaja y que van de lo familiar/personal a lo público/político, hay algunos aciertos llamativos y otros que han quedado claramente fechados. Una efectiva broma usada a lo largo de la película ligada a que Ronald Reagan –un actor de segunda línea en los años ’50—era presidente en los ’80 tranquilamente podría utilizarse entre 1985 y la actualidad solo cambiando el nombre por el de Donald Trump. Hay otra, discreta pero clave, ligada a cómo una pequeña ciudad en promisorio crecimiento de los años ’50 se transformaría en un pueblo bastante dilapidado con gente durmiendo en la calle, cines céntricos transformados en iglesias evangélicas (o en donde dan películas porno con títulos como “Orgy American Style”) y familias deshilachadas con padres atontados por la televisión y madres alcohólicas y depresivas. En un modo cercano al de Frank Capra en “Qué bello es vivir”, “Volver al futuro” es una película que ejercita la nostalgia por una época más próspera y estable, pero una que necesita de su paradoja espacio-temporal central para corregir sus problemas ya instalados.
+
+
+
+
+[![](https://img.youtube.com/vi/qvsgGtivCgs/0.jpg)](https://www.youtube.com/watch?v=qvsgGtivCgs)
+
+
+
+
+Muchos analistas han creído ver en “Volver al futuro” algo parecido a una película conservadora, que se apoya en la idea de un retorno a un pasado ideal para resolver un presente conflictivo, poniendo en escena los conceptos ideológicos propuestos entonces por Reagan, en lo que fue la versión original del actual “Make America Great Again”. Pero el guión de Gale y Zemeckis es demasiado inteligente para reducirse a eso. Los ’50 de Hill Valley era también uno de “bullies” y acosadores sexuales (encarnados por Biff, el Trump de la historia), de granjeros armados y violentos, de no muy sutil racismo (ver sino el breve intercambio entre el futuro alcalde y su jefe en el restaurante, mandándolo a barrer los pisos) y donde los soñadores, escritores o inventores vivían escondiéndose u ocultando sus hobbies para escapar del sarcasmo de sus mayores o de la marginación social/escolar. Ese “¿quién diablos es John F. Kennedy?” que le espeta a Marty su abuelo es una broma temporal directa pero también una posible lectura de una época en la que presidentes como JFK eran impensables.
+
+
+
+
+Pensada de modo, si se quiere, posmoderno –los viajes en el tiempo siempre habilitan esa lectura–, “Volver al futuro” propone un cruce histórico, cultural e ideológico de ida y vuelta, uno que también tiene sus zonas grises (la idea de que McFly “inventa” al rock n’ roll y es copiado por Chuck Berry hoy sería una blasfemia tal que para muchos cancelaría la película por completo) pero que hace eje fundamentalmente en el costado familiar de la historia: es Marty el que tiene que salvar al matrimonio de sus padres. No solo haciendo lo imposible para que se conozcan sino ayudando a generar en ellos –especialmente en su padre– la confianza para atravesar las situaciones más complicadas de su vida futura, sea animándolo a enfrentar al bully en cuestión o alentándolo a no abandonar su pasión por la escritura. En su viaje en el tiempo, Marty termina actuando como una suerte de terapeuta de sus propios padres.
+
+
+
+
+La situación claramente más incómoda y extraña de la película tiene que ver con su subtrama incestuosa, centrada en la necesidad de Marty de evitar que su madre se enamore de él, con escena de beso incluida y todo, algo que generó que Disney no quisiera involucrarse en la producción de la película. Zemeckis y Gale lograron salir del paso de ese incómodo eje temático a través de la comedia. Es así que, si bien “Volver al futuro” puede considerarse una película de ciencia ficción y una de acción y aventuras, su corazón está en la comedia física, alocada y nerviosa que genera la manera en la que los personajes lidian con sus diferentes complicaciones. Y si la trama de la película tiene que ver con regurgitar los ’50 a través de los ’80 (o viceversa), formalmente el film también apuesta a recorrer la historia de los géneros clásicos del cine de Hollywood, algo que se notará aún más en sus dos secuelas, que van a la ciencia ficción más pura y también al western, siempre dentro del mismo espíritu mash up genérico de la trilogía.
+
+
+
+
+Con el musical suspendido (otro género clásico al que la saga estaba apostando), con los homenajes encaminados pero opacados por un presente que se parece a la más distópica de las ficciones del cine y con un tiempo que, a diferencia de la propulsión que genera la propia saga, se ha vuelto fundamentalmente estático, “Volver al futuro” se topa con una celebración un tanto triste que refuerza su lectura retro. Hoy no hace falta pensar en los años ’50 como un tiempo inocente y puro al que deseamos regresar. Tampoco siquiera a los ‘80. Con volver un par de años atrás nos debería alcanzar para intentar modificar el futuro que terminó llegando. Cuando quieras, Marty McFly, hacenos ese favor. El DeLorean de algún lado lo rescatamos.
+
+
+

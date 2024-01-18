@@ -1,0 +1,91 @@
+# A esta hora de la noche
+
+**“En el ascensor le dibujo a Agustín un gancho con los dedos. Él levanta las cejas y le beso el cuello antes de llegar a la planta baja”.**
+
+19 de diciembre de 2020 - SÁBADOS DE SÚPER FICCIÓN
+
+_por CECILIA FANT_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/5005-a-esta-hora-de-la-noche
+
+
+
+A la semana siguiente, volvemos triunfantes a la ginecóloga. Ahora sí, le digo con la ecografía en alto, estoy embarazada y, sin pensarlo, mi mano se extiende directo para que ella la agarre y me felicite. La médica duda pero extiende también la suya que está bronceada y luce una alianza de oro en el dedo anular. Después, enumera y escribe una lista en un recetario: crema para evitar marcas en la piel, óvulos de progesterona para que desaparezca el hematoma, ácido fólico para el desarrollo del embrión, fibra para no constiparme, buen descanso, poco esfuerzo. Dice que hemos de tener preguntas pero nosotros no sabemos todavía cuáles hacer; siento paciencia e incertidumbre.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/45561/1b8c3be7-17b0-4e9b-9b5e-9a4afde9a5f2.jpeg)
+
+
+
+
+Sin embargo estoy feliz y me invade la confianza: el embarazo colma a mi cuerpo doliente, lo acompaña, lo transforma. La muerte de mamá está apenas unos meses atrás, meses lentos y agobiantes. Su casa quedó desarmada a medias, su ropa en bolsas de consorcio esperando ser donadas, los placares con zapatos que no encontraron par, las plantas casi secas, la heladera vacía, el polvo sobre el juego de comedor, sus llaves colgadas a un costado de la puerta de entrada. Todo quedó quieto salvo mi cuerpo.
+
+
+
+
+La médica nos recuerda, con cautela, que perder un embarazo en el primer trimestre es normal, sobre todo en primerizas. Completamente normal, agrega. Lo tranquilizador, sonríe, es que siempre pueden volver a intentarlo. Agustín se mueve en la silla cuando ella termina de hablar y yo le comento el deseo de hacerme un análisis genético. La incomodidad invade el consultorio y la ginecóloga nos aclara que en Argentina el aborto es ilegal: y cualquier cosa que pase, yo no puedo ni voy a ayudarlos. Insiste en que ella no le ve demasiado sentido. No acostumbra a pedírselo a pacientes jóvenes y sin ningún antecedente relevante, como yo. La médica lo mira a Agustín. Como nosotros, dice, y nos pregunta por qué queremos hacerlo. Después, busca en los cajones de su escritorio unos volantes promocionales y nos dice que todos los laboratorios ofrecen más o menos lo mismo. No nos recomienda ninguno en particular, no conoce el tema en profundidad.
+
+
+
+
+Reacciono con algo de desconcierto y la necesidad de darle una respuesta que me libere de la consulta pronto. Prefiero saber a no saber, respondo.
+
+
+
+
+A pesar de que todavía no sepa nada, quiero llegar al misterio en términos prácticos lo más pronto posible. Y también incómodos. Si sé qué pasa puedo decidir mejor, pero esto no se lo digo. El análisis genético no está en protocolos y ninguna prepaga ni obra social cubre su costo que es de alrededor de 1000 dólares. El testeo se realiza a partir de la décima semana de embarazo. Con una muestra de sangre de la madre —que licúan hasta identificar el ADN del feto— corren una serie de exámenes. Los resultados descartan o confirman anomalías cromosómicas y anuncian el sexo del bebé. Es asertivo y no estadístico como el scan fetal y los estudios de rutina y protocolo.
+
+
+
+
+Sus manos están cruzadas sobre el escritorio y una de las solapas del cuello de su guardapolvo, apenas levantada. Mis manos abrazan mi mochila sobre mi panza, tengo el cuerpo inclinado hacia delante. Trato de encontrar, mientras la miro atolondrada, eso que no vi durante seis años de consultas: una tendencia, una postura profesional, una frase que resonara, una pista. Estudio su prolijidad pero estoy en blanco, no hay nada a la vista, nada que me previniera de que mi ginecóloga no entendía de derechos reproductivos y de decisiones. No como yo lo entiendo. No como necesito que lo entienda quien acompañe mi gestación. El debate por la IVE está muy fresco todavía en nuestras cabezas. Incluso en nuestros cuerpos que marcharon, vigilaron, escucharon debates eternos, soportaron los argumentos más salvajes y brutales hace pocos meses.
+
+
+
+
+La miro, le agradezco y apuro la despedida. Nos cita a una nueva consulta el mes siguiente. Salimos sin pedir el turno. En el ascensor le dibujo a Agustín un gancho con los dedos. Él levanta las cejas y le beso el cuello antes de llegar a la planta baja. Sé que va a decirme que no me preocupe y me va a preguntar, incluso conociendo la respuesta, qué quiero hacer. Lo espero, mientras me sostiene la puerta del edificio y salimos por última vez de ese consultorio, a que empiece a caminar, ordene sus ideas, me estire la mano y suspire. Me adelanto y le digo que no se preocupe, vamos a encontrar otro médico, vamos a saber cómo iniciar la conversación. El enojo cede y el miedo también. Me guardo la sorpresa; me guardo el golpe seco que sentí en la consulta. Hay que despejar para anidar.
+
+
+
+
+\*\*\*
+
+
+
+
+La primera vez que acompañé a una amiga a abortar tenía veintiún años. Me había dicho: tengo un problema, después de tomar un chupito de whisky tiradas en su cama, mirando un capítulo de Friends, un viernes a la noche. En esa temporada, Rachel se entera de que está embarazada y decide ser madre soltera porque es una mujer profesional, plena y decidida. Nada parecido a la Rachel de la primera temporada que no sabe servir café ni contener su superficialidad. Nada parecido a mi amiga. Está pálida y me asegura que tomó mal las pastillas, sin intención, en la distensión de las vacaciones. Y ahora esto. Su novio no sabe nada y así es mejor. No lo quiero, me dice. Se refiere al embarazo, y quizás también a su novio, pero por ahora decidimos no hablar de él. Laura va hasta el baño y agarra el evatest para mostrármelo pero, en cambio, llora sentada en el inodoro mientras lo mira como si la química de ese baño de lágrimas pudiera cambiar el resultado.
+
+
+
+
+Laura vive sola. Es mi primera amiga que paga alquiler, servicios, impuestos. Su papá está muerto y su mamá está loca. Tiene trabajo pero no tiene plata. Le pregunto cuántos días de atraso tiene. Me dice que cree que este ya es el segundo mes que no le viene pero que en realidad no sabe. Pensó que el atraso era por haber tomado mal las pastillas, algo que se desencajó en su cuerpo.
+
+
+
+
+Bajo el volumen de la tele y la dejo sola. Laura llora y tiembla. Tiene miedo. Toma otro chupito y me dice que no va a poder con esto. La escucho mientras, en el living, rastreo en mi teléfono el contacto que ya ha circulado en nuestro grupo de amigas. Una vez, dos veces, varias veces. Lo tengo agendado como Consultorio A pero nunca llamé. Le anoto el número en su teléfono, le digo que tiene que llamar el lunes antes de las 15:00. Que no tiene que decir nada, sólo que necesita hacer una consulta con el doctor. Ella asiente y me pregunta si voy a acompañarla.
+
+
+
+
+El turno es pocos días después. El novio de Laura ya sabe del embarazo, ya sabe de la decisión y aclaró que pagaría por el aborto. Laura me lo dice aliviada, no le importa que no la acompañe, que le dé cosa, que sienta que no puede. El consultorio queda enfrente de un sanatorio céntrico, en un edificio estilo francés con ascensor tijera y botonera brillante. Una enfermera vestida con ambo verde, que hace a la vez de recepcionista, nos abre la puerta y entramos a una sala de techos altísimos y paredes blancas. El barniz de las aberturas brilla. Los sillones forman un cuadrado en el que estamos nosotras, una mamá con su hija adolescente y una pareja que no se mira. Todo es prolijo, sobrio, preciso. Susurrado y tenue. Me siento de espaldas a la ventana y escucho a la enfermera llamar a Laura y hacerle una serie de preguntas de rutina: fecha de última menstruación, síntomas, otros antecedentes clínicos, alergias. El doctor va a verla en unos minutos. Pero antes, tiene que abonar los estudios, los honorarios del doctor y el procedimiento. Laura saca de su cartera el equivalente a cinco sueldos suyos y se lo entrega. La enfermera la hace pasar y después me llama a mí, me indica una serie de compras que tengo que hacer: antibióticos, analgésicos y apósitos. Cuando vuelvo de la farmacia, Laura está sentada en el sillón con una ecografía en la mano. Diez semanas, me dice, con el papel estrujado. Le digo que todo va a estar bien. Laura mira la puerta que lleva al consultorio-quirófano y después me mira a mí. Sonríe y se levanta. Vas a estar bien, le digo. La enfermera cierra la puerta y me dice que cuando Laura despierte del procedimiento me van a llamar para que la vea. Antes de irnos, nos van a dar una lista de cuidados y pautas. Como no dejo de mirarla, me dice que no tengo que preocuparme. Ellos hacen esto todo el tiempo. La rutina.
+
+
+
+
+Hojeo revistas de espera hasta que me llaman y veo a mi amiga en una camilla, desperezándose, con la boca seca, una única pregunta y todavía ningún dolor: ¿listo?
+
+
+
+
+La voz de Laura suena diferente, lejana. La enfermera entra en este pasillo devenido sala de recuperación y me dice que ella no quiere apurarnos pero tendríamos que irnos del consultorio en breve. Laura tiene que tener cuidado cuando se incorpore. Las piernas pueden temblarle y caerse. Los mareos pueden durarle. No tiene que hacer una dieta especial. Tampoco ningún esfuerzo. Tiene que controlar las pérdidas.
+
+
+
+
+El taxi, mejor, lo toman en la esquina.
+
+
+

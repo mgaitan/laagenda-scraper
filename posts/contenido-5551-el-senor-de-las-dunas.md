@@ -1,0 +1,71 @@
+# El señor de las dunas
+
+**Flavio Cianciarullo encontró su lugar en el mundo en Chapadmalal, donde reconfigura el universo Cadillacs con ensayos, poesía y literatura fantástica.**
+
+13 de mayo de 2021 - ENTREVISTA
+
+_por PABLO STROZZA_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/5551-el-senor-de-las-dunas
+
+
+
+**13 de febrero de 2000, Monterrey, Nuevo León, México.**
+
+
+
+
+**Pocos días atrás fui a hacerme una radiografía al hospital. El radiólogo tardó un rato largo, hasta que finalmente vino y me dijo: ‘Salió esto’”.**
+
+
+
+
+**Lo que sigue a esa introducción es una enumeración en letra mayúscula de nombres propios que van desde Mar del Plata y los vampiros marplatenses y mexicanos al sello Tamla Motown, pasando por The Velvet Underground, Twin Peaks, Carlos Gardel, Leónidas Lamborghini, The Specials, Black Flag, Frida Kahlo, la cumbia y, claro está, Los Fabulosos Cadillacs, entre tantísimos otros. La primera aparición de esta lista fue en su desaparecido blog. Luego tuvo una mención, bajo un contexto de ficción, en el inicio de su novela The Dead Latinos (2007). Y ahora vuelve a irrumpir en la página 87 de Los textos Silver Tape: Catarsis surfer calavera de un sonidero antipoeta. Cuando se le hace mención a las repeticiones de esta lista, alguien que no necesita presentación como el Señor Flavio Cianciarullo, del otro lado del teléfono, esboza una leve sonrisa (eso es lo que se escucha) y ensaya una explicación convincente y coherente sobre esta recurrencia: “Esto empezó cuando grabamos El león: yo era el que escribía la data para pasarle al diseñador del arte del disco. Así surgió toda una lista similar para los agradecimientos, que en verdad era una lista de cosas lindas, y que terminó siendo como una suerte de manifiesto nuestro. Me gustó, y es algo a lo que regreso porque se ve que necesito hacerlo. Es un lado donde redundo, y voy y vuelvo una vez, y otra vez. Supongo que varios títulos se repetirán, y otros no. Me encanta, me gusta repetirlo”, dice, sin intención de convencer a nadie, pero como algo propio y personal que le da ganas de compartir.**
+
+
+
+
+**Los textos Silver Tape es el séptimo libro escrito por Flavio, y el segundo de no ficción, tras el explícito El león del ritmo: de gira con LFC (2017). “A esos dos libros los considero una excepción, que seguramente seguiré practicando en otro momento”, aclara al respecto. “Yo me siento como un tipo que escribe ficción. Pero, a la vez, no me encarcelo ni me enclaustro en un género. Entonces, dentro de ese contexto de haberme movido de mi modalidad más cómoda, el libro de la gira fue algo muy de ese momento, muy subjetivo y muy alejado de lo que puede ser un trabajo periodístico. Y más allá de que las escenografías sean distintas, lo que tienen en común ambos libros es que he pintado emociones. En uno las emociones pasaban por la gira, y en este por flashes de recuerdos que iban pegándome cosas. Por ejemplo: me pintó el skateboarding o el hardcore, y escribía sobre eso. Pero no como un periodista. Daniel Flores, que me produjo el libro, me decía sobre un capítulo que se llama Amor y distorsionadores, que habla sobre hardcore, “Sería bueno quizás aclarar en el título…” y yo le decía “Danny: yo no quiero aclarar nada, porque es muy subjetivo”. Es la emoción que a mí me causó el hardcore. No soy haciendo un trabajo monográfico, que le ponés como título Hardcore punk. Y ahí me entendió”.**
+
+
+
+
+**Uno de los principales aciertos de estos mini ensayos donde también conviven el surf, recuerdos sobre Gamexane, el under o una vindicación a los casetes es que Flavio todo el tiempo aclara que no quiere bajar línea sobre nada. La parcialidad, acá, es ama y señora del tono: cuando uno entra en la frecuencia que propone el músico, es muy difícil salir, y no importa si uno adhiere o no a sus pensamientos. “A mí me pega lo que muchos filósofos, y sobre todo Nietzsche, dicen sobre las convicciones: que enclaustran y encarcelan. Obviamente podés tener principios naturales y éticos. Pero si no tenés convicciones, tenés un montón de libertades de elección. Yo eso lo aplico a mi existencia humana. Por ejemplo digo: soy vegano. Y ojo: no estoy en contra del vegano militante. Pero soy vegano para mí. Y lo otro que me pasa es que cuánto más filosofía leo, más me adhiero al individualismo. Me fascina Ayn Rand. El individualismo esculpe al ser humano para después desarrollarse de manera colectiva. Y no es que uno no es lo que es el otro, no es política”. Igualmente, cuando se le menciona como una broma que no aparecen defensas sobre los postulados hippies, acepta la chicana de forma juguetona: “Uno se crió desde el lado del punk. El punk es la esencia filosófico musical de mi existir. Porque el ska que nosotros empezamos haciendo, y cultivamos con mis compañeros en los inicios, tiene que ver con ese ska de fines de los 70 que, a la vez, tiene que ver con el punk. Después nos metemos en esta fuente inconmensurable donde el punk se abre, que es el post punk. Ahí las bandas empiezan a mezclar punk, free jazz, dark, dub. El post punk es el género que verdaderamente abre el juego”.**
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/50260/5c2b7066-7600-4d36-a47f-2035844e2069.png)
+
+
+
+
+Portada de ‘Los textos Silver Tape’
+
+
+
+
+**Hay dos cuestiones que no aparecen en Los textos Silver Tape y son interesantes de abordar. La primera tiene que ver con los cambios de look para un tipo al que el lema “Mod is my religión” de Paul Weller le influyó de forma significativa. “Yo me conmuevo con esa declaración de principios completamente estética anti look rocker hippie. E incluso en contra del dark, que era lo que pasaba en ese momento. A los Cadillacs de aquella época les decían ‘Hay una sesión de fotos para la revista Pelo’. Listo: para nosotros era casi tan importante como tocar. Y a mí me parece genial, y me encanta que a otros les pueda parecer de una banalidad atroz. Pero como éramos bastante irreverentes, y nos gustaba ponernos una chomba Fred Perry, para muchos éramos unos caretas”, recuerda divertido. Y la otra es un apartado dedicado a Jenny, su mujer desde hace añares: “Lo de mi esposa lo tengo más en el plano íntimo. Yo estoy muy feliz con ella. Provengo de una familia que se rompió: nací en Mar del Plata, mis viejos se separaron y de golpe me vi en Buenos Aires con mi vieja. Y Buenos Aires no me entraba, me costaba, hasta que después la amé y la adoré. Entonces me siento muy afortunado de tener casi 57 años y seguir de la mano de mi compañera, la madre de mis hijos, de seguir enamorado. Ella es mexicana, pero nos conocimos en Mar del Plata, a muy pocas cuadras de la casa de mi viejo, ya que trabajaba en un restaurant mexicano. Todo el mundo cree que nos conocimos en una gira de los Cadillacs por México, pero no es así. La confusión puede venir porque poco después de la separación de los Cadillacs nos fuimos a vivir a Monterrey por casi dos años”.**
+
+
+
+
+**Y mientras continua con las colaboraciones con el Comedor Popular Los Chicos del Fondo, en el Barrio El Autódromo de Mar del Plata (“La ayuda que brindo es por el hecho de ayudar y lo hago por fuera, desde mi lugar. Hay un par de amigos que coordinan este comedor y ahí caí. Empecé a tener buena onda y se me van ocurriendo ideas, que es lo que pasa ante la falta de cosas. Ya fui a tocar una vez con la guitarra acústica y ahora, con este segundo capítulo de la pandemia, me quedó un recital pendiente”), y con los Cadillacs y sus proyectos paralelos en stand by por el Coronavirus (“Nos íbamos a juntar a ensayar para el Lollapalooza y se pudrió todo. Extraño mucho tocar, cargar mi camioneta e ir con mis hijos o a Buenos Aires al Salón Pueyrredón o a La Vinoteca Perrier de Mar del Plata, y volver feliz de la vida. Me hace mucha falta”), la descripción de la Chapadmalal que lo tiene a él y a su familia como ciudadanos ilustres es una invitación a abandonar la ciudad más cercana a Henry David Thoreau que al imaginario hippie, pero trocando el mar por el bosque. Y mucho más en estos tiempos pandémicos donde la naturaleza y la falta de contacto humano pueden resultar aliados de fierro. “El Covid me pega como a todos en el plano psicosocial global. Me preocupa lo social, la falta de laburo, la salud. En cuanto a lo mío, yo vivo en un lugar bastante aislado, en una comunidad muy pequeña que se desactiva por completo una vez que termina el verano. Vivo entre el campo y el mar. Entonces, si me tengo que limitar a eso, no me jode. Trato de tomarlo, como dirían los Bad Brains, con ‘Actitud mental positiva’”. Henry Miller supo decir sobre Thoreau: “Es lo más raro que se puede encontrar sobre la capa de la Tierra: es un individuo”. Se puede parafrasear, entonces, esa afirmación para aplicársela al Señor Sonidero Antipoeta Flavio Cianciarullo. Alguien que se jacta en Los textos Silver Tape de no leer las entrevistas que le hacen. Le pedimos por favor, entonces, a alguien de su entorno que se lo comunique.**
+
+
+
+
+**\_\_\_**
+
+
+
+
+PABLO STROZZA
+
+
+
+
+Pablo Strozza es periodista de rock. Fue editor de Rolling Stone. En la actualidad escribe para Clarín. En Twitter es @pstrozza
+
+
+

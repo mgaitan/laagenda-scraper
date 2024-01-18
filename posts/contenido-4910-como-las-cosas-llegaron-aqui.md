@@ -1,0 +1,71 @@
+# Cómo las cosas llegaron aquí
+
+**Por estos días hay danza para ver. Entre varias, sobresalen dos propuestas: una presencial (Mover la lengua) y otra (Instalar danza) para ver desde casa.**
+
+15 de enero de 2021 - TEATRO
+
+_por NATALIA LAUBE_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4910-como-las-cosas-llegaron-aqui
+
+
+
+Así y todo, con las posibilidades limitadas como casi nunca, en 2020 la danza estuvo en movimiento, porque bailarines, coreógrafos y gestores insistieron en seguir haciendo aquello para lo que se formaron: hubo proyectos digitales, hubo streamings y hubo cierta organización para cuando, protocolos mediante, se pudiera volver a habitar la danza cuerpo a cuerpo. Ese movimiento continuo, claro, también tuvo sus razones, entre las cuales la económica probablemente sea la menos relevante.
+
+
+
+
+Así las cosas, por estos días hay danza para ver. Entre las propuestas que están dando vueltas –en enero suelen ser pocas; este enero, menos todavía–, vayan estas dos recomendaciones: una presencial (¡en vivo!, como anuncian sus espectáculos los teatros desde que cambiaron todas las reglas del juego) y una, que en realidad son cuatro, para ver en cualquier momento desde casa.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/45312/e9283723-34d4-4fda-a1fd-a195816c995f.jpg)
+
+
+
+
+MOVER LA LENGUA
+
+
+
+
+En su departamento madrileño, un bailarín ensaya movimientos “al son” de una conferencia de Jacques Lacan. Desde Berlín, una chica mete pasitos de popping al compás de un texto conmovedor sobre los asesinatos por motivos raciales en Hanau, Alemania, a principios del año pasado. Otra performer, desde Washington, improvisa una coreografía a partir de un audio de Whatsapp. Bajo el lema “Se puede bailar cualquier cosa”, la psicóloga y poeta Magdalena Cervellera y Martina Kogan, bailarina y acróbata, crearon en 2017 Mover la lengua, un ciclo que busca cruzar a escritores y recitadores de toda clase de textos –recetas de cocina, manuales de instrucciones, rezos– con bailarines de todas las disciplinas. El puntapié del proyecto fue la obra Fecha 5, en la que Martina le ponía cuerpo y movimiento a un relato de fútbol. Las chicas ya habían pensado en trabajar juntas, bailando y leyendo lo que cada una de ellas respectivamente producía, pero por suerte se dieron cuenta casi enseguida de que en la idea había potencial para convocar también a otros y expandirse. Después de una fecha inaugural en el Teatro del Perro, vinieron muchas otras, en el Club Cultural Matienzo y en el CCK, por caso. El ciclo crecía y crecía, hasta que la cuarentena se impuso en sus agendas, como en las de todos. Para que el tiempo no fuera tiempo muerto durante los meses de encierro, se ocuparon de recopilar lecturas ajenas, armaron una playlist y la pusieron a disposición de quien quisiera filmarse bailando. Así, la cuenta de instagram de [Mover la lengua](https://href.li/?https://www.instagram.com/moverlalengua/) se llenó de nuevas improvisaciones en videítos, con el espíritu del proyecto intacto y un concepto mucho más claro y potente para ofrecer que el promedio de los videos caseros con living de fondo surgidos en cuarentena. También hubo fechas por streaming.
+
+
+
+
+Después de diez meses de su última fecha en vivo, mañana (16) y el próximo sábado (23) las chicas vuelven a la carga en Quetrén, una cancha de fútbol devenida espacio cultural, a metros del Barrio Chino. Para la primera fecha convocaron a leer a Silvina Giaganti y a Flavia Calise; para la segunda, a Julieta Venegas y a Simur, cuyas palabras van a ser bailadas por un grupo de performers especializados en voguing, acrobacia, popping y danza contemporánea, entre otras disciplinas. “Nos importa salir de la endogamia, no convocar solo a bailarines contemporáneos”, explica Martina. La noche se completa con las apariciones espontáneas del público que se anote para leer y bailar: inspiradas en los slams de poesía y en las batallas de las danzas urbanas, las chicas no dejan pasar la oportunidad de que haya performers (y efecto) sorpresa, duplas creadas en el momento cuya sinergia es difícil de medir con anterioridad. ¿Si las pone nerviosas entregar tantos componentes de la noche al azar? Ellas dicen que a veces funciona y a veces no, pero que eso es parte del encanto.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/45313/200edab7-a088-4c1c-8cda-e6cf8f978f52.jpg)
+
+
+
+
+INSTALAR DANZA II
+
+
+
+
+Conviene decirlo de entrada y con total franqueza: a pesar de lo que indica su nombre, esta serie de videos producidos por Fundación Cazadores, que a partir de hoy se puede ver en el canal Vivamos cultura, está hecha por bailarines que no bailan. Lo que cruza estas cuatro obras sin embargo está muy emparentado con (y puede pensarse desde) la danza: son reflexiones audiovisuales sobre el cuerpo, sobre el espacio y sobre el cuerpo en el espacio las que se nos brindan a lo largo de dos horas que pueden disfrutarse de un saque o por tramos. Paradojas de la coyuntura mediante, estas reflexiones se dan a través de un dispositivo inmaterial que no permite que artistas y espectadores compartan espacio y acerquen sus cuerpos. Aunque en primera instancia estaba pensada para ser un recorrido presencial con distintas performances que se activaran a medida que el público las fuera visitando, la pandemia –de vuelta– modificó los planes y curadores y artistas decidieron presentar su material de forma audiovisual.
+
+
+
+
+Instalar danza II es la segunda edición de un ciclo de Fundación Cazadores que busca poner en el centro de la escena el trabajo de coreógrafos y bailarines.
+
+
+
+
+En esta segunda vuelta, las curadoras Elina Rodríguez y Viviana Iasparra pensaron cuatro palabras-acciones (también escritas en infinitivo, en diálogo con el título-madre) como puntapié para la exploración de cuatro artistas, respectivamente: recorrer, conferenciar, desmontar y, nuevamente, instalar.
+
+
+
+
+En Recorrer - Cosas muertas, a cargo de Marina Sarmiento, dos artistas que no se conocían (Marina y Gaby Pastor) trabajan juntas, a distancia, con texto y cuerpo. Conferenciar - El estado de las cosas es un trabajo a cargo de Laura Kalauz, una artista escénica que maneja con mucha fluidez el género conferencia performática y en esta invitación reconstruye obras creadas por mujeres desde los años 60’ hasta la actualidad, en un diálogo crítico con las condiciones de producción de esta época. La pregunta que guía su trabajo es: ¿Cómo pueden actualizarse hoy esas obras? Si bien su trabajo es el que más “pierde” en el traspaso a la virtualidad, el excelente registro de la pieza viva logra que de alguna forma vivamos junto a los visitantes/espectadores lo que ellos transitan durante la obra. Desmontar - Cómo las cosas llegaron aquí es un trabajo de Iván Haidar, el artista que llevó a otro nivel la discusión sobre hacer arte en casa durante la cuarentena (y que mucho antes comenzó a maravillar con una búsqueda de dispositivos escénicos lindera a la de las artes visuales, deliciosa y original). Instalar - Deriva doméstica, de la artista sonora Constanza Castagnet, es una pieza más corta que –signada por la acción que le fue legada– instala durante sus seis minutos el clima propicio para ver todos los demás trabajos. La mencioné por último para que la miren primero: ella es quien se encarga de ponernos en sintonía fina. Por lo demás, pueden elegir el orden que quieran.
+
+
+

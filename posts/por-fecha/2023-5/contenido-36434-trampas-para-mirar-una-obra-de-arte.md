@@ -1,0 +1,1 @@
+../../contenido-36434-trampas-para-mirar-una-obra-de-arte.md

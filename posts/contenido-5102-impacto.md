@@ -1,0 +1,176 @@
+# Impacto
+
+**Adiós a Mauro Viale, creador de una televisión de masas, popular, incorrecta, espantaprogres. Una televisión que apostó por el cruce entre show y noticia.**
+
+12 de abril de 2021 - OBITUARIO
+
+_por ALEJANDRO SESELOVSKY_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/5102-impacto
+
+
+
+¿Cuál es la onomatopeya para la muerte de Mauro Viale? ¿Plop? ¿Pum? Hace 20 años que la tele del día viene con Mauro Viale adentro. Si hasta recién el tipo estaba ahí. Recién quiere decir: pará, lo acabo de ver. O ni siquiera, porque no hacía falta verlo para saber que estaba. Esa gente que se vuelve un timbre, en el sentido de un sello. Gente a la que seguís viendo desde la cocina mientras chequeás las hamburguesas en el hornito eléctrico. Gente que lleva en la pantalla de tu casa el tiempo suficiente como para que verla y escucharla se hayan vuelto la misma cosa.
+
+
+
+
+Y de golpe, como quien apaga la música tirando del enchufe, esa gente no está más.
+
+
+
+
+Gente que se muere y no avisa. Porque, dale, visto en perspectiva Diego venía avisando. Alcanzaba con verlo caminar desde el vestuario hasta el banco de suplentes. Después podía morirse o no, pero a cualquier tipo que camina así le cabe reventar. Mauro, en cambio, hasta recién, hasta hace nada, estaba pidiendo un corte, boludeando a un columnista, estirando el móvil porque le gustaba lo que le traía, volando el móvil a la mierda porque le enfriaba la tarde. ¿Y qué pasó? Pasó que ahora Mauro Viale está muerto.
+
+
+
+
+Cuando te sientas muy especial, cuando te creas un distinto, pensá en cómo reaccionaste al enterarte de la muerte de Mauro Viale. Y vas a ver que sos de lo más vulgar.
+
+
+
+
+Es interesante ese momento, el instante exacto en que la noticia ingresa al torrente de la conciencia. Cero: aún no sé que Mauro Viale ha muerto. Uno: ahora ya lo sé. Somos todos la misma estúpida criatura durante ese pasaje, pobre bichos binarios que aspiran de golpe una conmoción y ahí quedan, haciendo fuerza para creer y para negar hasta que ya no lo pueden negar. ¿Cuánto lleva esta inflexión? ¿Diez segundos? ¿Veinte? ¿Y qué hay al otro lado?
+
+
+
+
+Al otro lado hay un camino nuevo, hay uno menos en ese camino. Al principio se siente raro. Con Mauro Viale se siente especialmente raro. Murió en su plenitud, el tipo. Murió estando.
+
+
+
+
+La televisión es un tubo de existencia contínua, un tipo de marcha. Todas las semanas se parece a sí misma, y a veces pareciera que todos los años aunque con el tiempo se le ven las mutaciones. Tiene un potente halo de permanencia que además es precedente, como algo que ya estaba ahí cuando nosotros llegamos. Mauro Viale era dueño de ese capital, lo que premia la antigüedad. Era como Los Simpsons, siempre en algún lugar están pasando un capítulo de Los Simpsons.
+
+
+
+
+Y goles. Siempre hay goles también. En un zapping a velocidad crucero no los podrías evitar. Goles que no le importan a nadie, de partidos viejos o recientes, con jugadores que reconocés o no, con camisetas que reconocés en el mismo momento de verlas, el instante exacto en el que unos colores ingresan al torrente de la conciencia. O no, tampoco. Al final solo son cosas que hay en la televisión y que van pasando ahí adelante, como un devenir.
+
+
+
+
+Pero algunas de esas cosas se vuelven callo, se vuelven permanencias y se te pegan como canciones. Pero no son canciones: son personajes. Te pueblan. Gente que siempre anda por ahí dando vueltas en la ciudad que sos.
+
+
+
+
+Y no necesariamente porque te gusten. Nadie elige qué canciones se le pegan. A veces es de puro tiempo acumulado, una suma de tiempo y disponibilidad.
+
+
+
+
+George Costanza le ofrece la serie Seinfeld a un productor. El productor le pregunta de qué se trata. Constanza dice que se trata de nada, que es una serie acerca de absolutamente nada. El productor le pregunta por qué la gente la vería. Constanza le responde:
+
+
+
+
+–Porque está en la televisión.
+
+
+
+
+Mauro Viale estaba en la televisión. Todo el tiempo estaba en la televisión. Su presencia era un hábito. En cuál de todas las televisiones que tenemos vistas, bueno, esa es otra charla.
+
+
+
+
+Productor se nace. Es una raza. El productor se siente cómodo en el barro del laburo. Algunos arrancan como productores y después se estelarizan. Cuando eso pasa, se abre una distancia entre ese cuerpo anterior y el nuevo sujeto que ha pasado a ser conductor. Es razonable. Ahora, Mauro Viale nunca hizo ese pase, o por lo menos nunca lo completó. En todo caso fue ambas cosas. El tipo te pedía una nota y se te ponía a llamar al lado. Te corría. La producción es un trabajo físico, de raspado, la zona proletaria de la producción de sentido. A Viale lo encendía ranchar ahí, tenía la enzima que rechaza el confort.
+
+
+
+
+Su última gran conquista de producción fue esa entrevista con Juan Darthés. Dos tipos: uno ya escapando, en la víspera trémula de la huida. El otro, victorioso, serio y en nota, disfrutando por dentro el arponeo de la primicia, con un brillo en la comisura, el reportaje ballena blanca cazado por un periodista capitán Ahab.
+
+
+
+
+Esa, la última. Su pelea con Samid fue la que se recortó, la que se hizo figurita, su triunfo meme.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/45972/17e4232e-9222-4ee4-83e7-0c8132039dde.jpeg)
+
+
+
+
+¿Sabía Mauro con precisión a qué explosivo le estaba dando mecha cuando soltó “usted avaló la bomba a la Amia”?
+
+
+
+
+Seis veces. Una, dos, tres, cuatro, cinco, seis veces le pregunta Mauro Viale a Alberto Samid si le puede hacer una pregunta. Durante esas seis veces, Mauro tiene la pregunta escrita en su cabeza lista para salir por la boca. Siempre supo que decirla era dejar caer una bomba. Toda su televisión está en esa escena: Mauro apretando en vivo un botón rojo para tensar la realidad, romperla para ver cómo se rearma, dinamitar las cosas, una televisión del acto, hiperfáctica, el hecho como hipérbole, el híper-hecho.
+
+
+
+
+El programa donde Mauro Viale se peleó con Samid se llamó “Impacto a las 12”. Se trata de un título honestísimo.
+
+
+
+
+El programa anterior, Mediodía con Mauro, fue su fragua. Ahí nació su primera forma, con la que obtuvo instalación y audiencia masiva. Una televisión de masas, popular, incorrecta, espantaprogres. Una televisión que apostó fuerte, declaradamente, sin pudores, por el cruce fenomenológico entre show y noticia. Y que fuera incluida por la crítica en el descrédito de la prensa amarilla y sus variantes no hizo más que confirmar su éxito.
+
+
+
+
+Una televisión del caos de lo real.
+
+
+
+
+El tipo que había hecho de La Momia en Titanes en el ring, pero al final nunca había sido La Momia, pero parece que después sí, pero igual a quién le importa invitalo igual que venga y se siente.
+
+
+
+
+Una televisión urgente.
+
+
+
+
+Travestis que se pelean con las vecinas de la calle Oro, de la calle Godoy Cruz, traigámoslas al piso y si se cagan a carterazos, mejor.
+
+
+
+
+Una televisión de invitados, una televisión de decile que le pagamos el remís.
+
+
+
+
+El caso Coppola, la contorsiones de personajes como Natalia Denegri y Samantha Farjat, le permitieron a Viale amasar su primera masividad, y verificar que el salto del relato deportivo al periodismo de impacto y sensaciones había sido un salto bien dado. Puso en pantalla un reality jurídico que todavía no se llamaba reality y del que va a emerger una criatura monstruosa, una bestia del pantano: el abogado mediático. Mauro Viale fue su creador, o por lo menos quien consolidó esa silueta.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/45973/8a5a89de-43b3-4f01-b277-03d9e43ca6d7.jpeg)
+
+
+
+
+El abogado mediático es una figura neojurídica que tiene una matrícula habilitante y está colegiado pero que actúa en fangal del famosismo, respaldando con la nomenclatura técnica del Derecho a la televisión triglicérida del escándalo.
+
+
+
+
+El eje Burlando Rosefeld, por ejemplo, con Miguel Ángel Pierri como variante extrema, Mauricio D’Alessandro como reserva de cordura presunta y el doctor Alejandro Cipolla como última actualización disponible.
+
+
+
+
+Una televisión del circo. Y cada uno le cargue a circo el valor o los lastres que le quiera cargar.
+
+
+
+
+Se murió, a los 73 años, un bastonero del entretenimiento informativo, un trabajador incansable, un perseverante de la pantalla en vivo. Se murió en un momento donde el mundo se ha puesto inexplicable y, por lo cuidadoso de su salud que dicen que fue, nos dejó con la sensación de que acá no hay garantías, de que acá manca cualquiera.
+
+
+
+
+Es una de esas muertes que dejan el cráter ahí, y vos, desencantado, te quedás mirando el cráter.
+
+
+

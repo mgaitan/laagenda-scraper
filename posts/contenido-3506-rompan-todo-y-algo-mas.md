@@ -1,0 +1,121 @@
+# Rompan todo y algo más
+
+**¿Es el relato de un museo como si nada hubiese pasado? Como dijo Nebbia: “Si la historia la escriben los que ganan, eso quiere decir que hay otra historia”.**
+
+28 de diciembre de 2020 - CULTURA POP
+
+_por GUSTAVO ÁLVAREZ NÚÑEZ _
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/3506-rompan-todo-y-algo-mas
+
+
+
+No tanto como con la muerte de Diego Armando Maradona, pero sí con la pasión y la ira a flor de piel, las repercusiones del estreno de la miniserie Rompan todo: La historia del rock en América Latina –producida por Gustavo Santaolalla, escrita por Nicolás Entel junto a Nicolás Gueilburt y dirigida por Picky Talarico– se han escuchando a lo largo y ancho del continente. De todo talante y de todo calibre. En principio, en varias entran en juego disputas y rencillas propias del lado de la grieta que cada uno se encuentre parado.
+
+
+
+
+Con un añadido: estamos hablando de un producto comercial muy cuidado, a la altura de la plataforma que lo emite (Netflix) y de la adicción que provoca en muchas ocasiones. A sabiendas, ese gran público al que está dirigido lo devora o lo devorará como lo hace con muchas de sus producciones pensadas para no fallarle a los algoritmos. Además, como todo producto de gran promoción y hecho a gran escala, convive con las resonancias en las redes sociales. Pero para que suceda esto… pasaron cosas. Así que paso a paso.
+
+
+
+
+Los dardos como los elogios pusieron el amperímetro alto en los días posteriores a su lanzamiento. Críticos de cine reprochando a críticos de rock por volverse haters y buscarle la quinta pata al gato. Listas de omisiones en cada país: en Argentina, por lo pronto, desde Riff y Daniel Melero, V8 y Viejas Locas a Ratones Paranoicos y Hermética; ni hablar de la Rock&Pop asimismo no aparecen Mano Negra y su influencia alterlatina, Os Mutantes y su psicodelia eterna –aunque Brasil no estaría en Latinoamérica según el recorte– ni Carlos Santana y su procedencia mexicana. Menciones forzadas. Testimonios de cuatros de copas. Alguien escribió: “Rompan todo es un Excel con Wikipedia de imágenes”. Cada uno fue anotando su poroto de munición gruesa. La gente es mala y comenta.
+
+
+
+
+¿Se puede omitir en toda esta diatriba, en toda esta entronización, que detrás de la miniserie se halla como productor ejecutivo Gustavo Santaolalla, muchas veces la voz cantante del relato a lo largo de los seis capítulos y oído avezado en su papel de productor musical detrás de varios artistas que son los más populares del continente latinoamericano –desde Café Tacuva y Julieta Venegas a La Vela Puerca y Juanes, entre muchos otros y otras–?
+
+
+
+
+Tal vez, en primer término, la saña con Rompan todo: La historia del rock en América Latina descanse en el título ampuloso y la ambición desmedida que la puso en la mira desde el vamos. Si sólo estuviese pensada para el gran público, podrían pasarse de largo ruidosos olvidos o apariciones descolocadas. Si sólo estuviese pensada para ese gran público, no pediríamos tanto detalle o un mayor cuidado cuando hay datos no corroborados y que bailan con desparpajo como si nada. Pero su carácter pretencioso predispone a que la lupa se agrande. Sin embargo, la saña muchas veces está depositada en la figura de Santaolalla –Arco Iris, Wet Picnic, Bajofondo–, ganador de dos premios Oscar. Entonces, habrá que desentrañar cómo llegamos a esto.
+
+
+
+
+Desde Chile, el periodista e investigador Juan Carlos Ramírez Figueroa –en estos días reeditó el libro Crash! Boom! Bang! (2016)– subraya: “Rompan todo es literalmente La Historia del Rock Latino según/al servicio de Santaolalla. Esa precisión les serviría al New York Times, NBC o The Guardian que han reseñado el documental con la sorpresa de un colonizador –o “white savior” como se autocritican ellos– viendo cómo estos baby boomers mexicanos y argentinos imitaron con desfase el rock and roll de los años 50, el blues blanco británico o los festivales multitudinarios”.
+
+
+
+
+[![](https://img.youtube.com/vi/CWprHs86xao/0.jpg)](https://www.youtube.com/watch?v=CWprHs86xao)
+
+
+
+
+“En esta versión santaollesca no se definen los contornos del rock latino ni musicalmente ni como cultura. Tampoco se aborda la evidente (y estudiada) relación entre lo afrocubano y el rock and roll. ¿Ejemplo? Vayan a YouTube y pongan “El loco cha cha cha”. Menos se hablará sobre la paradoja de hacer música dentro de una industria que deja a las bandas revelarse siempre dentro de un límite impuesto por el mercado”, profundiza Ramírez Figueroa, corresponsal en el país trasandino del diario Página/12.
+
+
+
+
+Sobre Perú, si bien se destaca el rol pionero de los protopunks de Los Saicos en los años 60, no se ahonda mucho más en las distintas alternativas de su escena. Wili Jiménez Torres, administrador de la plataforma “¡VUNP! ¡Vale un Perú!”, recalca: “´¡5 segundos de los Saicos… a nada!´ podría ser el titular si esto fuera un artículo y es una opinión personal en un posteo del Facebook de Rock Achorao –que en 2 años suma 100 mil seguidores– sobre Rompan todo. En Perú, mientras medios masivos han realzado su aporte al conocimiento del rock latino, los medios alternativos han recogido el sentir patrio, que como ocurre en otros países poco o nada aludidos en la miniserie, manifiestan su indignación ante lo que consideran una historia latina `oficial´ vista por argentinos; es decir, la historia escrita por los ganadores, ganadores en la industria musical del continente en lo que respecta a rock. Incluso le ponen apellido a esto: `Excelente el documental sobre la vida de Santaolalla, uy perdón, del rock latino´”.
+
+
+
+
+Sin embargo, no todos apuntan hacia Santaolalla. Fabián Muró, desde Uruguay –escribe en El País charrúa– reflexiona: “Aunque la monumental producción tiene varios responsables, va a quedar como `el documental de Gustavo Santaolalla´. El productor, músico y empresario se aseguró un lugar protagónico y algún despistado (o malintencionado) podría interpretar que él quiere figurar como uno de los creadores del rock latinoamericano. Pero no es tan así. Santaolalla es, sin duda alguna, una figura importante y su presencia, aún cuando puede resultar desmesurada para sus detractores, está respaldada por los discos que produjo y, posiblemente en menor medida, los que hizo”.
+
+
+
+
+El país más citado en la miniserie es revisitado por el crítico y músico Alejandro Mancilla: “Uno de los puntos que ha sido criticado en México es que Rompan todo se centra de más en la visión de Santaolalla. Creo que era completamente lógico y válido que un documental en el que él es el productor, hable de lo que vivió en carne propia como músico y artífice de tantos discos trascendentales –sobre su desempeño es otro tema, tiene sus detractores, pero finalmente él estuvo ahí y eso es digno de contarse– y que no hay mucho que reprocharle sobre ello”.
+
+
+
+
+No obstante, Mancilla remarca: “Pienso que hubiera sido muy forzado que se abordaran escenas como la del rock ecuatoriano –por decir algo–, cuando ésta es ajena a la visión de los creadores de la serie. Pero es posible que nadie se hubiera ofendido si se aclaraba en el título que el documental era sobre México, Argentina y Chile –porque Brasil, Venezuela y demás países que cuentan con una historia son prácticamente ignorados– y no del rock latinoamericano en general”.
+
+
+
+
+Una voz colombiana se suma a la conversión. Es la de Julio César Escovar, el periodista y director de la FM Radioacktiva 97.9: “Cada país hubiera necesitado su Rompan todo. En el caso de Colombia –como le debe pasar a otros–, hay muchas ausencias, pero entiendo que hay muchos sonidos aquí que nunca han retumbado como los que han surgido de México y Argentina, y eso no es discutible. Colombia nunca ha sido un país que se pueda considerar `rockero´. Esa es una innegable realidad, y cómo seguro lo vieron –o verán–, Andrea Echeverri (Aterciopelados), el mayor ícono del rock de nuestro país, lo dice con toda tranquilidad”.
+
+
+
+
+Según Fabián Muró, en Uruguay “Rompan todo tiene un significado especial. El título mismo es una referencia al clásico y fundante tema de Los Shakers, “Break It All”. Y en la repartija entre países, no nos podemos quejar. Al menos no tanto. Llama la atención, en lo que hace al rock charrúa, la ausencia de nombres fundamentales como Jaime Roos o No Te Va Gustar, esta última muy popular también en Argentina, uno de los epicentros del rock en castellano. Pero figuran Los Shakers, La Vela Puerca, Rubén Rada, Buitres y Cuarteto de Nos. Algo es algo”.
+
+
+
+
+Hablemos de omisiones. Levantó la mano Chile. Diga, Juan Carlos Ramírez Figueroa: “Sobre mi país sólo diré tres cosas: ¿Por qué los Jaivas sí y Los Golpes o Los Ángeles Negros no, si ambos adaptaban música popular al formato eléctrico? ¿Sabía el equipo de la miniserie sobre la fascinación de la generación de The Trial of the Chicago 7 por la vía chilena al socialismo de Salvador Allende al punto de que sus líderes viajaron al país en 1971? ¿Chequearon esa anécdota que cuenta el tipo de Los Violadores sobre Los Prisioneros?”.
+
+
+
+
+Para el mexicano Alejandro Mancilla las ausencias son muchas, aunque entiende que no se puede ser tan exhaustivo dado que se trata de una una miniserie con tiempos limitados. Ahora bien, cita algunos nombres: “Se hubiera agradecido la inclusión activa de figuras como Cecilia Toussaint –de las primeras cantantes que generaron cosas en México–, Jaime López –quizás el mejor letrista nacional–, La Barranca/José Manuel Aguilera –que es un de los grupos más interesantes del rock con tintes aztecas– y algo –aunque fuera de pasada– de lo que sucedió en los años 80 con Size, Chac Mool, Las Insólitas Imágenes de Aurora –luego convertidos en Caifanes– o tantos grupos de varias épocas más como Las Víctimas del Dr. Cerebro, Las Ultrasónicas, Titán o El Personal, artistas muy diversos, influyentes y seminales”.
+
+
+
+
+A la hora de poner el ojo en las arbitrariedades de presencias mexicanas, Mancilla plantea: “Se abusó de la presencia de figurines como Javier Bátiz –con una aparición o una mención hubiera sido más que suficiente, porque el tipo nunca ha aportado gran cosa– o del integrante de La Revolución de Emiliano Zapata. Igual criticable fue –al revés de la mísera inclusión de Caifanes– la excesiva la presencia de Alex Lora, quien si bien fue un personaje decisivo en el momento en que el rock estaba reducido a los llamados hoyos funky, desde hace tiempo es una caricatura de sí mismo. Tampoco me gustó la ausencia de conflicto. Por ejemplo, en sus inicios Café Tacvba –con aires de postmodernidad– denostaba al Tri –el grupo de Alex Lora–, y hoy todo es como una bonita aldea donde los rockeros mexicanos son amigos entrañables”.
+
+
+
+
+Vuelve a levantar la mano el chileno Ramírez Figueroa: “Porque si Santaolla quiere hacernos pelear –para quedar él más allá del bien y del mal– está bien documentada esa vez que Fito Páez –molesto por las burlas de Los Prisioneros a su divismo– fue directamente a golpearlos, pero se equivocó de camarín con resultados delirantes. Y quizás aprovechar eso para agregar un pequeño detalle: los chilenos llenaron todos los estadios de Lima, Bogotá o Quito gracias a una precariedad musical y unas letras que reflejaban un poquito mejor que Miguel Mateos / Zas o los Enanitos Verdes a una Latinoamérica en conflicto”.
+
+
+
+
+Desde Colombia, un Julio César Escovar más conciliador, agrega: “Disfruté mucho Rompan todo y aparte de aprender, me incentivó a investigar sobre un montón de cosas que no sabía o conocía de manera muy superficial. Y al igual que a usted, y cómo debe ser con la música misma, espero que esas imágenes de Juanes metalero, su mención a Kraken y el metal en Medellín, o incluso lo que se vio del punk en Colombia, le generen interés en investigar más sobre cada territorio. Que Rompan todo haya generado ésta conversación, es una ganancia”.
+
+
+
+
+Desde México, Mancilla concluye: “Personalmente, descubrí algunos datos que no sabía sobre la historia del rock argentino. Me hizo querer saber más sobre Spinetta, me hizo preguntarme qué hubiera pasado si Charly García hubiera producido el primer disco de La Maldita Vecindad –no puedo creer que ellos se hayan negado– o saber que el mismo Charly renegó en su momento de la new wave –y que luego la abrazó, aunque después de ver el documental, pareciera que irónicamente, en Clic Modernos–. Igual extrañé que no estuvieran Daniel Melero –apenas y sale de pasada el disco de Los Encargados–, Los Brujos, Juana la Loca, la movida del rock sónico, etc. y no sé si los estetas y los aferrados del rock argentino hayan notado tantas ausencias –o inclusiones innecesarias– como lo hicimos en México con nuestros locales”.
+
+
+
+
+En tanto, a los ojos de este servidor, son varios los hallazgos: la locura del festival Avándaro en 1971 –suerte de Woodstock mexicano–, el Víctor Jara electrificado acompañado por Los Blops –la hermosa “Valle de los espejos” (1973), del grupo de Eduardo Gatti–, Juanes rescatando su pasado metalero –y la importancia del género en Medellín, Colombia–, Julieta Venegas y su costado indie punki, imágenes de Los Gatos Salvajes como Gabriela con Edelmiro Molinari bellísimas.
+
+
+
+
+Ahora bien, tal vez estemos obviando que el gran propósito de la miniserie se cumplió: está en boca de toda la región. Además, algunas preguntas seguirán ondeando en el aire. Algunas, esperemos, como corolario de esto que recién empieza. ¿Rompan todo es la historia de un museo donde conviven todos, sin diferencias, como si nada hubiese pasado? ¿El único modo de leer la historia del rock en la región es a partir de los sucesos políticos? ¿Sólo es interesante o vendible el rock que cruza su propuesta con el imaginario folclórico local? ¿Rompan todo es la autobiografía visual de Santaolalla? ¿Es la mojada en la oreja a los porteños y su creencia de que inventaron el rock en América Latina? Siempre estarán en nuestros oídos los versos de aquella canción de Litto Nebbia: “Si la historia la escriben los que ganan / eso quiere decir que hay otra historia”.
+
+
+

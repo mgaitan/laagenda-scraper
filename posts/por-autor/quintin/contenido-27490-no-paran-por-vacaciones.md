@@ -1,0 +1,1 @@
+../../contenido-27490-no-paran-por-vacaciones.md

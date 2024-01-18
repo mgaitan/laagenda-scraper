@@ -1,0 +1,76 @@
+# Fusión y desolación
+
+**Dos hombres misteriosos cuidan un faro costero, la distopía de Philip Roth hecha serie y un disco que muestra al rock en su fase jazzera.**
+
+29 de marzo de 2021 - COSAS QUE ESTUVE MIRANDO
+
+_por PABLO STROZZA_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4613-fusion-y-desolacion
+
+
+
+El faro, de Robert Eggers, con Willem Dafoe y Robert Pattinson (Cablevisión Flow)
+
+
+
+
+Estrenada en la Quincena de los Realizadores de la edición 2019 del Festival de Cannes, es una pena que la pandemia nos haya privado de ver El faro de Robert Eggers (The Witch) en pantalla de cine. Y es que el formato cuadrado en la que se presenta esta película, propio del cine de otra época (modo que Lisandro Alonso supo rescatar para Jauja), más la excepcional fotografía de Jarin Blaschkey (por la que fue nominado al Oscar) y las actuaciones memorables de Willem Dafoe y Robert Pattinson hacen que si bien el streaming cumpla y dignifique el cine, al no poder utilizarse, termine realzado precisamente por su falta de disponibilidad actual (y la incógnita acerca de cómo serán las proyecciones apenas termine esta pesadilla).
+
+
+
+
+[![](https://img.youtube.com/vi/Hyag7lR8CPA/0.jpg)](https://www.youtube.com/watch?v=Hyag7lR8CPA)
+
+
+
+
+Thomas Wake (Dafoe), viejo cabrón, no puede no ser asociado al Capitán Ahab.
+
+
+
+
+En un desolado peñasco de Nueva Inglaterra, a finales del Siglo XIX, dos hombres deben cuidar de un faro costero. Thomas Wake (Dafoe), viejo, cabrón y experimentado, a cargo del faro de forma más que celosa, no puede no ser asociado al Capitán Ahab, y mucho más después de escuchar sus parrafadas deudoras de Herman Melville en un clásico inglés isabelino. Ephraim Winslow (Pattinson) es el recién llegado, degradado a realizar todos los trabajos insalubres e ingratos. Tras un inicio de desconfianza mutua, el alcohol sirve como nexo para que la relación entre ellos se afiance, y para que el más joven empiece a alucinar. Ahí es donde la narración, deudora de las gestas marítimas, muta a un mix de géneros (fantástico, suspenso, terror) para no poder ser encasillada en ninguno. La actuación de Dafoe es de la solidez esperada para un hombre que supo encarnar a Jesucristo, a Pier Paolo Pasolini, a Bobby Peru o al Green Globin sin despeinarse. Pattinson confirma que el Eric Packer que supo encarnar en la Cosmopolis de David Cronenberg (esa subestimada adaptación del libro de Don DeLillo) en pleno éxito de la saga Crepúsculo no fue un accidente sino el puntapié inicial hacia una sólida carrera. Y Eggers afianza su trayectoria al hacer que a la denominación “terror de autor” le sobren las dos primeras palabras, sin que eso suene despectivo: acá estamos ante un autor, que aprovecha el género (en este caso el terror) para demostrar su potente personalidad, algo que no abunda hoy en día.
+
+
+
+
+The Plot Against America (HBO)
+
+
+
+
+Una novela distópica de Philip Roth, en donde se narra el ascenso a la presidencia de los Estados Unidos de un prócer de los años 40 como Charles Lindbergh (el primer aviador en cruzar el Océano Atlántico), quien vence en las elecciones celebradas en plena Segunda Guerra Mundial a Franklin Delano Roosevelt de la mano de un programa antisemita (no olvidar que el conductor del Spirit of St. Louis supo ser condecorado en su momento con la Orden del Aguila por Hermann Göring) que garantizaba la neutralidad de ese país en la gran contienda bélica europea. La adaptación televisiva de esa novela, con la venia de Roth antes de su muerte, por parte del gran David Simon (The Wire, Treme, Show Me a Hero, The Deuce), lo que garantiza un nivel superlativo de calidad. Una reconstrucción de época perfecta, como ya se había mostrado en The Deuce. Un reparto que incluye a Morgan Spector (Homeland) y Zoe Kazan (The Deuce, nieta del controvertido Elia Kazan) en los roles principales y a Winona Ryder (quien ya había trabajado con Simon en Show Me…) y John Turturro, entre otros, en los secundarios: todos miembros de una familia judía de Nueva Jersey que por un lado ve con horror el costado nazi de Lindbergh con sus persecusiones y que por otro es parte de ese gobierno. Un libro que, más allá de las coincidencias entre la ficticia Administración Lindbergh y la actual Administración Trump, su autor publicó mucho antes de que la millonaria estrella de televisión alcanzara la primera magistratura estadounidense. Los hijos del matrimonio entre Spector y Kazan, y sus amiguitos, que miran todo entre la fascinación y el espanto. El hermano de Spector (el irlandés Anthony Boyle, que supo deslumbrar en Broadway en la adaptación teatral de Harry Potter), que brilla de manera agridulce desde su rebeldía con sed de justicia. El hot jazz como banda de sonido de la época, y la radio como el medio de comunicación por excelencia, secundado por los noticieros que se proyectaban en las salas de cine. Sólo seis capítulos, que se disfrutan más espaciados que en modo maratón debido a una intensidad que roza con el nerviosismo. Una incompleta enumeración de motivos para decirles de todo corazón que si sólo pueden ver una única miniserie en este aislamiento, que sea The Plot Against America.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/43783/8fb33e30-b90b-40b9-aca4-5f123a8198ec.jpg)
+
+
+
+
+Una familia judía en Nueva Jersey se enfrenta a un hipotético brote nazi en Estados Unidos.
+
+
+
+
+Manhattan Special, de Onyx Collective(TMWRK Records)
+
+
+
+
+“La música rock está en su fase jazzera. Y no quiero decir que esté teniendo un momento de extrema modernidad como ocurre con gente como Kamasi Washington o Thundercat. Quiero decir que el rock hoy es como la versión del jazz de Ryan Gosling en La La Land: algo fetichizado por un público mayor, que ha cedido su lugar en el centro de la conversación cultural a otras formas de música, menos ligadas a un sentido de la historia”. La famosa sentencia del periodista Michael Hann desde The Guardian hace unos años es confirmada desde el jazz a ambos lados del Atlántico. El género nacido en New Orleans vive en estos días una etapa de renovación y cambio con gente como los citados, más próceres como Monty Alexander (escuchar Wareika Hill: Rastamonk Vibrations, su tributo en clave jamaiquina al gran Thelonious), Shabaka Hutchings o el caso que nos ocupa hoy, los Onyx Collective, naturales de una New York City que no podía estar ausente de esta tendencia.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/43784/74c72b4a-f6e0-42ba-9cc5-ba1d45749ec1.jpg)
+
+
+
+
+Entre todas estas expresiones del New Jazz del Siglo XXI, los Onyx se posicionan de entrada como los más hipsters. Ahí están, más allá de las expresiones experimentales de sus inicios, comandando una guía por los lugares con más onda de la Gran Manzana o con Isaiah Barr, su saxofonista líder, hablando sobre su colección de sombreros. Por eso, al anunciar la salida de Manhattan Special con su interpretación de standards de Richard Rodgers junto a Lorenz Hart y a Oscar Hammerstein, se temió que lo suyo fuese una promesa trunca como las de esos futbolistas que la rompen en la reserva y se pinchan al llegar a primera. No solo esto no ocurrió, sino que los Onyx facturaron una puesta al día de esos clásicos respetuosa pero cercana a la niebla hauntológica. Un poco como si el Covid 19 fuese visible y palpable pero, al mismo tiempo, ya domesticado como la influenza. “Glad To Be Unhappy” y sus teclados grises y ralentizados son una prueba fehaciente esa sensación de ahogo que no renuncia a una idea de futuro posible. Por otro lado, su toma “My Favourite Things” tiene plena conciencia tanto de John Coltrane como de Julie Andrews y vira hacia un arreglo jamaiquino que no desentonaría en cualquier combo de rock steady. Y lo mismo aplica para “My Funny Valentine” en función a Chet Baker y a Nico: la voz soulera de Nick Hakim suena escondida entre el vapor de una ducha caliente y el hermoso cansancio que provoca el deporte. Un disco que será odiado por los puristas y que, por ese motivo, ya merece los gastados calificativos de clásico y moderno.
+
+
+

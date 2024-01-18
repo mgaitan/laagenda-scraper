@@ -1,0 +1,1 @@
+../../contenido-14038-es-la-regla-no-la-tecnologia.md

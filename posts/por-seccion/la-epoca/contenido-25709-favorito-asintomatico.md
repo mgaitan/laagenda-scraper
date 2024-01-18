@@ -1,0 +1,1 @@
+../../contenido-25709-favorito-asintomatico.md

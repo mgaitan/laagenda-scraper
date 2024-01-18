@@ -1,0 +1,1 @@
+../../contenido-9420-big-bang-10.md

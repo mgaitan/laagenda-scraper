@@ -1,0 +1,98 @@
+# La imaginación acotada
+
+**Asistimos cada vez más seguido a la aparición de supercracks que, tras generar grandes expectativas, una red de vigías los captura, para luego terminar defraudando.**
+
+18 de septiembre de 2023 - Miradas
+
+_por Quintín_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/44009-la-imaginacion-acotada
+
+
+
+Durante la pausa FIFA estuve pensando sobre esta materia cada vez más difícil de entender que es el fútbol. Algunos pensarán que con tanta tecnología y tantos profesionales debería ocurrir lo contrario y, es posible que tengan razón. La semana pasada conocí a un diseñador gráfico que dejó su trabajo y ahora tiene dos en relación con el fútbol. Por un lado, es analista de videos en un equipo del ascenso profundo argentino. Por el otro, trabaja para una empresa de scouting en la que le asignan misiones como la de encontrar un lateral uruguayo para un equipo italiano, o a dónde le conviene ser transferido en el próximo mercado (más allá del dinero) a una joven crack cordobés. La generalización de las tareas de análisis y reclutamiento de jugadores (más la sofisticación creciente en materia de entrenamiento, preparación física y medicina deportiva) obligan a pensar que cada vez hay más gente que sabe de fútbol. Y también me aseguraba mi interlocutor que la técnica de los jugadores que surgen de los equipos profesionales argentinos (aun de los más chicos), es muy depurada en general, mucho más de de lo que era años atrás en materia de consistencia física, dominio de la pelota y comprensión de las tácticas. Por otro lado, me decía, hay otros progresos evidentes: ningún equipo de la actualidad hace pretemporadas subiendo médanos o montañas. Y algo más sutil: el 5 tiene que saber pasar la pelota para adelante ya que no se trata de sacar pequeños Mascheranos que quitan y hacen un pasecito al costado.
+
+
+
+
+Cada vez aparecen en todo el mundo más jugadores superdotados asombrosamente jóvenes. Y hay una red de vigías dispuesta a capturarlos lo antes posible. Esa red y la mezcla de datos con experiencia empírica, es una forma de conocimiento. Voy a citar dos ejemplos que vi la semana pasada en las eliminatorias para el mundial y la Eurocopa. Uno es el de Kendry Páez (hasta el nombre hubiera sido impensable en otra época), delantero o volante ofensivo ecuatoriano de 16 años que debutó el miércoles en su selección para dar las dos asistencias en los goles de Ecuador a Uruguay. Paéz empezó en el hoy poderoso Independiente del Valle de Guayaquil (un club que es casi de este siglo) a los quince años, es un zurdo de una habilidad asombrosa, una gran pegada y una madurez sorprendente. Contra Uruguay se dio el gusto dejar sentados a los defensores y de saber qué hacer en cada jugada. A Páez ya lo compró el Chelsea, pero la transferencia se va a hacer efectiva cuando cumpla 18 años. El otro ejemplo es el noruego Antonio Nusa (padre nigeriano), que tiene 18 años. También viene de debutar en un partido oficial para su selección con las dos electrizantes asistencias (a Haaland y a Odegaard) que le dieron la victoria a un equipo habitualmente falto de explosión e imaginación como el noruego. Nusa juega en el Brujas belga, una liga que parece dedicarse a producir jugadores. Nunca había escuchado hablar de Páez ni de Nusa, aunque supongo que los que siguen el fútbol internacional de juveniles o las ligas menores europeas los conocían (y, desde luego, figuran en las bases de datos de todos los equipos grandes del mundo y han sido vistos por todos los reclutadores). Ese seguimiento facilita la cada vez más evidente multiplicación de talentos.
+
+
+
+
+Uno podría decir que, gracias a esta maquinaria gigantesca de entrenar y reclutar, el fútbol es cada vez más comprensible, por lo menos para quienes trabajan en estas organizaciones. Sin embargo, quiero mencionar dos declaraciones que escuché en estos días. Una es la de Pablo Aimar, miembro del cuerpo técnico de la Selección Argentina. Aimar dijo que si todos los jugadores se entrenan jugando a dos toques, en el futuro no va a haber nadie que gambetee. Hay que aclarar que no es fácil jugar a dos toques con la destreza con la que se los practica hoy, pero uno podría preguntarse por qué se pierden ciertas habilidades cuando cada vez hay más técnicos y campos de juego para practicarlas (y no es por la falta de potreros, como dice la vieja excusa). La otra declaración fue de Arsène Wenger, el famoso técnico del Arsenal que hoy ocupa un cargo en la FIFA. Dijo algo en la misma línea que Aimar: que los jugadores, entrenados en el mundo con los mismos sistemas, están saliendo todos parecidos. Estamos entonces frente a una paradoja: cada vez hay más jugadores buenos, muy buenos, excelentes, pero el fútbol se va haciendo cada vez más uniforme lejos de la excelencia. Volviendo a mi afirmación inicial, es complicado entender por qué al aumentar la calidad se reduce la imaginación, la capacidad de hacer algo original y distinto.
+
+
+
+
+Creo que hay otra paradoja dando vueltas. En el último año asistimos a un mercado de pases vertiginoso, en el que se manejaron cifras multimillonarias. Pero nadie sabe si lo que se pagó por cada jugador se corresponde con el rendimiento que tendrá en su nuevo club. Estamos asistiendo cada vez más seguido a la aparición de supercracks que, tras generar grandes expectativas, las terminan defraudando. Algunos, incluso, se van hundiendo en la intrascendencia. Tenemos casos como los de Dele Alli, Sancho, Van de Beek, Ansu Fati y unos cuantos más, que parecen destinados a la gloria y un día comienzan una declinación imparable: generalmente después de lesionarse, alejarse de las marquesinas pierden la frescura, la precisión y una confianza que no recuperan nunca. Otros están implicados en apuestas, abusos sexuales y otras formas de inconducta fuera de la cancha. Esta semana vimos como Richarlison, que parecía destinado al estrellato, no podía meter la pelota en el arco jugando para su selección después de convertir un solo gol para su club en todo un año (lo hizo el sábado para el Tottenham y, acaso, vuelva a ser un ídolo). Richarlison declaró que iba a ver un psicólogo para intentar resolver sus problemas. Tal vez todo tenga una explicación sencilla: lo que se compra y vende de un jugador suele ser su potencial, pero se ignora su grado de madurez a pesar de que se lo estudia también en ese aspecto. Todos sabemos que Harry Kane va a hacer muchos goles en el Bayern Munich. La espectacular maduración en el mundial de Mac Allister, Enzo Fernández y Julián Alvarez parece asegurarles una larga estadía en lugares rutilantes (como se puede ver cada vez que se juntan en el equipo argentino). ¿Pero estamos seguros? Igualmente, no todos viven una circunstancia tan favorable como ganar un mundial. Hablé de Kane, pero ¿cómo explicar lo de Hazard? ¿A alguien le parecía inmaduro cuando jugaba en el Chelsea?
+
+
+
+
+Creo que hay un factor que se suele ignorar a la hora de discutir estos casos y cosas. Los jugadores maduran jugando y se supone que los grandes jugadores juegan en equipos grandes, donde hay pocos puestos para muchas figuras y cada año se agregan otras nuevas más las promesas que surgen del club. Así, el talento se malogra o no alcanza a expresarse. La semana pasada vi jugar a Takefusa Kubo para la selección japonesa, el día en que sus compatriotas golearon a Alemania y provocaron el despido del técnico Flick. Hoy Kubo tiene 22 años. Hace cuatro lo compró el Real Madrid, lo presentaron como el Messi japonés y lo prestaron al Mallorca. Fracasó allí, en el Villarreal y en el Getafe. Ahora está en la Real Sociedad. Contra los alemanes entró un rato y dio dos pases de gol. Se lo veía punzante y libre. Ayer lo vi jugar contra el Real Madrid. Tuvo un primer tiempo increíble, con asistencia, gol anulado, desbordes, centros y hasta un caño espectacular a Kroos. Kubo tardó todo eso en rendir aceptablemente. Lo mismo pasó con Odegaard: fue de a poco y hoy es ídolo y capitán en el Arsenal. Y ¿qué me cuentan de João Félix, que tras fracasar en el Atlético de Madrid y el Chelsea, el sábado debutó en Barcelona con un gol y una asistencia fuera del alcance de los futbolistas normales? ¿Pero quién podía saber que iba a fracasar antes y (tal vez) triunfar ahora? Cuando el desarrollo se acelera, el resultado puede ser terrible. El fútbol podría ser mejor si los jugadores crecieran jugando todas las semanas. Kubo, Odegaard y Félix empeoraron mucho cuando les tocaba salir en el banco y jugar 15 minutos. Los que saben hacer algo distinto podrían seguir haciéndolo y romper la monotonía si jugaran al menos 90 minutos por semana. Ahora, en cambio, la mayoría no llega a su potencial porque la presión es muy grande y la competencia no mejora el producto final cuando, en teoría, debería hacerlo. Por eso nadie logra entender bien el fútbol. Y nadie entiende tampoco por qué con este nivel de calidad, de preparación y de scouting los partidos no son conferencias de cracks.
+
+
+
+
+El viernes vi al PSG perder con toda justicia contra el Niza, lo que me alegró el día. ¿Cómo puede ser que el PSG logre jugar mal con todos los técnicos? ¿Quién entiende esto? El técnico del Niza es un italiano llamado Francesco Farioli y dijeron de él que es un discípulo de De Zerbi, su colega del Brighton. Y es verdad que mostró alguna semejanza de estilo en la tendencia a salir limpio de atrás, asegurar la pelota en velocidad y atacar con variantes. Además el Niza contó con Terem Moffi, un delantero nigeriano de 24 años que hizo un gol de rebote, otro con una seguridad demoledora (parecía su compatriota Oshimen) y dio una asistencia después de desbordar, dejar sentado a Danilo, levantar la cabeza y poner un pase perfecto. Pocas veces un jugador justificó tanto hacerse amonestar por sacarse la camiseta en el festejo. Moffi estaba feliz y Mbappé se lo quería comer. Al final fue tres a dos porque Mbappé sigue haciendo goles (uno fue un golazo) aunque su equipo no juegue a nada. Para conectarnos con lo anterior, conviene hablar una vez más de Dembélé, que debería haber triunfado en el Barcelona pero al estar siempre en duda porque le reprochan siempre el gol que no hizo ese día y, aunque haya tenido una gran actuación, lo reemplazan antes de tiempo. Es probable que los cambios solo perjudiquen a los jugadores. Es muy posible que no le permitan terminar de madurar, especialmente en un club como el PSG que no se caracteriza por la paciencia (ni tampoco por la decencia) y termina viendo como sus ex promesas dan la vuelta por lugares extraños porque no los supieron contener (Nkunku, Diaby, Xavi Simmons son ejemplos de los que volvieron y derrotaron al sistema). Pero, volviendo a Mbappé, llegué a pensar en un momento que podría ser un mejor jugador de lo que ya es si lo orientaran hacia un fútbol más armonioso y con más variantes en lugar de ubicarlo como un vigía a la espera de su jugada.
+
+
+
+
+El sábado vimos una Premier League muy divertida. Por ejemplo, vimos al Brighton bailar al Manchester United. Habíamos advertido sobre las calidades positivas de uno y las negativas del otro, de modo que no fue una sorpresa sino una ratificación de que al fútbol se puede jugar bien o mal. El Brighton (que no tiene un solo jugador al que se considere una gran figura) juega bien. Alguien preguntará que es jugar bien. Pero es un círculo vicioso: jugar bien es jugar como juega el Brighton, haciendo de cada pase (aun cuando sea para atrás) un eslabón de una cadena hacia el gol. Jugar mal es jugar como el United, en base a una formación estática y a un exceso de precauciones a la espera de que el gol llegue por un error o una prestación excepcional de sus futbolistas, siempre nerviosos, siempre obligados a hacer algo que la situación no les permite porque el juego no fluye. Hace tiempo que no se ve algo como el Bighton. No sé qué resto tiene, pero espero que el conocimiento de su modo de jugar, que no creíamos posible se generalice y beneficie al fútbol.
+
+
+
+
+El sábado ocurrió algo muy curioso: el City, el Liverpool, el Tottenham y el Aston Villa empezaron perdiendo y dieron vuelta el resultado. Fueron cuatro partidos muy entretenidos, llenos de emociones y situaciones de gol. El Liverpool está volviendo y tiene un nuevo techo que desconocemos. El Tottenham tiene un poco de suerte, pero está jugando muchísimo mejor, más relajado que bajo sus técnicos anteriores, aun sin Harry Kane. El Aston Villa tiene momentos estéticos, una cualidad que no se le puede atribuir a equipos como el Newcastle y el Brentford, que se enfrentaron entre sí tratando de demostrar cual era el más duro de los dos. Son duros los dos, son difíciles, pero solo sus hinchas pueden disfrutar de esos partidos cuando ganan.
+
+
+
+
+Vale la pena hablar un poco de West Ham - City. Fue un gran partido, acaso el mejor ejemplo que se puede ver de la batalla entre las dos grandes escuelas del fútbol. David Moyes, el técnico del West Ham debe ser el más cobarde de todos los técnicos en actividad. En la temporada pasada se lo daba por despedido en cada fecha pero después su equipo mejoró, ganó la Conference League y se afianzó. Por eso, en la conferencia de prensa previa declaró que siempre había sido un técnico prudente y no pensaba cambiar ahora que le iba bien. También dijo que a su equipo no se lo debía juzgar por el resultado de su partido con el City, ya fuera un triunfo o una derrota, una forma de justificar la derrota por adelantado. En eso también fue prudente Moyes. Aunque hay que reconocerle que después de muchas frustraciones, terminó construyendo un equipo sólido, que no solo se defiende con orden y eficacia, sino que tiene dos armas ofensivas que maneja muy bien: el contragolpe y la pelota parada. La salida de Declan Rice no lo perjudicó y la llegada de Ward-Prowse le vino muy bien, como también la del mexicano Edison Alvarez para reemplazarlo, así como la del ghanés Kudus para reforzar el ataque. El West Ham no es solo un equipo para el contragolpe: por momentos, puede jugar muy bien la pelota, solo que lo hace en contados y sorpresivos momentos de los partidos. El City presentó de titular al belga Doku (20, reciente transferencia del Rennes), que en su segundo partido jugó por la izquierda (lo había hecho por la derecha) y demostró ser un wing endiablado, que gambetea con facilidad y fue una pesadilla para el lateral Coufal. El City tenía una buena noche, salvo frente al arco: se perdió cinco veces el gol en una misma jugada y Haaland erraba goles facilísimos (fueron al menos cuatro cantados). Así, a los 36, el West Ham seguía sin recibir goles y con la moral alta. Doku perdió una pelota y Coufal salió de contra combinando con Bowen, en una de esas salidas a alta velocidad que maneja muy bien. Coufal tiró un centro perfecto al que Ward-Prowse llegó con una perfecta palomita. La pesadilla del City se hacía realidad: perder con un equipo que desafía su estilo. Pero al comenzar el segundo tiempo, Doku se rehabilitó: amagó, enganchó y pateó contra el segundo palo con una rapidez fabulosa en el movimiento de piernas. Un golazo, uno a uno y ya se sabe lo que pasa entonces. Minutos después, gran pase de Julián a Bernardo Silva de emboquillada que este definió del mismo modo ([los goles del partido acá](https://www.youtube.com/watch?v=q1ZwtHDt2e8https://www.youtube.com/watch?v=q1ZwtHDt2e8)). Lo gracioso es que Haaland estaba tan peleado con el arco que cuando la pelota entraba la quiso asegurar y le erró. Pero al final, Haaland pudo convertir tras pase de Bernardo, cuando ya estaban en la cancha la nueva adquisición Matheus Nunes y la promesa Oscar Bobb. Fue muy gracioso que cuando Haaland lo fue a felicitar a Bernardo, en vez de un abrazo recibió un empujón que lo tiró al suelo. Los dos se rieron, como si Bernardo le dijera: sos tan burro que te errás hasta los goles que me querés robar. El partido pudo tener otro resultado: aunque el City tuvo más oportunidades, Ederson atajó un par de pelotas imposibles y el partido fue realmente vibrante. Moyes pareció querer estirar al máximo la valentía de los cobardes y su equipo dio pelea.
+
+
+
+
+[![](https://img.youtube.com/vi/ZxHzPidU3NU/0.jpg)](https://www.youtube.com/watch?v=ZxHzPidU3NU)
+
+
+
+
+Si el sábado de la Premier fue muy divertido, el domingo fue soporífero. Primero, empataron cero a cero el Bornemouth y el Chelsea. Uno no se decide si quiere esconderse o sacar la cabeza y el otro se desdibuja, no se sabe a qué juega. El continuo cambio de jugadores y estructura (por primer vez Pochettino se decidió por jugar con solo dos centrales) lo desluce cada vez más. Aunque Sterling no jugó mal ni tampoco Gallagher, este Chelsea es tan amorfo como sus predecesores. El Bournemouth es de los que pelean el descenso pero este año hay candidatos más firmes. Además tiene a Ryan Christie (28), un diez que debería ser más famoso de lo que es, a Marcos Senesi, el argentino menos promocionado de la Premier League y a Dominic Solanke, un delantero que tiene chispa y debió definir el partido en una media vuelta con caño que le sacó el arquero Robert Sánchez.
+
+
+
+
+En segundo turno, el Arsenal le ganó al Everton en un típico ejemplo de la gota que horada la piedra. No hay nadie más sistemático que Sean Dyche para organizar sus equipos para que hagan algo más que defenderse. Muchas veces nada más, como en este caso. Arteta, en cambio, aburre con su equipo jugando a la ofensiva, lo cual es toda una rareza. En este caso, todo le salió bien al técnico: su objetivo principal era evitar que el Everton lo sorprendiera (la derrota en la temporada anterior fue importante para que el City ganara el torneo) y lo logró, ya que controló cualquier intento del rival, ya que el Everton no se acercó al área. Y, al mismo tiempo, el Arsenal insistió con sus jugadas estudiadas y sus movimientos de vaivén, con Rice dedicado a patrullar el medio campo sin adelantarse, con Fabio Vieira (un jugador más inteligente) en lugar de Havertz y un gol de Trossard que se demoró setenta minutos pero llegó después de la sucesión de pases más sofisticada que recuerdo después de un corner. El Arsenal gana después de dormir a los espectadores. Su sistema de control total se va consolidando.
+
+
+
+
+ Un lector del Real Madrid me retó en Twitter porque no hablaba de su equipo ni de la fulgurante aparición de Bellingham. Vi al Real Madrid contra la Real Sociedad y, por primera vez en la campaña, Bellingham no convirtió, pero el tipo es una máquina de hacer todo bien y fabricar jugadas. Pero la Real Sociedad jugó muy mal a pesar de la inspiración de Kubo, al que deberían utilizar de otro modo (es un caso parecido al de Mbappé en el PSG en un equipo de menos luces). 
+
+Un lector del Barça me preguntó si iba a hablar de la buena performance de su equipo en la goleada contra el Betis. Otra vez me pareció que el rival era demasiado débil. Pero el partido fue una demostración de lo que puede llegar a hacer João Félix. [Los goles se pueden ver acá](https://www.youtube.com/watch?v=Eua1F4e-foQ&feature=onebox).
+ 
+
+
+
+También vi dos partidos de la Bundesliga, donde el Bayern Munich no es mejor equipo que el Leipzig ni que el Leverkusen. Pero si comento todos los partidos que veo, corro el riesgo de aburrir como el Arsenal. De todos modos, tengo el deseo imposible de que los malditos bávaros pierdan esta vez la Liga, aunque sé que no va a ocurrir.
+
+
+
+
+\_\_
+
+
+
+
+Quintín
+
+
+
+
+Buenos Aires, 1951. Fue uno de los fundadores de la revista El Amante / Cine, que codirigió hasta 2004. Entre 2001 y 2004 dirigió el BAFICI. Algunos de sus libros son Luz y sombra en Cannes, Más allá del Malbec y La vuelta al cine en 40 días. En twitter es @fantasmaquintin
+
+
+

@@ -1,0 +1,106 @@
+# Adiós a la clandestinidad
+
+**Cuando decimos “abortamos” estamos trascendiendo las fronteras del acto en sí mismo, estamos poniendo palabras donde antes había silencio**
+
+04 de marzo de 2021 - Crónica
+
+_por Mariana Komiseroff_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/3557-adios-a-la-clandestinidad
+
+
+
+Hay cosas de mí que conociste más por lo que escribo que por lo que te haya contado y hace tanto que no hablamos que es por eso que decidí escribir esta crónica para nada cronológica en segunda persona.
+
+
+
+
+Me hice socorrista porque allá por el 2015, parece ayer pero todavía el feminismo era mala palabra, escribí una nota sobre mi maternidad adolescente para Clarín y el editor eligió sacar un párrafo sobre el aborto porque, según dijo, me estaba autoincriminando. Todavía me pregunto si por culpa de esa censura no habré terminado diciéndoles a las pibas de quince años que siguieran adelante con sus embarazos con una propuesta más o menos meritocrática donde el hijo de la piba pobre y madre soltera termina como un gran nadador. Las repercusiones de la nota fueron de todo tipo, haters que insultaban a mi hijo y me mandaban a escuchar cumbia, otros dudaban de que la nota hubiese sido escrita por mí, pero las dos cosas que más me golpearon fueron los comentarios de compañeras feministas, de clase media y académicas del estilo: deberías haber abortado (el versito de la libertad sobre los cuerpos termina cuando una villera decide tener un hije y para colmo contarlo en el gran diario argentino) y los cientos de mensajes privados donde muchas mujeres me contaban sus experiencias con sus maternidades adolescentes, sus abortos, las violaciones que habían sufrido, me hablaban de sus hijes productos de esas violaciones. No sabía cómo mierda responder y fue creciendo en mí una necesidad de militancia que trascendía el acompañar las marchas de la Campaña y empecé a aprender sobre el aborto con Misoprostol, no pude, sabés que soy infumable, trabajar con ningún grupo de socorristas pero soy una. Empecé a recibir mensajes al celular o a FB de amigas que tenían una conocida que necesitaba abortar y yo tenía los contactos, el CESAC abort friendly, la información del procedimiento, los lugares donde te hacen las ecografías sin obligarte a escuchar los latidos del feto, sabía cuáles eran los consultorios amigables que entendían que si le ley dice que se puede abortar cuando peligre la vida del feto o de la persona gestante, entienden la salud en sentido amplio. Acompañé a muchas personas y me aprendí de memoria la lista de preguntas que lxs profesionales militantes hacen para justificar ese aborto legal y prevenía a las personas para que no se sintieran mal cuando había que encontrarle la grieta a la legalidad con preguntas del estilo: ¿tu pareja alguna vez te forzó a tener relaciones sexuales? La información es una herramienta muy valiosa. Una vez me llegó un caso de un embarazo bastante avanzado que no había manera de meterlo como ILE, no sabés el miedo que tuve, y no, no te voy a mentir ese y algunos otros, no fueron en el marco de la legalidad. Las pibas (aunque las personas gestantes no siempre son mujeres, a mí me consultaban pibas) abortaban y en casi ningún caso, se hacían la ecografía posaborto, me bloqueaban en cuanto yo les preguntaba algo sobre esto o sobre el método anticonceptivo que elegirían una vez realizado el aborto. La clandestinidad genera una culpa en la persona que aborta que muchas veces es trasladada con violencia a las socorristas, o a las personas que ayudan.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/36183/44c9476e-4c22-43c5-aaa4-220276bf9ad0.jpg)
+
+
+
+
+Una vez allá por el 2018 había ido a bailar a un boliche paki con una amiga, éramos varias. Siempre la paso mal en esos lugares, ya sabés que por eso me pongo muy borracha, y esa no fue la excepción. Una amiga de mi amiga se acercó y me dijo que ya le habían advertido que de ese tema conmigo no se podía hablar pero que ella no estaba a favor del aborto y que aunque quería darle libertad de expresión, no le parecía nada bien que su hija llevara el pañuelo verde colgado de la mochila con tan solo trece años. Yo le respondí que a los quince había sido madre y que su postura me parecía muy hipócrita, llena de baches, me enojé porque me cagó la noche y cerré con que debería escuchar los consejos, si te dicen que no toques un tema con alguien, no lo toques, al menos no en un boliche. A los meses recibí un mensaje, “estoy embarazada, necesito que me ayudes”. Sonreí por dentro con malicia, porque no es verdad que no disfruté de esa justicia poética. Odio el feminismo troquelado que flashea amigas brincando de la mano por una pradera, no querida mía, lamento desilusionarte, pero no es así. No emití ningún juicio y activé la máquina, en una semana había abortado de manera segura, legal, libre y gratuita. Meses más tarde, ese agosto del 2018 hice una performance con FUNAS una de las agrupaciones con las que milito, no me preguntes no sé por qué magia en este grupo sí funciono más o menos bien. Me fui antes del resultado de la votación en Diputados porque estábamos en moto con mi vieja muertas de frío. Cuando llegué a casa recibí un mensaje de esta mujer que había sido antiderechos pero que había pasado por la experiencia de un aborto legal y acompañada de manera amorosa. Su mensaje esta vez decía: Que sea ley. Lloré y me arrepentí de haberle deseado esa experiencia, no pude otra cosa. Fue uno de los pocos mensajes de agradecimiento que recibí, mea culpa tal vez solo me hice socorrista para agrandar mi ego.
+
+
+
+
+Tengo muchas anécdotas, querida, como esa vez que estaba mirando la vidriera de Tinder e hicimos match con una chica con la que nos pusimos a hablar y enseguida nos pasamos los números de whatsapp, me fui a correr y me olvidé. Cuando volví una amiga me escribió para decirme que una amiga suya había vomitado después de tomar el Misoprostol sublingual, le dije que le pasara mi número porque siempre es mejor no tener intermediarios para una comunicación efectiva. Llegó el mensaje “soy fulana”, respondí con un audio con voz de maestra jardinera tranquilizadora haciendo las preguntas de rigor sobre cuánto tiempo había pasado entre la toma y el vómito e intenté tranquilizarla que si fallaba se podía repetir el procedimiento en unos días y que tal vez era mejor el método vaginal. La chica me respondió: “soy fulana, ¿debería aclarar que la chica de Tinder?”. Sí, querida, soy un desastre, no cambio más.
+
+
+
+
+La culpa, el gusano roedor de la conciencia según Nietzsche, también carcomió a una amiga cuando lo primero que hizo en su segundo embarazo fue llamarme para solucionarlo y luego decidió que sí, que sí quería a ese hijo y al poco tiempo lo perdió. De estas cargas simbólicas de la clandestinidad estamos saliendo. Cuando las personas decimos “abortamos” estamos trascendiendo las fronteras del acto en sí mismo de la interrupción de un embarazo, estamos poniendo palabras donde antes había silencio, le estamos dando a lxs compañerxs, lxs vecinxs lxs conocidxs, la posibilidad de contar su propia experiencia con el aborto y la ley nos habilita la posibilidad de decidir. Esto parece obvio, pero no lo es. La clandestinidad moldea o fuerza nuestros deseos y también genera vergüenza. Tuve la experiencia horrible de ver en terapia intensiva a una de mis personas preferidas en el mundo. Ella sabía que yo tenía una red abortera y sin embargo pagó para que una persona cualquiera, cualquiera no es el término correcto, el término correcto es anónima, le pusiese una pastilla. Desarmar los mitos alrededor del aborto y alrededor de la manera en la que se llevan a cabo los procedimiento es el trabajo que ahora, aprobada la ley, nos queda a lxs activistas para lograr esta vez sí ninguna muerte por aborto clandestino. Mi persona preferida estuvo tres días volando de fiebre sin decirle nada a nadie mientras la infección avanzaba. Su hermano (hoy postea cosas como cierren las piernas sobre fondos celestes) la encontró prácticamente desmayada. Entonces sí, se puede morir literalmente de vergüenza.
+
+
+
+
+Es importante la frase de Vilma Ibarra sobre la aprobación de la ley “sacaron a las mujeres de la clandestinidad” aunque con el término “mujeres” invisibilice a muchas de las identidades gestantes que tendremos acceso al aborto legal.
+
+
+
+
+Tenía quince años en el 2000 cuando quedé embarazada por primera vez, seguí adelante con mi embarazo, conocés a mi hijo desde que era un bebé. Lo que tal vez nunca hablamos es que aunque la señora de la casa donde limpiaba mi mamá le había ofrecido la plata para que me hiciera un aborto, yo le dije que no sin dudarlo. Nos sabés cómo me esforzaba en esa época por creer en dios y lo mal que me salía. En lo que sí creía profundamente era en eso que se estaba gestando en mí. Deseé, aunque sin buscarlo, a mi “hijo”, pensaba en esos términos absurdos de tan enormes y desconocidos, con toda la fuerza irreverente de la adolescencia. Y no cualquier adolescencia, sino una de esas que el progresismo bien pensante cree que viene a salvar con la legalización del aborto. ¿Sabés? me interesa profundamente esta idea casi publicitaria de “las ricas abortan y las pobres mueren”, me divierte que sea una frase aprendida de memoria generalmente dicha por mujeres, o funcionarias que probablemente su conciencia de clase termine donde empiecen sus privilegios. A veces pienso, sí ya sé que soy una resentida en términos nietzscheanos, que muchas personas militan el aborto para que las pibas de las villas dejen de parir villeritos. Vos sabés bien que en las clases bajas se aborta clandestinamente y será el sector, probablemente, más favorecido con la legalización, te puedo decir estas cosas porque ya las dije en el 19 F y también porque me da libertad que nunca te hayas sentido feminista. La ley de aborto no hará que automáticamente las pibas que, como yo, a los quince años decidieron tener hijos no los tengan más. Esto recién empieza. Quiero decir que otro enunciado facilista es el de “mi cuerpo mi decisión”, pero cuando se trata de cuerpos que no importan, (como los de los varones trans, no binaries y otras identidades con capacidad de gestar) ahí muy pocxs estamos pensando de manera revisionista nuestros errores. El derecho a decidir también es el derecho a decir no y que esas decisiones no estén moralizadas desde la clase media alta, académica, esa otra decisión de unx pibx que quiere parir. Sí ya sé, tengo mejores argumentos que los antiderechos.
+
+
+
+
+Yo sé que a vos no te interesan estas cosas pero te recomiendo efusivamente la película de Andrea Testa, Niña mamá, donde se ve claramente que el ¿conflicto? de la maternidad adolescente trasciende las fronteras de la legalidad del aborto. Te vas a sorprender si ves el documental, como te sorprendería si vinieras a mi barrio y escucharas a las pibas que ni en pedo se harían un aborto. A veces, querida mía, tener un hije es lo único que se puede tener.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/36184/1bf4170d-a9d6-4638-82ab-d06088cc6423.jpg)
+
+
+
+
+Díptico Luna en cáncer, de Pilmaiquen de la Cruz, de la película Niña mamá.
+
+
+
+
+Había algo que se esperaba de mí cuando era wacha, pero al ser precarias las condiciones materiales que sostuvieron mi existencia, nunca estuvieron muy claros los límite de mis mandatos de clase. Se esperaba de manera tácita que fuese madre a una edad muy temprana como lo fueron mi abuela, mi mamá y mi tía, para luego, cuando finalmente sucedió, censurarme y castigarme por eso, como también habían hecho con ellas. Ser madre adolescente es, en la mayoría de los casos, sinónimo de ser madre soltera.
+
+
+
+
+Cuando la media sanción en diputados llegó al senado en 2018 me tocó trabajar, soy trabajadora de seguridad en el turno noche. No podía estar en la plaza y los puestos a cubrir son tan diversos que con mucho tiempo de antelación le pedía al que era mi jefe en ese momento que me dejara ir a cubrir el recinto al menos para saber cómo iban las votaciones. Mi jefe se resistió pero una compañera y yo les cambiamos los puestos a otros compañeros que no tenían ningún interés en estar parados como soldaditos de plomo. Fuimos a parar a la puerta por la que entraba Cristina. Me impresionó como todos los asesores de senadores, incluso los oficialistas, recordá que era época macrista, se levantaron una belleza de reverencia casi mecánica, cuando se empezó a correr el rumor de los tacos de La Senadora. El debate fue larguísimo y mi compañera y yo murmurábamos puteadas apenas moviendo la boca. Una asesora y yo empezamos a mirarnos. Hicimos una danza de apareamiento a la distancia que ilusamente creí terminaría con la felicitación del final o el pésame de la derrota y, ahí, nos pasaríamos el teléfono. Cristina esa vez a favor evitó nombrar la palabra aborto. Se votó, perdimos y aunque en mi puesto es requisito fundamental no demostrar interés por ninguna postura (por eso mi jefe no quería que una persona como yo entrara al recinto) a mí la furia que me bullía en el pecho se me transformó en una cara de orto insostenible. Los y las senadoras antiderechos festejaron, la torta con la que me había estado mirando aplaudió cuando su senadora, Silvia Elia de Perez salió del recinto, le hizo un gesto mínimo con la cabeza y dio dos aplausitos masculinos a modo de felicitaciones. Un fotógrafo las capturó abrazadas.
+
+
+
+
+Amiga, me hice en el mismo consultorio clandestino dos abortos. Empiezo por el segundo. Asomaba otra clandestinidad, la de la enfermedad mental y el abuso de drogas, me cojí todo lo que pude, no me importaba si las personas me gustaban o no. Los bipolares son promiscuos dice, así en masculino y con aires de no moralizar, mi psiquiatra. No me acuerdo cómo pero sabía quién me había embarazado, un compañero de trabajo que estaba muy bien casado y tenía al igual que yo un hijo chico. A veces me sale pensar que se puso la diez porque en la normalidad los chabones se borran. Otra vez al consultorio, ya te dije que empezaba por el segundo, a buscar el presupuesto, el pibe consiguió la guita y me acompañó. Todo pasó como la primera vez, pero subí las escaleras de ese primer piso sola. Él se quedó afuera, esas no eran cosas para varones, ¿acaso lo son ahora que aún no pudimos superar el cisexismo aun cuando la senadora Maria Ines Pilat vota a favor de la legalización y su discurso predominante excluye a los varones, porque no solo no se le ocurrió hacer la salvedad de los varones trans que gestan, sino porque no sabe de sus existencias?
+
+
+
+
+Cuando todo terminó el poli de la federal de la puerta me preguntó si podía bajar las escaleras sola, yo dije que sí pero temblaba. El poli pasó su brazo por mi cintura y me ayudó a bajar, aunque la realidad es que casi no toqué los escalones con los pies. ¿Estás acompañada? me preguntó. En la puerta no había nadie. Tardó un segundo en aparecer mi compañero de trabajo que se apuró a tirar el cigarrillo para sostenerme y agradecerle al poli, yo pensé que se había ido. Me preocupó cómo iba a hacer yo, sin un centavo, para pagar el remís.
+
+
+
+
+Mi primer aborto fue antes de los veinte no recuerdo muy bien la fecha, no era el colmo de la prolijidad, nunca lo fui, pero esa vez se había roto el preservativo y yo había tomado la pastilla del día después, nunca mejor usada la expresión mala leche. La persona que me dejó embarazada, porque aunque no lo puedas creer, amiga, las mujeres no nos embarazamos solas, fue la misma que me abandonó con mi maternidad. En esa época los celulares no eran una necesidad básica y él cuando ya sabía que la decisión estaba tomada, me llamó al número de línea de la casa de mis viejos donde yo vivía con mi hijo chiquito, mi mamá, mi papá, mi abuela, mi hermana de la edad de mi hijo y mi hermano que en ese momento estaba jugando en la computadora. Recuerdo su “asesina” en el teléfono de línea, recuerdo no poder evitar llorar a los gritos y pedirle perdón: no puedo, no puedo tener otro hijo sola. Mi hermano al lado mío con la mirada clavada en la pantalla, no se movió ni preguntó nada, porque en esa época el aborto no se enunciaba.
+
+
+
+
+Mi mamá me llevó por primera vez a ese consultorio en José C. Paz. Que te conté antes. En la puerta había un policía de la federal y un cartel que prohibía la entrada a los varones, el pasillo que era la sala de espera estaba lleno. Una chica de jumper esperaba sentada con la evidencia a cuestas de un embarazo super avanzado. Una ecografía sin sonido y la gentileza de que la pantalla quedaba fuera de mi vista. El médico dijo un precio altísimo y que volviéramos cuando juntáramos el dinero.
+
+
+
+
+Mi mamá me volvió a acompañar y entonces sí, es fue la primera vez, que entré a un quirófano y sí me acosté en la camilla ginecológica sin la parte de debajo de la ropa, la asistente o enfermera me ató con unas vendas los tobillos, me habló de cualquier cosa y cuando desperté estaba en otra sala, tapada con una frazada con el asco de la anestesia y sin saber si quería estar viva o muerta. La asistente, llamó a mi mamá y me dio un sobre de carta con un número anotado. Adentro del sobre había ocho pastillas, tomá una cada doce horas y si tenés fiebre me llamás. No pregunté qué era, pero nunca se me ocurrió no tomarlas. Cuando llegué a mi casa llamé a los gritos a mi mamá desde el baño porque no me podía sacar el tampón de gasa del tamaño de una lata de cerveza que me habían puesto.
+
+
+
+
+Antes de anoche en Corrientes y Callao, sobre Callao, los ojos fijos en la pantalla y los auriculares para escuchar porque la marea apabulla e incluso acentúa los pánicos, antes de anoche cuando no pude encontrarme con mis compañeras, ni con mi maestra, porque ahora puedo menos que antes, antes de anoche cuando me abracé a mi colega, compañero y amigo Gonzalo Ray Duca y lloré a carcajadas y con espasmos en su hombro cuando se votó con una abstención, veintinueve votos negativos y treinta y ocho a favor, recordé que la plata para esa primera interrupción ilegal, me la prestaste vos. Vos que fuiste mi primera relación clandestina en esa época que no se podía decir novia siendo mujeres. No sé si te acordás que ni vos ni yo podíamos ponerle nombre a lo nuestro, pero gracias.
+
+
+

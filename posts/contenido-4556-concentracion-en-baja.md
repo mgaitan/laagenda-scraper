@@ -1,0 +1,91 @@
+# Concentración en baja
+
+**Un libro de pequeñas prosas de Julio Ramón Ribeyro y “Midnight Gospel”, una lisérgica animación para adultos en Netflix.**
+
+24 de marzo de 2021 - COSAS QUE ESTUVE MIRANDO
+
+_por PABLO SIGAL_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4556-concentracion-en-baja
+
+
+
+“Podemos memorizar muchas cosas, imágenes, melodías, nociones, argumentaciones o poemas, pero hay dos cosas que no podemos memorizar: el dolor y el placer. Podemos a los más tener el recuerdo de esas sensaciones, pero no las sensaciones del recuerdo. Si nos fuera posible revivir el placer que nos procuró una mujer o el dolor que nos causó una enfermedad, nuestra vida se volvería imposible. En el primer caso se convertiría en una repetición, en el segundo en una tortura. Como somos imperfectos, nuestra memoria es imperfecta y solo nos restituye aquello que no puede destruirnos”.
+
+
+
+
+Este es el relato número nueve de una serie de fragmentos, anotaciones y aforismos. Prosas que no ocupan más de una página cada una y son de una contundencia tal que su lectura se vuelve fulminante, si es que uno pudiera darle esa palabra un carácter positivo. Editado en forma parcial en 1975, con 89 prosas sin numerar y luego completado en una edición de 200 en 1986, la considero una lectura ideal para estos días. Son tiempos en los que la concentración cuesta demasiado, quizás porque esta pausa, envuelta en tiempos tan veloces, hace del mismo tiempo algo cada día más deforme. Pero pienso también que es posible que estemos dispersos para cosas que requieren mucha concentración (no creo que sea un buen momento para empezar a leer, por ejemplo, Guerra y paz de Tolstoi) pero nunca estaremos del todo anulados para los instantes, los periquetes de tiempo, que a veces alcanzan para adentrarse en lo más profundo de uno. Prosas apátridas, del escritor peruano Julio Ramón Ribeyro, es un libro de instantes, de pausas, de observaciones, y apreciaciones tan singulares como universales, tan sobre la nada y sobre todo a la vez.
+
+
+
+
+El autor, fallecido en 1994, que vivió la mitad de su vida en Lima y la otra en Europa, se vio obligado en varias ocasiones, a hacer una aclaración, con respecto al título del libro. Con su simpleza y su humor, acido pero tierno, con ímpetu y autenticidad, como quien suele pensar y repensar las cosas que dice, repetía: “No soy yo el que no tiene patria, son los textos, son cosas que escribí en servilletas, en viejos cuadernos, no pertenecen a ningún género, son apátridas por esa razón: pensamientos, aforismos, palabras que nunca supe si encontrarían forma alguna”.
+
+
+
+
+Prosas apátridas es un libro que contagia sabiduría sobre temas tan diversos como la literatura, la memoria, el olvido, la amistad, la vejez, el amor, el sexo, el cigarrillo, la paternidad, el trabajo (sí, claro sobre todos ¨los grandes temas¨) pero es su observación de lo simple y su humildad, lo que me conectan. Me encuentro espejado durante gran parte de la lectura, y siento ese placer inexplicable de verificar que alguien pudo encontrar palabras tan exactas.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/43195/b8f1d805-46f3-467a-b982-8c56ab365e4a.jpeg)
+
+
+
+
+Ribeyro, como muchos grandes escritores, se ha pasado la vida, estudiando (al otro; al par y también al distinto) y estudiándose a sí mismo. Sus relatos son como una lente nueva para mirar un mundo que nos circunda y donde la belleza o el bienestar, se ven más que nunca amenazados por las miserias del mundo.
+
+
+
+
+Apenas termino el libro algo se abre en mí; podría decir que estoy satisfecho, pero no sería cierto. Estoy en movimiento, incluso noto que no paro de caminar por mi departamento. ¿Pueden ser tan buenos, tantos relatos y todos con una síntesis tan perfecta sobre la vida? Llamo a mi amigo Martín. Le digo que acabo de encontrar algo importante, que estaría bueno que lo lea, que va a ser por un tiempo al menos, el mejor libro que leí en mi vida. Me dice que lo va a leer, aunque no suena muy convincente. Después me habla de una serie, que se llama Midnight Gospel, que se estrenó hace poco y me dice que es bastante rara, pero que yo debería verla. Le digo que la voy a ver, pero no estoy convencido. Vengo diseñando con una rigurosidad excesiva, la ruta de lo que pienso ver o leer estos días, así que no se si esto entrará en la lista, así tan de prepo. Quizás la vea, quizás no, pienso.
+
+
+
+
+Corto el teléfono, pero no paro de moverme. Me pregunto dónde están las certezas en estos días ya que me niego a vivir sobre la incertidumbre absoluta, quizás tenga algo que ver con los desvíos, pienso, algo debe haber ahí. Recibo un mensaje de Martín: deja de boludear, ponete a ver eso que te dije.
+
+
+
+
+Midnight Gospel, de Duncan Trussell y Pendleton Ward
+
+
+
+
+Midnight Gospel es una serie de animación, de diez capítulos de menos de media hora, tan excéntricos como alucinantes. Su autor Duncan Trusell, mezcló entrevistas, que ya había realizado para su podcast ¨ Duncan Trussell Family Hour¨, donde conversaba con diferentes especialistas sobre las drogas, la religión, la muerte, el budismo, el tiempo, con una animación llena de detalles y mundos surreales realizada por Paddleton Ward, animador y guionista y su socio creativo en este trabajo. Son todos relatos guiados por cierta mirada existencialista y espiritual, con una narración psicodélica que retrata mundos apocalípticos, con una libertad tan desenfrenada, que por momentos encandila y por otros abruma. Es una serie algo caprichosa, la imagen no está casi nunca en sintonía directa con los diálogos. El planteo es el siguiente: un joven, que vive en una casa rodante, en un mundo colorido, futurista, delirante, utiliza un simulador, con el que visita diferentes planetas que están a punto de llegar a su fin. Su idea es conseguir allí, peculiares entrevistas para un podcast espacial. La serie es por momentos difícil de agarrar, si nos ponemos en ese lugar habitual de querer entenderlo todo. Es una prueba contra la ansiedad porque una vez que entramos en el mundo que se nos ofrece, disruptivo, y de certezas en el medio del caos, ya no salimos iguales, como si estuviéramos acompañando nosotros también, la transformación del personaje. Si bien todos los capítulos tienen momentos brillantes, vale la pena seguir hasta el final, porque es quizás el último episodio, donde la búsqueda y la experimentación, finalmente tocan su punto más alto. Por primera vez la historia se centra en una experiencia personal del personaje y de su autor, ya que su propia madre es la persona entrevistada, quien pocos días después morirá de cáncer. En otro de los viajes absurdos, mágicos y muchas veces desopilante, ella intentará darle algunos consejos sabios sobre el verdadero sentido de la vida, aludiendo a un discurso de autoconocimiento, a la imagen de un río siempre en movimiento, en el que uno debería dejar sumergirse, sin intentar ir contra la corriente. Le aconseja, por último, que no sea de esos que intentan llegar a la orilla para resguardarse de algo. Y a pesar de los lugares algo comunes de discurso espiritual, la imagen y la conversación es tan potente, que se vuelve un delirio conmovedor y descubrimos, entonces, que el personaje se está encontrando por primera vez con un conflicto de una verdad absoluta.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/43196/99db6ed0-a3f5-4baf-8268-8f56f4129a5c.jpeg)
+
+
+
+
+Midnight Gospel, tan excéntrica como alucinante
+
+
+
+
+Termino de ver la serie, quiero llamar a Martín para contarle que sí, que yo tampoco salí ileso. Y él me responde que se devoró el libro de Ribeyro, y que no puede creer lo que es ese texto sobre el dolor, sobre el placer y la memoria de ambos. Sí, sí, yo también me quedé impresionado con ese. Y como nos gusta estructurar las cosas, agrega: de doscientos relatos, por lo menos cien son excelentes, cincuenta muy buenos, y el resto buenos, no hay ni un regular, no se puede creer. Estoy de acuerdo, le digo, sonriendo, celebrando algo que ya no sé qué sentido tiene.
+
+
+
+
+Dejo de caminar, me detengo.
+
+
+
+
+Entonces pienso que las certezas se vuelven certezas cuando uno comparte con el otro. Casi nunca están en uno mismo, sino en el dialogo con un ser querido, o quizás, con un libro. Están en el aire, pero de alguna manera podemos abrir puertas que nos conduzcan a esa otra dimensión. La certeza es quizás el otro, las verdades existen, porque existe alguien más que nosotros mismos. Son seguramente certezas intermedias, que pronto perderán valor, pero hoy intento adueñarme de ellas, porque al final de todo, como dice
+
+
+
+
+Ribeyro (sin dudas, hoy ya uno de mis favoritos): la única certeza es que la certeza no existe.
+
+
+

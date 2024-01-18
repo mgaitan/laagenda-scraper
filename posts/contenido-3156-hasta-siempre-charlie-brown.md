@@ -1,0 +1,51 @@
+# Hasta siempre, Charlie Brown
+
+**A 70 años de su primera aparición, un viaje por el universo de Peanuts y Snoopy, los personajes de Charles Schulz que inspiraron Mafalda de Quino.**
+
+06 de noviembre de 2020 - ANIVERSARIO
+
+_por INÉS MGUILLANES  _
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/3156-hasta-siempre-charlie-brown
+
+
+
+“Una vida trágica es romántica cuando le sucede a alguien más”, le dice Sally a su hermano Charlie Brown. Varias páginas y viñetas después, Lydia llama por teléfono a Linus. “Si no me encontrás interesante, ¿para qué me llamás?”, pregunta él, ofendido. “No hay nada para ver en la televisión”. Ambas escenas pertenecen a A Peanuts book featuring Snoopy. Vol. 4, un libro recopilatorio de 1991 que tiene la particularidad de que los diálogos y textos pueden leerse tanto en el inglés original como en japonés, uno de los veinticinco idiomas a los que se ha traducido Peanuts, la influyente tira cómica creada por el estadounidense Charles M. Schulz (26/11/1922-13/02/2000) sobre lo agridulce de la infancia, sobre niños y niñas que ríen, sueñan, sufren, y, sobre todo, piensan y preguntan; y que este año celebra su aniversario número setenta.
+
+
+
+
+“Su lugar es el de un clásico, aunque con la finalización de la tira ha empezado a desvanecerse. Tengo la impresión de que el público más joven y los chicos no la tienen tan presente. La fama de los personajes de humor gráfico tiene un horizonte corto. La gran ventaja de los personajes de Peanuts es su expansión marketinera a stickers, agendas, muñequitos, productos de librería; gran parte del público los conoce por este lado y jamás ha leído una tira. Por supuesto, estos objetos no reflejan la profundidad de la historieta”, observa el dibujante y humorista gráfico Esteban Podetti. Y tal reflexión viene como anillo al dedo para, en las líneas que siguen, intentar aproximarse a algo de lo mucho que el arte de la historieta le debe a Carlitos, a su banda de amigos, al perro Snoopy y al padre de todos ellos, acaso el autor de tiras cómicas más prolífico que a la fecha haya existido y de cuya partida se cumplen veinte años.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/34967/d70303cb-cb41-4f31-b789-969326ff575d.png)
+
+
+
+
+Nacido en Minneapolis, Minnesota en el seno de una familia de clase trabajadora, Charles “Sparky” Schulz sabía desde niño que quería ser dibujante de historietas. “Durante su juventud, padre e hijo compartieron el ritual de cada mañana de domingo de leer caricaturas: Sparky estaba fascinado con algunas como Skippy, Mickey Mouse y Popeye”, cuenta la biografía disponible en la web del Museo y Centro de Investigación Charles M. Schulz, inaugurado en 2002 en Santa Rosa, California. La propia vida del autor se presenta como uno de los elementos centrales que inspiraron la creación de Peanuts. Para empezar, de niño tuvo un perro llamado Spike al que dibujaría, y en 1937, esa ilustración, casi como un gesto premonitorio, saldría publicada en un diario local. Pero sobre todo porque en la tira sobrevuelan con frecuencia sentimientos de nostalgia e inferioridad, especialmente alrededor de la figura de Charlie, una suerte de alter ego de Schulz. Tímido e inseguro desde pequeño, la muerte de la madre y su participación obligada en la segunda guerra mundial, fueron experiencias que a sus veintipocos lo marcaron profundamente e hicieron crecer en él una visión pesimista del mundo así como un sentimiento de añoranza por la niñez perdida, por la calidez y el afecto del hogar materno-paterno, que supo canalizar en el arte. “Charlie Brown es un pibe que siente todo el tiempo que es un fracasado o que no lo quieren”, señala Jorge Palomera, guionista de historietas y docente. “Algo que me parece que enseñó Peanuts es que se podía tomar niños y que fueran profundos, que tuvieran su universo personal. No tenía miedo a poner a un nene con ciertas preguntas, que no fuera todo el tiempo jocoso”, agrega.
+
+
+
+
+Las películas son lo primero que le viene a la mente a Nahuel Sagárnaga Cozman, dibujante de 34 años y autor de la tira de humor gráfico, ¡Corré, Wachín!, que narra las andanzas de un simpático perro salchicha. “Particularmente recuerdo la peli donde Charlie se enamoraba de “la chica pelirroja”. Para hablarle, recorre una distancia enorme (que visto desde ahora, no debió ser más que otro barrio) y en el momento en que decide armarse de valor, apenas puede mandar a Linus a que le hable primero y el chabón se la levanta, ¡qué traidor! Me puso re mal ese final, todavía me acuerdo la angustia”, rememora sobre Algún día la encontrarás, Charlie Brown (1981), una historia de amor no correspondido que, dicen, estuvo basada en un rechazo sufrido por un veinteañero Schulz tras pedirle matrimonio a su novia de aquel entonces llamada Donna. “Cada vez que alquilaba uno de sus VHS me preguntaba, llorando: ¿por qué me hago esto? ¿Por qué estos adultos producen dramas deprimentes para niños? Me sentía profundamente identificado con ese bobo contra el que el mundo parecía conspirar”, refiere a las animaciones que lo hicieron entrar en contacto por primera vez con los personajes mientras que señala una de las mayores innovaciones que trajo consigo la célebre historieta. “Charlie Brown era algo nuevo en el mundo del cómic: una persona real, con una psiquis y problemas reales. El lector lo conocía, conocía sus miedos, empatizaba con sus sensaciones de inferioridad y alienación”, afirma el periodista David Michaelis en su ensayo “La vida y los tiempos de Charles M. Schulz”, incluido en The complete Peanuts de Fantagraphics Books. En pocas palabras, en un mapa donde predominaban los cómics de aventuras, acción y melodrama, irrumpió cual bocanada de aire fresco una historieta en torno a problemáticas cotidianas y no por ello menos triviales, que despertó un alto nivel de identificación entre los lectores alrededor del globo, desde Japón hasta Sudamérica, y el niño de cara redonda y sus amigos.
+
+
+
+
+Precisamente, otro aporte de Peanuts radica en el fino mosaico de personajes que habitan las viñetas. “Me encanta su habilidad para crear un universo coral con personajes de muchas características distintas que aportan su granito a la construcción de un mundo ficcional tangible”, expresa Sagárnaga y, junto a Carlitos, posan figuras como la soñadora Sally, Linus con su mantita “de seguridad”, la dominante Lucy, Schroeder, el fanático empedernido de Beethoven, la deportista Peppermint Patty y la estudiosa Marcie. “Aparece uno de los primeros personajes negros en, lo que fue muy llamativo, el peor momento del odio racial en los Estados Unidos. Una maestra le escribió a Schulz preguntando si podía hacer algo desde su historieta para ayudar a que hubiera unión, tras habérselo pedido a muchos autores y que nadie le diera bola. Y él le contestó y a partir de ahí empezó a haber un personaje que era afroamericano, que compartía abiertamente aventuras con pibes blancos en medios yanquis”, cuenta Palomera sobre el origen de Franklin que fue sumado a la pandilla en 1968. El personaje de Snoopy que, de tan entrañable acabó por robarle protagonismo a su dueño, es un capítulo aparte. “Es el símbolo de la despreocupación, de la evasión, de la inconciencia total. Tiene el rol de refrescar un poco la angustia que puebla a la tira. Sin posibilidad de evasión la vida sería inviable”, reflexiona el autor de los libros de historietas La caja y Enciclopedia Mundial del Coso acerca del beagle más famoso de la historia al punto de haber sido adoptado como mascota oficial de la NASA.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/34969/bb8f930d-a4b2-4eb5-bd31-55b1fa026ba2.png)
+
+
+
+
+La huella que Peanuts dejó en los y las historietistas que vinieron después resulta innegable: Calvin and Hobbes, Garfield y nuestra querida Mafalda son tan sólo los ejemplos más famosos de una extensa lista. “Es imposible escaparse de su influencia. Las primeras veces que publiqué tiras diarias tenían bastantes recursos de Peanuts. Los personajes centrales eran un poco Snoopy, el personaje medio delirante que vuelve loco a su tutor. Y hay un recurso difícil de explicar, un tipo de remate suave, donde los personajes no “rematan” sino que se quedan abundando, a veces monologando en paralelo, como un final de canción en fade. Creo que eso lo inventó Schulz y se lo hemos robado humoristas de todo el planeta”, advierte Podetti. Por su parte, para el autor de ¡Corré, Wachín!, el mayor legado que le dejó Peanuts es “la capacidad creativa de reflejar la amistad más hermosa del mundo: la de un nene con su perro”.
+
+
+

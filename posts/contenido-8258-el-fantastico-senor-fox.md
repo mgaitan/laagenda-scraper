@@ -1,0 +1,86 @@
+# El fantástico señor Fox
+
+**Un libro reconstruye vida, obra y milagros de uno de los grandes escritores malditos de los 60. Según Laiseca, “no tenía ningún talento, solo tenía genio”.**
+
+08 de octubre de 2021 - La época
+
+_por Martín E. Graziano_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/8258-el-fantastico-senor-fox
+
+
+
+Cierren la convocatoria. Ya sabemos quién escribirá la historia de lo que pudo haber sido. En este libro, Matías H. Raia y Agustín Conde de Boeck salen en busca de su fantasma con un hambre de orden metafísico. Leen con fruición, entrevistan a testigos, revuelven el archivo, escudriñan fotos, caminan y caminan. Pronto parecen descubrir que, para que aparezca su fantasma, es necesario reconstruir el hechizo que lo permitió: su época. Uno por uno, ¿quiénes son los comensales que disparan con cerbatana desde la última mesa de El Moderno? ¿Qué armas calzaban los tipos de Tacuara que intervinieron casi artísticamente el estreno de Jazzpium en el Di Tella? ¿De dónde salió la guita y el nervio para editar un libro con esvásticas en el Verano Porteño del Amor? Así, desde el fondo de olla de los sesenta, aparece Marcelo Fox. Lo pedís, lo tenés.
+
+
+
+
+Para una parte de los mortales, la punta del ovillo es Laiseca. Durante su aparición en el segmento “¿Qué leen los que escriben?” de Libroteca, respondió al tópico de la isla desierta con un paseo por sus obsesiones de siempre: los cuentos de Edgar Allan Poe (o Edgar Poe, como prefería Castillo), El Golem de Gustavo Meyrinck, Pinocchio de Carlo Collodi, El retrato de Dorian Gray, las aventuras de Henry Rider Haggard y el Frankenstein de Mary Shelley. Para el final, se guardó un as bajo la manga: Invitación a la masacre, de Marcelo Fox. “Si, una obra muy poco conocida”.
+
+
+
+
+Para otra parte de los mortales, Fogwill tiró la primera piedra. En las páginas de Vivir afuera, su novela de 1998, contó la historia de un paciente terminal llamado Fox: el “gordo sidoso” que agoniza en un hospital público y entrega su obra inédita a la enfermera. Entrevistado por Juan Sasturain, reveló el origen de su personaje. “Habla tal cual era Marcelo Fox, que se suicidó antes de que llegara al SIDA”, dice Fogwill. “Fue un gran escritor argentino. Invitación a la masacre es uno de los grandes libros…”
+
+
+
+
+![](https://cdn.feater.me/files/images/101671/f9559ee4-640f-4e2a-bb64-dd989dc28b48.jpeg)
+
+
+
+
+Para los peces que horadan el subsuelo de las librerías de viejo, el culpable es Juan-Jacobo Bajarlía. A finales de los sesenta, el ominoso J. J. lo antologó para su Canto a la destrucción. “En 1967 vino a verme”, escribe Bajarlía, con su tono de oficinista extraterrestre. “No nos conocíamos. Marcelo Fox, alto, cara redonda, ojos castaños y el cabello en desorden, sólo hablaba de los estómagos. De las luces que se encienden ante la insipidez y la medianía. Su voz profética, impregnada de lecturas ocultistas, veía el aniquilamiento como ley para instaurar el futuro. El orden mágico para diluir las viejas sombras. El rumor enmohecido de las constelaciones”. Ajá.
+
+
+
+
+De acuerdo a Vida, obra y milagros de Marcelo Fox, el flamante libro de Raia y De Boeck, Fox nació en Moreno, en el seno de una familia más o menos acomodada. Cuando tuvo la edad necesaria se inscribió en la Facultad de Filosofía y Letras y, en los patios de la institución, abrió espontáneamente su raid de nihilismo dadaísta. Así, en el preciso momento en el que la juventud disconforme se partía a la mitad (de un lado, los militantes orgánicos; del otro, los meros soldados de la psicodelia), Fox abrió su Tercera Posición. El nombre de la agrupación es elocuente: MOCO. También el significado del acrónimo: Movimiento Contra Los Otros. “En el gesto juvenil, Fox anticipaba dos claves para su obra futura: el humor y el llamado a la disidencia”, dicen Raia y De Boeck. “La literatura también es un movimiento contra los otros”.
+
+
+
+
+Por supuesto, hay un libro perdido. En el mito inaugural, sus cófrades recuerdan a Fox leyendo a viva voz una obra de teatro rimada y en verso cuyo título era Las monjitas sangrientas (o “antropófagas”, o “troskistas”, según la versión). Como La novelita triste de Lamborghini y Los espermetozoides del diablo de Eduardo Perrone, el manuscrito se perdió en la noche de los tiempos pero allanó un camino de doble mano: por un lado, la escritura; por el otro, el personaje. Así, atraído por el campo magnético, Fox se incorporó al circuito de La Manzana Loca y las revistas literarias que crecían como hongos en los bares de la calle Corrientes.
+
+
+
+
+A mitad de camino entre Eco Contemporáneo y el staff de Opium, Fox publicó sus primeros textos: poemas, reseñas, esas cosas. En apariencia, no escapa a la regla de los escritores sesentistas. Debate sobre el psicoanálisis, celebra el desorden de los sentidos, incluso hace su correspondiente crítica de Cortázar… ¡y de Sábato! Sin embargo, ahí donde todos leen una cosa, Fox ya lee otra cosa. Rodeado de todos esos mufados (los beatniks sin-zen del centro porteño), encontró la horma de su zapato y mandó a imprimir una tarjeta con su nombre y presentación: “Marcelo Fox / Emperador secreto del Mundo / Comandante de la Caballería Aérea de la Muerte”.
+
+
+
+
+En algún punto de 1965, Falco Librero Editor publicó su primer libro: Invitación a la masacre. Hace unos años, todavía se podía comprar en Mercado Libre a un precio alto pero razonable. Ya no. Si bien está escrito en prosa y parece seguir una lógica narrativa, es un libro de visiones. Como Maldoror, como los cantos de Blake. Una saga que, en la literatura del Río de la Plata, resulta una tradición dispersa. En ese sentido, Raia y De Boeck trazan un itinerario posible de lecturas (Porchia, Anzoátegui, Pizarnik, etc.) y parecen abrir el paréntesis de otro gran libro. De otra gran tesis: las ovejas negras que, irradiadas por la crema del apocalipsis, escribían en estado de trance.
+
+
+
+
+Mientras tanto, en la vida diaria, Fox sería como ese amigo loquillo que va dejando de ser gracioso. Hay una escena epifánica en el Instituto Di Tella. Durante el estreno de la obra Jazzpium, un puñado de militantes de Tacuara irrumpió en la sala con gritos y una serie consignas vagamente nazis. Ithacar Jalí sacó su Browning 9mm y los invitó a abandonar el recinto. Fox, por el contrario, levantó su brazo con la mano extendida y gritó “Heil Hitler”. En retirada, uno de los fachos se acercó y le bajó varios dientes de una piña. Humillación, bochorno. Fox tomó nota. Como el último Guasón, ya estaba listo para dejar que se le escape definitivamente la tortuga.
+
+
+
+
+A partir de aquí, las polaroids del mito. Fox juega su propia ruleta rusa cruzando la 9 de Julio sin mirar a los costados. Fox asiste a un remate y se compra un capote de las SS. Fox recibe electroshocks y estudia karate. Fox, como Burroughs (acaso como Ken Kesey), señala el poder médico y se tapa la nariz. Fox lee libros de esoterismo. Fox ficha con Yelpo, un asaltante de bancos ultranacionalista devenido en editor. Fox publica los aforismos de Señal de fuego y, como color de fuente, elige un riguroso color rojo sangre. Y las benditas esvásticas. Fox, dice Laiseca, “no tenía ningún talento, solo tenía genio”.
+
+
+
+
+Si nos guiamos por las poquísimas fotos disponibles, todo se vuelve aún más confuso. Parece siempre otro tipo. Sus padres, todo parece indicar, tenían esa misma sensación. Durante la presentación de Invitación a la masacre, Fox se resbaló contra un acuario, rompió el vidrio y cayó al piso ensangrentado. Su madre, que era ciega, solo gritaba: “¡mi hijo es un genio!” En 1972, Fox deambulaba por Belgrano R y un tren lo decapitó en circunstancias imprecisas. Su padre, en el velorio, solo repetía: “se murió por pelotudo”.
+
+
+
+
+\_\_\_
+
+
+
+
+Martín E. Graziano
+
+
+
+
+Es periodista. Se graduó como Licenciado en Comunicación Social en la UNLP. En el año 2007 publicó su libro Estación Imposible (Periodismo y Contracultura en los ’70: la historia del Expreso Imaginario) y en 2011 Cancionistas del Río de la Plata.
+
+
+

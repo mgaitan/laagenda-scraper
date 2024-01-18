@@ -1,0 +1,1 @@
+../../contenido-49184-minima-y-maxima.md

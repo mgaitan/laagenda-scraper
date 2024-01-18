@@ -1,0 +1,1 @@
+../../contenido-9272-get-trap.md

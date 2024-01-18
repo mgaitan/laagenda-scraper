@@ -1,0 +1,71 @@
+# Fuertes de cabeza
+
+**El Atlético cerca del título. ¿Será el Chelsea un equipo demasiado liviano? Veremos que ocurre en la final de la Champions contra el City.**
+
+17 de mayo de 2021 - EL EXTRANJERO
+
+_por QUINTÍN _
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/5560-fuertes-de-cabeza
+
+
+
+**El jueves pasado se disputó un gran partido secreto: la final de la DFB-Pokal, es decir la Copa de Alemania, entre el Borussia Dortmund y el Leipzig. Es cierto que el partido se transmitió por televisión (por la minoritaria Directv), pero la copa alemana está fuera del radar de lo que se ve y se comenta en la Argentina. Más este año, en el que los aficionados sufrimos el abuso de Disney, que no renovó los derechos de la Bundesliga, un torneo que está muy por arriba de las ligas española e italiana y compite con la Premier League en juego, en técnica, en goles, en intensidad y en disputa de los partidos. Pero no nos quejemos más, sobre todo porque pudimos disfrutar de una victoria sensacional del Dortmund por cuatro a uno contra el supuesto equipo sensación y su promocionado joven técnico. El técnico del Dortmund, en cambio, es un sustituto que dejará el cargo a fin de año después de obtener este trofeo y de lograr el acceso del equipo a la Champions League.**
+
+
+
+
+**Con el Dortmund nunca se sabe: en cualquier momento se suicida, como le ha ocurrido tantas veces y pierde partidos y campeonatos ganados. Pero no perdió la Copa, aunque con el descuento de Danil Olmo (un golazo) que puso el partido tres a uno cuando faltaban veinte minutos, se podía esperar lo peor. El sábado pasado, los mismos rivales se enfrentaron por la Bundesliga y Dortmund ganó tres a dos, en un partido lleno de alternativas y de goles brillantes que aquí comentamos. Esta vez la victoria fue más contundente y tuvo también goles de gran factura. En el primero, Jadon Sancho convirtió desde el borde del área contra el palo. En el segundo, Erling Haaland hizo algo que no se ve seguido. Recibió en el área y esperó a que su marcador Upamecano intentara desplazarlo con el hombro. Upamecano es una mole pero Haaland lo aguantó y lo dejó desparramado en el suelo para después acomodar la pelota suavemente contra el poste. Tremendo. En el tercero, Sancho recibió de Reus con el arco casi libre, pero esperó al defensor, lo gambeteó y definió, ahora sí, con el arco libre. Le encanta el arco libre a Sancho. Intentó lo mismo en el segundo tiempo, cuando el Leipzig prometía seguir descontando. Gambeteó al arquero, pero no le quedó tanto ángulo como le gusta, de modo que, en vez de definir apretado, intentó gambetearlo de nuevo, pero el arquero se la sacó. El tipo es Garrincha, es Corbatta, es algo de otra época, de otro mundo. Pero Haaland, que va camino de ser el mayor goleador de todos los tiempos, arregló las cosas haciendo la Gran Palermo: pateó de zurda, se resbaló, la pelota le pegó en la derecha y descolocó al arquero para poner el cuatro a uno. Lo único inexplicable es que con esos dos monstruos, más Reus, Brandt, Dahoud, Hummels, Guerreiro y promesas como Giovanni Reyna y Bellingham, entre otras, el Dortmund no haya llegado más lejos. Dos arqueros poco confiables, la falta de un volante central competente (y la presencia de uno incompetente como el falso caudillo Emre Can), el error en la contratación de técnicos, la falta de temple, en fin, algo pasó en este tiempo por lo cual este equipo potencialmente enorme fue casi un secreto mientras duró. Ahora viene seguramente la dispersión.**
+
+
+
+
+**Mucho más ostensible fue la final de la FA Cup entre Leicester y Chelsea. Fue en Wembley ante veinte mil espectadores, con el Príncipe, los granaderos, los hinchas alentando y festejando: la tradición inglesa a pleno. Ganó el Leicester, que había disputado cuatro finales y las había perdido todas. Aunque tuvo algo de sorpresa, el resultado fue razonable y el partido se definió con un golazo digno de un gran torneo, un tiro desde lejos del belga Youri Tielemans, uno de esos goles que quedarán en la historia, como el del Cárdenas al Celtic en Montevideo. Lo que sí se preveía era que los dos equipos salieran con planteos conservadores y eso hicieron. Más el Leicester, que dejó a Maddison y Albrigton el banco, puso a Ndidi a marcarlo a Kanté (que sigue con su milagrosa evolución de recuperador insuperable a conductor ofensivo de su equipo) y esperó y esperó. El Chelsea tampoco arriesgó demasiado y salió muy cauteloso: Reece James para controlar a Vardy, Timo Werner de nueve, donde menos rinde, con Jorginho en el puesto de volante por las dudas (ese mismo puesto que cupa McTominay y que en la semana le causó dos derrotas al Manchester United). El Chelsea esperó la oportunidad para el pase largo, pero nunca llegó. El Leicester tapó todos los huecos y Werner estaba en esas tardes (que son mayoría) en las que luce insípido, inepto, irritable y antipático. Cuando en el primer tiro al arco serio del Leicester se abrió el marcador, Tuchel tiró a la cancha todo lo que oliera a ofensivo: Giroud, Hudson-Odoi, Chilwell, Havertz. Pero no resultó. Es cierto que hubo un par de atajadas enormes de Schmeichel y un gol anulado que el pobre Wes Brown, el grandote jamaiquino que permanece en el desván del equipo desde el tiempo de Ranieri, se hizo en contra. Me hubiera dado mucha lástima que Brown cargara con el peso de una eventual derrota (tampoco fue culpa de él sino de un mal rechazo que le rebotó). Pero el VAR dijo que había offside en la jugada previa. Y Brown pudo festejar.**
+
+
+
+
+**¿No nos habremos equivocado con el Chelsea? ¿No confundimos cierto orden defensivo, ciertos mecanismos de salida rápida y la precisión de algunos jugadores con un gran fútbol? Llegamos a pensar que era un equipo ambicioso, lo juzgamos capaz de pasarle por arriba a un equipo de segundo orden como el Leicester, que no deja de ser un ejemplo de orden, especulación y miedo en el que Jamie Vardy, su verdadera y única fuente de alegría futbolística, atraviesa un largo período de sequía goleadora. La alarma se había encendido el miércoles, cuando el Chelsea perdió con el otro equipo mediocre, el Arsenal de Arteta, a partir de un gol de entrada producto de una barrabasada de Jorginho. Con el resultado en contra, el Chelsea se dejó enredar en las turbias especulaciones del técnico rival. Y lo mismo le pasó en la final con el Leicester. ¿No será este Chelsea un equipo demasiado liviano, que en el momento decisivo no da el peso y ni siquiera se anima a ser generoso? Veremos que ocurre en la final de la Champions contra el City. Mientras tanto, el martes juega de nuevo con el Leicester y se puede quedar afuera de los puestos de Champions del año que viene (a menos que gane la Champions de este).**
+
+
+
+
+**El martes pasado, el City salió campeón sin jugar porque el United perdió con el Leicester. El United puso un montón de suplentes porque tuvo partidos domingo, martes y jueves. Y demostró que no tiene plantel para jugar con suplentes. El jueves puso a los titulares contra el Liverpool, perdió cuatro a dos, fue enormemente divertido y Trent Alexander-Arnold, el genio del lateral, tuvo una gran noche. Pero los relatores, siempre despistados, dicen que tuvo un mal año y que, por eso, perdió el puesto en la selección inglesa. El Liverpool está haciendo un esfuerzo descomunal por entrar entre los cuatro primeros con un equipo que se cayó a pedazos y nunca se recuperó del todo. Voluntad y talento no les falta, pero cuando el cuerpo y la mente no están en su mejor forma, el fútbol es una forma de tortura para los jugadores. Y eso se volvió a demostrar ayer, cuando en otro partido secreto (Espn lo pasó solo por streaming) enfrentó al West Bromwich Albion y estaba claro que no la iba a tener fácil. El Albion, ya descendido, lo complicó muchísimo, se puso en ventaja con un gol de Robspn-Kanu, un veterano galés que hace goles cada muerte de obispo pero siempre son buenos (incluido alguno en mundiales). Empató Salah, que disputa con Kane el título de goleador del torneo, pero después el WBA resultó más peligroso en los contragolpes que el Liverpool en los ataques. Thiago jugó su mejor partido, pero el resto no acompañó, especialmente Alexader-Arnold, que suele ser la gran carta ofensiva del equipo (como Kanté es la del Chelsea, jugadores que desequilibran desde un puesto poco habitual para esa tarea). Klopp se equivocó e hizo entrar a Shaqiri por Curtis Jones en uno de esos días de Shaqiri en los que no está en la cancha. Pero en el último minuto de descuento, de hecho en un corner que se ejecutó después de los cuatro minutos que dio el árbitro (en Inglaterra el descuento se estira, no es como en España en el que los burócratas lo terminan a la hora justa), el arquero Alisson subió a cabecear, en ese gesto inútil, y a veces suicida, que suelen hacer los arqueros. Pero acá se justificaba, ya que no quedaba tiempo y el Liverpool se iba de los puestos de Champions. Y, en tercer lugar, porque el tipo sabía cabecear. Alexander-Arnold lo tiró abierto desde la izquierda, al primer palo, Alisson saltó, giró el parietal y la puso en el otro ángulo. No es el primer gol de arquero de la historia. El primero que vi lo hizo el chiquito Bossio para Estudiantes en cancha de Racing en 1996. Pero son momentos únicos del fútbol. Igual que el gol de Leicester.**
+
+
+
+
+**Del City hablé demasiado durante todo el año. Solo puedo agregar este aforismo: si gana la Champions no habrá dejado un recuerdo imborrable: es un equipo demasiado angustiado, demasiado cohibido por el perfeccionismo de su técnico, un equipo con muy poco joie de vivre, si me permiten la expresión. Pero si la pierde, no será un fracaso: Guardiola rearmó un mecanismo que se había descompuesto y lo sacó adelante como pocas veces he visto dentro de una misma temporada. Además ganó dos trofeos y llegó a la primera final de Champions que va a disputar el City. Es el año de la Pandemia (espero que el último) y no se puede pedir mucho más.**
+
+
+
+
+**También hablé bastante del Tottenham, que parece estar cerca de un lugar en Europa. Le ganó dos a cero a los Wolves con goles de dos de los jugadores del podio: Kane y Hojbjerg. El otro integrante del podio fue Dele Alli, que después de ser martirizado por Mourinho volvió a lucir como uno de los jugadores más lujosos de la Premier. También Bale hizo lo suyo y, al final, parece volver a demostrarse, como pasó en el United, que su despido es un alivio para los jugadores. No para Kane, claro: ese juega bien aunque el técnico sea Atila.**
+
+
+
+
+**Ayer me dispuse a ver con paciencia al Atlético de Simeone, que casi deja escapar la Liga una vez más. Pero dio vuelta un partido en el que parecía preparado para perder la punta y el torneo. El Atlético fue muy superior, lo peloteó al horrendo Osasuna (¿por qué hay tantos equipos españoles con jugadores tan torpes? ¿no practican con la pelota?) y le creó muchas situaciones de gol que no convirtió. Simeone hizo lo suyo en materia de precauciones excesivas y recién a los 66 minutos sacó un central, hizo entrar a João Félix y puso a un lateral con condiciones de delantero como Lodi (lo que debería haber hecho de entrada). Y entonces, en el único contraataque decoroso, Osasuna se puso en ventaja. Iban 75 minutos. Poco después el árbitro ordenó una pausa para refrescarse. Entonces se vio que Simeone reunía a los jugadores y se escuchó que les decía: “Tranquilos. Y fuertes de la cabeza”. Y los jugadores, como Alisson, se mostraron fuertes de la cabeza, eso que no logran los del Barcelona, que esta semana perdieron otros dos partidos que iban ganando. Los del Atlético se dieron cuenta de que eran superiores y lo ganaron con paciencia y fervor. Primero João Félix le puso un pase exquisito a Lodi y el brasileño definió con un cañonazo. Después, Luis Suárez, el regalo que llegó de Cataluña, ratificó su importancia y, con gran serenidad y precisión, marcó el segundo. Casi diría que al Atlético no le costó darlo vuelta. Y también que merece ganar la liga. El Real Madrid podrá decir que la peleó hasta la última fecha con un equipo lleno de agujeros. Y será cierto. También es cierto que este Atlético no tiene un jugador al que dé gusto ver (y cuando compra uno lo deja en el banco) aunque sus titulares tienen una técnica superior, conocen su oficio y, cuando tienen que atacar lo hacen aunque el técnico se exceda en sus miedos hasta llevarlos al borde del suicidio. Pero demostraron que son fuertes de cabeza. ¿Cuánto vale eso en el fútbol?**
+
+
+
+
+**Dejo para el final lo último que hice el domingo en materia de fútbol. Vi Lille (0) - Saint-Étienne (0). Tenía curiosidad por ver al equipo que saldrá campeón de Francia destronando al PSG (siempre y cuando gane el domingo o su rival no lo haga). Supongo que habrá tenido partidos mejores, pero es inexplicable que este equipo de veteranos musculosos, que parecen salidos del gimnasio, sea campeón de algo. Pero así es el fútbol en Francia. Un derivado del rugby.**
+
+
+
+
+**\_\_\_**
+
+
+
+
+QUINTÍN
+
+
+
+
+Es fundador de la revista El Amante y ex director del Bafici. Vive en San Clemente del Tuyú. En Twitter es @fantasmaquintin
+
+
+

@@ -1,0 +1,86 @@
+# El sonido del dolor
+
+**El nuevo, triste y hermoso disco de Pettinato sobre música de Charly, un podcast de Daniel Riera y una película basada en un cuento de Murakami.**
+
+28 de marzo de 2021 - COSAS QUE ESTUVE MIRANDO
+
+_por MARIANO DEL MAZO_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4584-el-sonido-del-dolor
+
+
+
+Pettinato plays García, de Roberto Pettinato
+
+
+
+
+Siempre me pareció que Rap del exilio fue el homenaje que Charly García le hizo a Sumo. El vínculo entre dos sonidos antagónicos y fundamentales del primer lustro del rock argentino de los ’80 muere ahí. La banda importaba de Europa la actitud punk y un perfume new wave y García iba de la modernidad y el pop al rock más rotundo en Piano Bar. Daniel Melingo toca como Roberto Pettinato y la canción es una especie de prima hermana de Debede. García fue a ver un par de veces a Sumo en vivo. No hubo más vínculos: básicamente porque Luca despreciaba a casi todo el rock argentino de pura cepa, ese que en los primeros ’80 representaba una especie de hippismo tardío. Roberto Pettinato también. Su interés estaba puesto en los nuevos sonidos del post punk, en lo experimental e, incluso, el jazz y el funk. Lo escribió como fugaz director del último Expreso imaginario, lo tocó en su espaciada carrera musical que prontamente cedió terreno a intereses mediáticos. El tiempo pasó y los planetas no chocaron: se integraron. Con astucia de productor mainstream, Pettinato hizo un pase de magia y se apropió de un puñado de melodías más o menos escondidas del mayor genio vivo de la música argentina. Lo bien que hizo.
+
+
+
+
+No puedo dejar de escucharlo. Pettinato plays García es un disco hermosamente triste. Cometí el pecado de ponerlo por primera vez un domingo a la tarde. Otoño y pandemia: demasiado. La voz de Charly me persiguió por horas, sobre todo la de la versión cantada de “Tango en segunda”: “Son cuatro casas sin ventanas, cuatro cadaveres que van/ a renacer entre los muertos, las visiones del final”. Su voz ya no es una voz, es el sonido del dolor. Llega como un eco espectral, viene de otra dimensión y asimismo conserva un suspiro de gracia cuando dice que el de “No Reply beatle” es el mejor estribillo del mundo. Las palabras chocan entre sí, raspan, meten miedo, como ese alucinado personaje de Distancia de rescate, de Samantha Schweblin. ¿De dónde viene esa voz? ¿Qué nos quiere decir?
+
+
+
+
+Es tan fácil quererlo a Charly como no quererlo a Pettinato. El video que acompaña la emocionante versión de “Happy & Real” completa la idea: el tono burlón del Joker del saxo invade la perplejidad y la candidez otoñal de García, que barrunta la canción como un crooner agónico (“Hello Frank: How’re you doing? Are you alright?”, preguntaba Luca en Sumo). Es una arremetida de Pettinato, tal vez festivo porque podía vislumbrar lo que tenía entre manos. El disco realiza una operación disruptiva: con el espejo de Coltrane por momentos, con el del Gato Barbieri en otros, salvando todas las distancias, Pettinato sopla y sopla el saxo y le saca el polvo a esculturas de la música popular. Todos ganan.
+
+
+
+
+[![](https://img.youtube.com/vi/Ea8kABfE4sc/0.jpg)](https://www.youtube.com/watch?v=Ea8kABfE4sc)
+
+
+
+
+Nunca hubo relación entre Charly y el jazz: hasta ese detalle heredó de Los Beatles. Esencialmente García está constituido de música clásica y tango, más diferentes corrientes de la cultura rock (folk, prog, funk). No se advierte el jazz, y cuando David Lebón llamó a Diego Rappport para que hiciera el solo de teclado de Tema de Nayla en Serú Girán, su justificación fue: “Quería un pianista de jazz, y Charly es más del palo clásico”. Pettinato logró el milagro: que García, su música, vibre en jazz. Es un disco de él, las canciones de Charly son el humus de su huertita free jazz. Yo le hubiese hecho decir a García alguna frase de alguna canción. A pesar de todo, sigue siendo nuestro patriarca. Por ejemplo, al boleo: “Todo se construye y se destruye tan rápidamente, que no puedo dejar de sonreír”. Pero es algo personal. Sí sé que cuando el sopor pandémico sea parte del pasado y afloren películas y series temáticas, Pettinato plays García va a funcionar como una de las bandas de sonido de la pesadilla. El disco porta, como otro virus, la dosis justa de claustrofobia y desasosiego. Y un domingo a la tarde puede ser letal.
+
+
+
+
+El largor, de Daniel Riera
+
+
+
+
+En estas semanas choqué con un bálsamo en forma de podcast. Lo hace el gran Daniel Riera, se llama El largor y la única consigna que lo rige es que la música que se escucha dure más de seis minutos. Riera habla poco y bien, dice lo justo, le da lugar a las canciones. Cada envío tiene un invitado que se limita a presentar un tema. Puede ser Mariana Enríquez, Pedro Saborido o Fernando Cabrera; puede ser The Who, Alas, Bandalos chinos o Leonardo Favio. Me encanta que sea un puchero espeso, que se cuezan a fuego lento canciones largas, de sabores variados, exóticos, perdidos, que exijan.
+
+
+
+
+Hablando de largores: también por estos días escuché la nueva canción de Bob Dylan, “Murder Most Foul”, la primera en ocho años, y leí su texto. Se constituyó en la canción más extensa de su carrera: 16 minutos, 57 segundos. Muchos quisieron ver en la decisión de publicarla ahora una opinión política. El punto de vista de un Premio Nobel sobre el devenir errático del planeta. Más que una canción, un ejercicio prosaico que gira en torno al asesinato a John Kennedy (“el hombre cayó muerto como un árbol sin raíces”) en Dallas en 1963 pero que, finalmente, va para atrás y para adelante caprichosa y elegantemente como en su célebres Crónicas. Hace lo que quiere, dice lo que quiere, y lo dice extraordinariamente bien: desde la sincro Dallas-Beatlemanía hasta pegarle a Charlie Parker o hablar de Woodstock y Altamont o referir a Tommy y a… ¡Another One Bites The Dust!, entre otras 75 canciones citadas. Su tono es grave, firme, severo; su pulso, enciclopédico; su cadencia por momentos vacilante, discepoleana: “¿Dónde está la verdad? ¿Dónde se fue?”, pregunta.
+
+
+
+
+The answer, my friend…
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/43740/55e5cbc7-1eb2-4b35-a14c-5c24c6793d78.jpg)
+
+
+
+
+Burning, de Lee Chang-Dong
+
+
+
+
+En Netflix permanece milagrosamente Burning, la película de Lee Chang-Dong estrenada hace dos años. Está basada en un cuento de Haruki Murakami y es una obra maestra. Durante dos horas y media desarrolla la historia desolada de tres jóvenes coreanos: Jongsu, Haemi y Ben. Es, de alguna manera, un triángulo amoroso entre un campesino aspirante a escritor (Jongsu), una chica bella y enigmática (Haemi) y un chico de clase alta (Ben). No solo ella, todo es enigmático: un viaje a Africa, el padre de Jongsu a punto de ser condenado por una pelea contra la autoridad, un gato que no aparece, invernaderos incendiados, una madre que ve a su hijo después de 16 años y solo se dedica a chequear su celular. Burning expresa una profunda soledad, el extravío de una época, la agresividad del mundo capitalista. Por ahí se ve un televisor con la imagen de Donald Trump en la modesta casa rural del aspirante a escritor. Y aparecen homenajes: una novela de Faulkner, la música de Miles Davis de Ascensor para el cadalso mientras la chica lentamente deja caer sus ropas un atardecer de charla y marihuana y, siempre, lo no dicho. La película tiene su largor: dos horas y media. Nada sobra, nada falta. “Creo que hay otra función del cine –dice Lee Chang-Dong-, que es no solamente ver aquello que está siendo mostrado sino aquello que no puede verse. Hacer que el espectador imagine todo eso que no es evidente de manera explícita. Yo prefiero hacer muchas preguntas pero no necesariamente responderlas. Me gusta guiar a la audiencia, que pueda seguir la historia, y que las preguntas surjan en cada uno de los espectadores sin ofrecerles una verdadera respuesta. Preguntas como ¿quién es esta persona, quién es esta mujer? ¿Está muerta o no, existe realmente o no? ¿Hay un asesino serial suelto o es un buen muchacho? Eso es lo que el cine tiene en común con la poesía”.
+
+
+
+
+La carta suicida de Kurt Cobain citaba una canción de Neil Young: “Es mejor arder que apagarse lentamente”.
+
+
+
+
+En Burning la frase funciona como una respuesta posible a tanto vacío.
+
+
+

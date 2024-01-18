@@ -1,0 +1,1 @@
+../../contenido-22526-pensar-destruye.md

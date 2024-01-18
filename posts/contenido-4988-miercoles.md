@@ -1,0 +1,71 @@
+# Miércoles
+
+**Un viaje en avión, el primero de la post normalidad, precipita una serie de asociaciones y la lectura de Ensayo de vuelo, de Paloma Vidal.**
+
+20 de enero de 2021 - FREE SHOT
+
+_por SERGIO CHEJFEC_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4988-miercoles
+
+
+
+Hace poco viajé en avión, no lo hacía desde el inicio de la pandemia y sus restricciones. Los viajes en avión son experiencias tediosas; más exasperantes cuanto más largos. Debido a eso, bienvenida la novedad. Lo novedoso fueron los protocolos, que no eran esencialmente distintos de los dispuestos para cualquier otra actividad, y sin embargo, extrapolados a la altura y a la natural perspectiva de inminente catástrofe, parecían, esos protocolos, las condiciones actualizadas de un juego conocido por todos, innecesarias pero rigurosas, que se revelaban todavía más solemnes que en la superficie y que de costumbre.
+
+
+
+
+Entonces, como una manera de diferir el tedio, mi curiosidad inmediata se orientó hacia los cambios, observar los usos nuevos, las variantes, lo que antes estaba admitido y ahora no, etc. Algo parecido a una experiencia inducida de la primera vez; la primera vez de una experiencia que de este modo se recupera a medias, y a medias se pierde aunque conserve su rígida solemnidad.
+
+
+
+
+En una esfera más personal, si es que puede decirse así, me ocurrió lo siguiente.
+
+
+
+
+Desde hacía bastante tiempo al viajar en avión me concentraba con fuerza en hechos medio imposibles, situaciones potenciales que se basaban en trances sencillos de una supuesta normalidad circunscripta a la cabina, y que sólo le debían a la vida del exterior, la verdadera vida de todos los días, su gramática escénica aunque no su razonabilidad. Como si alguien dijera: una pequeña cápsula suelta de acción mundana, casi la base de un gag.
+
+
+
+
+Mi “situación” favorita tenía la persistencia de una ensoñación.
+
+
+
+
+Un vuelo prolongado, la cabina bastante ocupada, con asientos libres repartidos aquí o allá. Personas que entran al avión y otras que salen como si no se estuviera volando. Algunas de esas personas pasan junto a mí; mientras tanto veo las figuras recortadas de los otros pasajeros, confiadamente dormidos, o pensativos, como yo, en medio de la oscuridad de la nave nocturna.
+
+
+
+
+Podía presumir que jamás me volvería a cruzar con quienes dejaban el avión en medio del aire, pero sobre todo me intrigaban los nuevos –no encontraba explicación a que hubiesen logrado entrar–. Me gustaba que la gente fuera y viniera como en un café o un colectivo; porque de esa manera la ensoñación funcionaba al modo de una de esas ideas-refugio que permiten ver la realidad como una serie de trances simultáneos y fluyentes, no necesariamente organizados ni visibles, aunque continuos hasta un punto en que, si alguien se distrae o duerme –trances de lo más habituales durante los viajes– cuando regrese a la esfera común se va a encontrar con el despliegue de una nueva serie de cambios con forma de relatos, cuentos acaso relevantes sin final visible.
+
+
+
+
+En esta ocasión, mi distracción / sueño se perfiló como lectura inmersiva gracias a un relato que invoca un viaje en avión, viaje muy probablemente hecho en las postrimerías de esa hoy difusa normalidad que fue el largo tiempo previo a la aparición del virus. Mientras leía el texto me preguntaba cómo esta historia se habría configurado de haber ocurrido en tiempos de la pandemia. El ensayo se llama “Ensayo de vuelo” y pertenece a Paloma Vidal. El título ejecuta una voluta, y una más dentro de ésta, y luego otra hacia algún costado… ¿Leemos un intento de volar en un sentido figurado?, ¿un ensayo que se apropia de un vuelo?, ¿un vuelo ensayado? ¿leemos otras posibilidades de significado? Son preguntas que no se responden, como tampoco suele servir de mucho preguntarse sobre las condiciones físicas exteriores mientras volamos en la cabina.
+
+
+
+
+El vuelo real que habilita el relato es de dos horas, en cuyo transcurso la narradora se impone escribir con el teléfono celular un texto de seis mil palabras, al que bautizará ensayo. Lógicamente, las tecnologías están muy presentes. Los pasos y servicios durante el vuelo, la app de escritura, junto con el estatuto medio suspendido de la conciencia, establecen las condiciones de enunciación. A la vez, el texto ensaya, como si replicara la navegación que testimonia, aproximaciones a experiencias de desplazamientos: la emigración de la hermana de quien escribe, las novelas de dos mujeres que han cambiado de continente. El ensayo volador parece proponer, sin decirlo, que así como trasladarse por los aires es una anomalía, dejar el terruño también puede serlo –aunque no así escribir sobre ello–.
+
+
+
+
+En más de una ocasión la autora llama a alguna azafata. Para eso enciende la luz superior del asiento, describe cómo titila, y advierte que, al llegar la azafata, su primera acción es apagar la luz con la que fue llamada. En el ensayo, parece que las llamadas carecían de destino claro, porque la autora comunica a la azafata que la ha llamado debido a motivos intangibles; por ejemplo, porque se sentía angustiada. Y si no lo comunica en esos términos –puede ser que lo haya transmitido con el sentimiento, o con la mirada— se produjo en todo caso un acercamiento físico que en épocas de estricto protocolo habría estado vedado. Las azafatas son los eslabones con el mundo, como el teléfono es el eslabón con la escritura en estado de emergencia.
+
+
+
+
+Pienso entonces en eso, mientras vuelo o volaba. La cabina de mi avión parece un féretro por dentro, un ataúd colectivo. Con el barbijo eterno todas estas almas se han sumado a la suspensión, por otra parte es un viaje al que siempre le quedan para terminar horas y horas. En el libro de Vidal, las dos horas de avión parecen un hecho normal, como tener la SUBE preparada y encarar una cola. Probablemente el misterio del desplazamiento, la incertidumbre que rodea al volar, hayan activado el deseo de escribir sobre libros apenas entrevistos y sobre los indicios incomprensibles de una vida cercana que ha decidido alejarse.
+
+
+
+
+Leo eso en el Ensayo de vuelo, supongo que leo también lo que no se atreve a decir –que a lo mejor se esconde en las páginas pares, en blanco, de este libro impreso solamente en las impares–, y la ausencia en el texto de este presente de pandemia flagrante me produce una brecha mental más ancha que la representada por unos meses de pasado inmediato. No es que la vida se haya desmoronado y luego levantado sobre nuevas bases –ojalá fuera eso–, sino que lo escrito, todo lo representado en general, se exhibe a partir de un lugar lejano, desde donde emite gestualidad de despedida y de expectante bienvenida.
+
+
+

@@ -1,0 +1,101 @@
+# El ojo despierto
+
+**“¿La felicidad ocurría dentro o fuera del arte? ¿O entremedio, en la transición? El cineasta metía preguntas pesadas en sus seguidores, pero el pancho dejaba huellas igual o más indelebles”.**
+
+05 de diciembre de 2020 - SÁBADOS DE SÚPER FICCIÓN
+
+_por PABLO VÁZQUEZ_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/3084-el-ojo-despierto
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/34705/8aaa2a29-ff50-40d4-b834-b7df47ca45c2.jpg)
+
+
+
+
+Cuando el público francés ve una película que genera estupor, dice: parece una obra de Guy. Pero no todos conocen el origen de esta frase. Dicho autor inauguró y clausuró una escuela de cine conocida como “cine ciego”, aunque él le haya puesto un nombre mucho más insólito: Ergonomía Óptica Nihilista. Él tenía sus razones, aduciendo vínculos gnósticos, comparando el nombre de su escuela con el eón y otras materias impalpables. Pero sus consumidores humildes prefirieron un título que pudieran recordar.
+
+
+
+
+Una de sus máximas irrenunciables era que solo los verdaderos artistas creaban un nuevo género y lo agotaban al mismo tiempo. Sus ejemplos favoritos eran Cervantes y la novela, Warhol y el pop, Zappa y la xenocronía. Incluso el cine ya había sido inaugurado y saturado por Dziga Vértov, un prócer que Guy no dejaba de homenajear y profanar.
+
+
+
+
+Cuando se habla de Guy se usa el género masculino, pero no se sabe con certeza si es un él o una ella. Esto se debe a la casi nula aparición del artista en escena: su ausencia física buscaba impulsar aún más su prerrogativa artística de filmar algo que luego no se podía contemplar, al menos con los ojos. La filmografía producida no dejaba de insistir con que su obra y su cuerpo no debían ser vistos.
+
+
+
+
+La primera película de Guy fue un corto titulado: “Soy más grande que Jesús”, y aunque todos creyeron que se trataba de un guiño al desparpajo de los Beatles, se sospecha que el nombre hacía alusión a la duración del film, ya que el corto duraba seis horas. El público que asistió, si bien debió pasar de a uno y con los ojos vendados, contó que había una alteración en la intensidad de la poca luz que lograba colarse a través de la venda. Algunos confesaron sentirse conmovidos por esas variaciones de blancos y negros, aunque tal vez se debiera a un estado de deshidratación, ya que no se podía abandonar la sala hasta completar toda la película. Se decía por ese entonces que el director se encontraba en la sala durante todas las proyecciones, algo que costaba creer.
+
+
+
+
+Su segunda película, un largometraje de diez segundos, se llamó “La felicidad”. Los espectadores esta vez fueron seis, por lo que al minuto de proyección ya todo el mundo estaba en la calle. El público interpretó que ahí estaba la verdadera felicidad que prometía la obra: en la celeridad con la que uno podía alejarse de la pantalla y comerse un kebab o un pancho mientras usaba por fin los ojos para apuntarlos a su hermosa ciudad. ¿La felicidad ocurría dentro o fuera del arte? ¿O entremedio, en la transición? El cineasta metía preguntas pesadas en sus seguidores, pero el pancho dejaba huellas igual o más indelebles.
+
+
+
+
+Su tercer estreno fue el que generó por fin una muchedumbre agolpada en las puertas de la sala. La película se llamaba: “Veo, veo”. La duración no fue revelada por su autor, y hasta el día de hoy se ignora. Algunos espectadores hicieron un gran esfuerzo para soportarla hasta el final, sin éxito. Una mujer de alta alcurnia, llamada Michèle, parecía la candidata a desenmascarar el misterio; la señorita tenía recursos cuantiosos, es decir, mucho tiempo libre. Michèle ocupó su asiento con soltura y dedicación, pero al cabo de tres días completos –la señorita Michèle declaró, luego de descansar una semana, haber recibido alimentación y una manta, aunque no pudo precisar por quién–, abandonó su puesto, para decepción de la multitud que ya por entonces se agolpaba en las puertas del cine Les longues cannes, exultantes con la resiliencia de la espectadora, aunque la película no les causara la misma admiración. Cuando se la interrogó por las secuelas de su experiencia, adujo una lesión poco grave en los meniscos y el maxilar superior. Las butacas del cine no la sostuvieron en la mejor postura posible, y la tensión facial, junto con un imperioso deseo por sacarse la venda, causaron que su cara se estresara y atrofiara, explicación que apagó las fantasías de más de uno. El público la vitoreó de cualquier modo, decepcionado y orgulloso a la vez, pero sobre todo enojado con el creador de esta anomalía fílmica, un monstruo de dimensiones insospechadas.
+
+
+
+
+El título de su siguiente película parecía una bofetada cruel: “Mme Michèle”. En esta ocasión, doscientas personas hicieron fila durante toda la noche para asistir al estreno, convencidos de que esta vez llegarían al final y se le reirían en la cara a Guy. Dentro de la fila se encontraba un grupo de artistas parisinos que se hacían llamar escatológicos, y cuya máxima era llegar al fin de todas las cosas.
+
+
+
+
+En cuanto supieron que Guy se encontraba filmando su nueva insolencia, comenzaron los preparativos para asistir a la sala: guardias de cuarenta y ocho horas despiertos, sumadas al vendado de ojos para acostumbrarse a la ceguera, errando por las calles de París con palos de escoba y botellas de pastís. En los momentos menos esperados, se disparaban con bocinas y explosivos para prepararse en caso de que la película tuviera un sonido insoportable.
+
+
+
+
+Uno de ellos propuso visitar a Michèle, cuando aún no conocían el título que iba a tener la película en cuestión. En la puerta de su palacete, un mayordomo demasiado alto para ser francés los detuvo en seco para informarles que la baronesa estaba muy ocupada con una orgía. Los artistas, encantados con la ocurrencia, se pusieron los vendajes, que para ese entonces ya usaban todo el tiempo, y se retiraron aplaudiendo y silbando.
+
+
+
+
+El día del estreno había llegado, y cuando los escatológicos conocieron el título, se arrepintieron de no insistir con aquel mayordomo, de presionarlo hasta que los dejara abordar a la susodicha o, en el peor de los casos, participar de la celebración de los cuerpos propiciada por la anfitriona.
+
+
+
+
+A pesar de ya tener puestas sus vendas, los escatológicos reconocieron enseguida la presencia de su némesis. Guy era, a todas luces, inclasificable desde el punto de vista del género. Había salido al pasillo para anunciar que la película tenía una sola espectadora, la señorita Michèle, y que nadie más podía entrar. Esa persona que anunció la mala nueva estaba a metros de la horda de curiosos; sin embargo, no era posible identificar si se trataba de un hombre o una mujer. Por empezar, su vestimenta parecía una bolsa de residuos, pintarrajeada con bloques de colores pasteles. El vestuario en cuestión combinaba cortes reveladores de partes del cuerpo que no suelen erotizarse de ese modo: un codo, el costado de un dedo anular, un trozo de ceja. Y a la vez ocultaba los detalles que suelen delatar la binaridad: la entrepierna, los pectorales, la boca. En segundo lugar, su voz era de un tono chillón, pero afónico. El hecho de que los únicos interesados en el arte de Guy estuvieran vendados y excedidos de anís volvía todo mucho más borroso.
+
+
+
+
+El director volvió a ingresar a la sala privando a todos de su novedad. La fila desconcertada deseó todavía más conocer de qué se trataba. Los escatológicos insultaban al director arrastrando las consonantes, pero también lo admiraban: tal vez, especulaban, se trataba de un hombre o una mujer que había gastado los últimos dos años de su vida, y todo su dinero, creando algo dirigido a una sola persona en todo el mundo. Desde ese punto, les parecía un artista sincero, valiente y cursi.
+
+
+
+
+Cuando la muchedumbre colmó su paciencia y comenzó a dañar el edificio, los escatológicos tomaron sus palos de escobas y botellas de Pernod vacías y pusieron a los enajenados espectadores burgueses en doble fila para disponerse a echarlos a palazo limpio. En plena batahola, el mar de cuerpos desorientados se partió en dos, dejando asomar a su Mesías: la señorita Michèle había llegado. En silencio y avanzando con una cojera, causada, según aseguraban los escatológicos, por el frenesí sadeano con el que se conducía en sus aposentos, Michèle marchó con solemnidad hacia su butaca.
+
+
+
+
+Luego de una cantidad de horas razonable, Michèle salió de la proyección corriendo y llorando. No se la volvió a ver por mucho tiempo.
+
+
+
+
+Años más tarde, comenzó a divulgar lo que había vivenciado en esa película dirigida y proyectada solo para ella. El problema era que siempre que abría la boca lo decía distinto. Contó que la película, a juzgar por los sonidos y la iluminación, era un registro de toda su vida reproducida a máxima velocidad, lo cual la hizo vomitar; juró que por unos segundos pudo pispear la pantalla por fuera de la venda: era una figura humanoide parada frente a ella, mirándola, solo mirándola; aclaró que nunca existió esa película más que como excusa para encontrarse a oscuras y en secreto con Guy y coger tanto como quisieran.
+
+
+
+
+Cuando se la interrogaba por el director, contraatacaba con disparates: es un surrealista de derecha, un rompehuelgas del Partido Comunista, una espía maoísta que trabaja para Nixon, un personaje de una película que aún no se terminó de rodar. La gente se aburrió pronto de sus trucos.
+
+
+
+
+Del director no se supo más nada, salvo que sobrevivió en esa frase, un poco agresiva y un poco no, que usan los franceses cuando ven una película desconcertante en la pantalla: parece una obra de Guy.
+
+
+

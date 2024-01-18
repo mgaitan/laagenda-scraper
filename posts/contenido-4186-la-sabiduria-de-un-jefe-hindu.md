@@ -1,0 +1,91 @@
+# La sabiduría de un jefe hindú
+
+**A 100 años del nacimiento de Charlie Parker, el artista que cambió el jazz. “La técnica la teníamos todos, pero el estilo sólo él”, lo definió Dizzy Gillespie.**
+
+10 de marzo de 2021 - ANIVERSARIO
+
+_por SERGIO PUJOL_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4186-la-sabiduria-de-un-jefe-hindu
+
+
+
+Por supuesto, la discografía no se ha quedado quieta. Buen momento para reediciones y revival de vinilo, empezando por las sesiones de Savoy (las primeras, las históricas), Dial (el sello californiano del productor y biógrafo Ross Russell) y Clef-Verve (los años finales de Bird, discográficamente gestionados por el pródigo Norman Granz). Estas eran en su origen discográficas pequeñas y bohemias, decididas a captar el latido de la nueva música. Hoy están en manos de majors, del mismo modo que los cuadros de Van Gogh engalanan los mejores museos del mundo. Resumiendo – los laberintos discográficos son insondables -, si el gentil lector de estas líneas quiere iniciarse en la obra parkeriana, se recomiendan Charlie Parker Savoy 10” Albums Collections (Craft Recordings) y Charlie Parker. The 10” Albums Collections (Verve/Universal).
+
+
+
+
+Si bien grabó bastante a lo largo de su corta vida, con Parker sucede una especie de angustia documentalista. Siempre queremos más de su música y de su historia, pero eso ya no es posible (Como quizás sí lo siga siendo con Miles, Coltrane o Evans). Sólo dos breves intervenciones audiovisuales (una versión de “Hot House” con Gillespie, en TV, y la participación junto a Coleman Hawkins en un cortometraje de 1950… ¡con playback!) nos permiten verlo en acción. Para más precisiones sobre su paso por este mundo debemos confiar en los relatos de sus apóstoles, oportunamente consultados por sus biógrafos. Su fantástico talento para impactar en la sensibilidad de sus oyentes de los clubes de Manhattan, Los Angeles o cualquier otro sitio que se le ofreciera a su música apenas puede imaginarse a través de las numerosas grabaciones en vivo: el bootleg parkeriano, deficientemente grabado, es sólo para especialistas.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/38639/6aa6548b-8e21-4e33-837c-7faadd4196b8.jpg)
+
+
+
+
+Con un joven Miles Davis, a fines de los años 40, tiempos del quinteto.
+
+
+
+
+Durante los diez años hiperactivos del músico (1945-1955) el disco de larga duración daba sus primeros pasos, conviviendo aun con los 78rpm: no crean que todas las ejecuciones de Parker duraban apenas 3 minutos. Sin embargo, en aquellas tomas de 3 minutos está el genio de Parker. A su música hay que escucharla más en profundidad que en extensión. No importan aquí las maratones de solistas que entraban en calor transcurridos varios compases. Parker brillaba desde la primera hasta la última nota, con un control del tono, una prestancia sonora y un fluir de ideas musicales que hacían del entorno sonoro un paisaje un tanto difuso. Sus solos eran lacerantes, cargados de ansiedad y un lirismo desgarrado. Salvo sus duetos con Gillespie, no importa demasiado con quién tocaba Bird. “La técnica la teníamos todos, pero el estilo sólo él”, contó alguna vez Dizzy.
+
+
+
+
+En joyas como “Koko”, “Now´s the time”, “Ornithology” o “Confirmation” – especialmente en la primera, creada a partir de los intervalos superiores de la armonía de “Cherokee” - está no sólo la clave de un estilo sino también los indicios más fidedignos de una época de audacia musical, cuando aquello que hasta entonces se consideraba música popular o de entretenimiento iniciaba un ascenso irrefrenable hacia un nivel de autoconciencia artística antes poco desarrollado. Sucedió en varios lugares del mundo más o menos al mismo tiempo (pensemos en Piazzolla y el tango, o poco después en Jobim, Joao y la bossa), pero sin duda Parker epitomizó mejor que nadie la figura del músico popular como artista moderno que, como en su caso, podía conocer y admirar la música de Paul Hindemith e Igor Stravinski sin por ello aguardar la aprobación de las vacas sagradas de la cultura para seguir explorando un género de codificación propia.
+
+
+
+
+Charlie Parker protagonizó una épica que partió aguas en el desarrollo del jazz pero que también permitió repensar el conjunto de su historia. La vanguardia que lideró junto a Gillespie y Monk significó una fractura estética (él negaba que su música tuviera lazos con el pasado, así como descreía del término bebop), produciendo una alteración en los parámetros con los que hasta ese momento se concebía el jazz. Por lo pronto, ya no fue tan sencillo marcar cuatro tiempos con el pie, las armonías se volvieron ríspidas (el intervalo de quinta disminuida, giro diabólico, terminó siendo una legítima blue note), el saxo dejó de lado su sensual vibrato para sonar como un cuchillo y las frases irregulares pusieron los pelos de punta a los tradicionalistas. Pero una vez vertido el nuevo lenguaje en las aguas del jazz – inexorable efecto del mainstream de la cultura - podemos entender el discurrir de la música afroamericana desde una perspectiva más amplia; entender mejor lo que en su momento hicieron Armstrong, Ellington o Lester Young. Simétricamente, su legado nos ayuda a escuchar el presente del jazz. ¿Acaso el saxofonista norteamericano de familia india Rudresh Mahanthappa- acaba de editar el poderoso Hero Trio con algunos temas del repertorio de Bird - no se declara admirador de Parker, transcurridos ya 65 años de su muerte?
+
+
+
+
+Es errónea la suposición de que Parker, nacido en Kansas City el 29 de agosto de 1920, forjó su estilo una vez mudado a Nueva York. El muy documentado libro de Stanley Crouch Kansas City Lightning: The Rise and Times of Charlie Parker pone en valor los primeros años musicales de Parker y ese posgrado en blues y swing que fue la orquesta de Jay McShann. Crecer y descubrir la música en la ciudad del alcalde gangster Tom Pendergast debió ser una experiencia fuerte (Como escribió Walter Benjamin, no hay documento de cultura que no sea al mismo tiempo documento de barbarie). Allí proliferaron, en los años 20 y 30, cabarets, casinos y clubes de jazz y blues. Allí encontró su destino Count Basie, mientras el delicado Lester Young – ídolo de Parker – se diferenciaba del proteico Coleman Hawkins. Allí el muchacho Parker, más tarde bautizado “Yarbird” por sus compañeros de la orquesta de McShann, pasó del saxo barítono al saxo alto, primero emulando a Buster Smith para terminar siendo él una fuente de inspiración de sus coetáneos, como un semidios musical del Medio Oeste. La virulencia con la que se lo negó y descalificó al principio fue proporcional a la posterior devoción, no sin antes pasar por la negación y el rechazo. También fue en Kansas City, Misuri, donde el muchachito de 12 años empezó su dramática relación con las drogas.
+
+
+
+
+Lo que sin duda Parker encontró en Nueva York fue un ambiente. Un mundo de arte. Un grupo de pares: el baterista Max Roach, el pianista Bud Powell, el trompetista quinceañero Miles Davis, el contrabajista Tommy Porter… En Nueva York –primero en Harlem, entre el Monroe´s y el Minton´s, poco después en Three Deuces, Royal Roosts y Onyxs y demás templos de la calle 52 – Parker terminó de sellar su alianza con Gillespie, al que había conocido en la orquesta de Earl Hines (excursus: Bird fue un brillante saxofonista de big band, amén de un arreglador intuitivo con talento pero poco confiable por su acuciante incorrección), mientras tomaba nota de las invenciones del arquitecto del bebop Thelonious Monk.
+
+
+
+
+Enseguida el pajuerano devino líder. Un líder atípico: desaliñado (a menudo vestía como un marginal que acaba de hurtar un traje en una tienda americana), oscilantemente gordo y flaco, insomne de tanto jazz y droga y medio extraviado en su sonrisa absurda. Definitivamente un adelantado que vislumbró el infierno (nunca dejó de advertirle a los músicos que lo seguían de los riesgos de la heroína). Voraz con las comidas y las mujeres (de Rebecca, la noviecita del pueblo, a Chan Richardson, la joven citadina de aires beatniks), siempre pasado de rosca: metía 16 notas en un compás doblando los tiempos de manera increíble, así como metía cualquier cosa en sus venas. Pero cada nota brillaba como si fuera la única, la elegida. De su admirado Art Tatum, al que había escuchado hasta la saciedad una vez que debió ganarse la vida como lavacopas en Harlem, aprendió que casi todas las notas suenan bien si se las ubica en el sitio y el momento adecuados. No era fácil seguirlo: sus acompañantes solían resignarse a tocar un poco por detrás o un poco por delante de su ritmo. Esa era su lección de swing.
+
+
+
+
+Alguna vez tocó mal. Fue en la primera versión de “Lover man”, en Los Ángeles. La gestionó el trompetista Howard McGhee, con el propósito de ayudarlo en otro de sus momentos difíciles. Pero las cosas no salieron bien. Parker estaba reventado. Luego se enojó con el productor Ross Russell, que editó el disco contra su voluntad. Con los años, aquel registro del sello Dial, que obviamente no carece de interés musical – la entrada dubitativa del comienzo y ciertos deslices de entonación podrían pasar por búsquedas experimentales -, se convirtió en pieza de culto. He aquí un tópico: el del artista incomprendido que se quema en su propio fuego. O el suicidado por la sociedad, aunque no puede decirse que Parker haya sido exactamente un “maldito”.
+
+
+
+
+Fue venerado por los músicos: Frank Morgan, como tantos otros, empezó a inyectarse para tocar como él; Phil Woods fue aún más lejos: se casó con su viuda Chan. En París lo trataron como un artista y los escritores de la generación beat lo adoptaron como esfinge. Parker se dio muchos gustos, incluido el de tocar bellas melodías rodeado de una gentil sección de cuerdas. Pero al mismo tiempo la felicidad le fue esquiva (Más esquiva que al resto de la Humanidad, para ser francos). Sufrió el oprobio del racismo: no fue admitido en los dos conservatorios de música de Kansas City, los medios de alcance nacional lo ignoraron (Time y Life llegaron al punto de escribir notas sobre jazz moderno casi sin nombrarlo) y The New York Times redujo la noticia de su muerte a una nota de tinte más policial que cultural.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/38640/2301d1f9-350e-4d9a-a250-2aa2d77f5e94.png)
+
+
+
+
+El escueto obituario que le dedicó The New York Times, reflejo del desprecio de la prensa nacional de su país.
+
+
+
+
+Como insumo para otras artes, Parker no ha tenido rival. Julio Cortázar le dedicó su afamadísimo cuento largo “El perseguidor”, más tarde llevado al cine por Osías Wilenski, con Sergio Renán en su piel y Rubén y Gato Barbieri en su música. Clint Eastwood lo narró exageradamente en Bird. El artista visual Michael Basquiat se inspiró en su aura para algunos de sus grafitis, y en setiembre del año pandémico Dave Chisholm y Peter Markowski editarán su novela gráfica Chasin´The Bird. Charlie Parker in California.
+
+
+
+
+Quizá antecesora de la contracultura, la figura de Parker emerge como la del creador que no pudo frenar su precipitación hacia una muerte joven. El mito romántico, de Lord Byron a Jimi Hendrix. Sin embargo, Parker no murió joven en términos simbólicos (Al fin y al cabo, en su época aún no se había inventado la juventud). El tantas veces denostado parte forense hecho sobre su cadáver (que tenía 53 años en lugar de 34) no fue del todo incorrecto. Vivió mucho en poco tiempo, y desde muy joven supo más y mejor que el resto del mundo. Como escribió el crítico Gary Giddins, Parker nació con la autoridad de un jefe hindú. En algún sentido, su sabiduría sigue iluminando lo mejor de la música y la cultura de nuestro tiempo.
+
+
+

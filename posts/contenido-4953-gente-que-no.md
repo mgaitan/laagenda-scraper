@@ -1,0 +1,76 @@
+# Gente que no
+
+**En 1991, en medio de una gira por Medio Oriente a la que fui como reportero, Menem se ilusionó con la posibilidad de que existiera vida después de la muerte.**
+
+15 de febrero de 2021 - MEMORIA
+
+_por JOSÉ MONTERO_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4953-gente-que-no
+
+
+
+Dentro de ese contexto, en octubre de 1991 Menem hizo una gira por Israel, Egipto, Chipre y Túnez y DyN me designó como enviado especial para cubrir el viaje. En aquella época siempre se asignaban butacas del avión presidencial para periodistas de las tres agencias nacionales: la oficial Télam y las privadas Noticias Argentinas y DyN. Si quedaban lugares disponibles, se repartían más invitaciones a discreción entre diarios, radios y canales de TV.
+
+
+
+
+Por algún motivo guardé el programa del viaje. Un folleto con el plan de vuelo, los servicios a bordo, las comidas, bebidas y hasta los juegos de mesa disponibles para los pasajeros. Ante mis ojos, el impreso ya parecía retro en aquel momento. Remitía, acaso, a los menúes que se grababan en ocasión de grandes agasajos, o a las hojas con información para quienes emprendían una travesía en barco.
+
+
+
+
+En la tapa brillaba, en rojo furioso, un pájaro churrinche, pintado por el artista argentino Axel Amuchástegui. Abajo, a la derecha, un calco de “Presidencia de la Nación, Casa Militar, Agrupación Aérea” cubría el logo y el nombre de Aerolíneas Argentinas, que se adivinaban abajo.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/45427/ed5d427b-f0db-429d-ac8d-66f824d23181.jpeg)
+
+
+
+
+Por lo visto, el programa se confeccionó varios días antes del viaje, ya que los destinos anunciados, y luego modificados, eran Israel, Italia y Túnez. Nunca conocí Nápoles, el punto itálico prometido, y sí sobrevolé las pirámides de Egipto, estuve unas horas en El Cairo y me pasé un fin de semana de descanso en un hotel de cinco mil estrellas de Limasol, Chipre.
+
+
+
+
+Según el folleto, en el vuelo de ida de 18 horas entre Ezeiza y Tel Aviv, con escala en Canarias, se sirvió champagne como copa de bienvenida, un cocktail con ostras calientes, cena y bar toda la noche. Luego, desayuno y almuerzo.
+
+
+
+
+Durante la parada técnica en Canarias, Menem, impecablemente vestido con un traje claro, fue recibido por una autoridad española que se acercó al aeropuerto para presentarle sus respetos. Una escena formal que duró pocos minutos. Tan breve que todos permanecimos de pie. Sin embargo, ese instante me sirvió para contemplar un gesto raro que hacía el presidente. Abría y cerrada la mano que tenía libre (la otra la tenía en el bolsillo del pantalón). Era un movimiento disimulado, casi oculto, con la mano colgando naturalmente a un costado de su pierna. Durante mucho tiempo creí que, con ese ejercicio, como si apretara el aire dentro del puño, Menem absorbía la energía de los presentes.
+
+
+
+
+Antes de ponerse el traje, todavía en el aire, Menem se había acercado hasta el fondo del avión, donde viajábamos los periodistas, para hacer lo que mejor sabía hacer: desparramar simpatía y magnetismo, encantar serpientes y mostrarse como alguien cercano, capaz de recordar los nombres de pila y los cuadros de fútbol favoritos de cada uno.
+
+
+
+
+Recién despertado tras el vuelo nocturno rumbo el archipiélago español, Menem se presentó vestido con un jogging blanco combinado con verde, gris y fucsia, según anoté en el reverso del programa.
+
+
+
+
+También escribí que, durante la noche, habían proyectado dos películas. Una fue “Perros de paja”, el violento drama de 1971 dirigido por Sam Peckimpah con Dustin Hoffman. La otra era más reciente, de 1990, y había ganado el Oscar al mejor guión original y a la mejor actriz de reparto (Whoopi Goldberg). Era “Ghost, la sombra del amor”, esa extraña y efectiva mezcla de los géneros fantástico, thriller y romántico, con toques de humor, donde Patrick Swayze, después de ser asesinado, se convertía en una especie de ángel guardián de su amada, Demi Moore, y se comunicaba con ella.
+
+
+
+
+Según mis anotaciones, Menem quedó encantado con “Ghost, la sombra del amor”. Dijo, sencillamente, que le había parecido “espectacular”.
+
+
+
+
+“A lo mejor es verdad”, abundó mientras le brillaban los ojos y se ilusionaba con la posibilidad de que existiera vida después de la muerte.
+
+
+
+
+A lo mejor no.
+
+
+

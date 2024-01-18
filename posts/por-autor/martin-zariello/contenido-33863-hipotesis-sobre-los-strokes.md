@@ -1,0 +1,1 @@
+../../contenido-33863-hipotesis-sobre-los-strokes.md

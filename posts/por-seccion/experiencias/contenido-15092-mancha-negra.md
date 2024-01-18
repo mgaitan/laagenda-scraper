@@ -1,0 +1,1 @@
+../../contenido-15092-mancha-negra.md

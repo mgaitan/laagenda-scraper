@@ -1,0 +1,1 @@
+../../contenido-47094-brilla-tu-diamante-eterno.md

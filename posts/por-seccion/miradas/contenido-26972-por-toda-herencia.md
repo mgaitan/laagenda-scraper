@@ -1,0 +1,1 @@
+../../contenido-26972-por-toda-herencia.md

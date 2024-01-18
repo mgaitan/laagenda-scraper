@@ -1,0 +1,71 @@
+# Un problema sin nombre
+
+**Mrs America y The Marvelous Mrs. Maisel reflejan, desde registros diferentes, la compleja relación de las mujeres conservadoras con el feminismo.**
+
+22 de marzo de 2021 - SERIES
+
+_por VERÓNICA BOIX_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4493-un-problema-sin-nombre
+
+
+
+No puedo pensar en dos personajes más opuestos, al menos en apariencia, que las protagonistas de las dos ficciones. A ver si me explico, The Marveluos Mrs. Maisel, empieza con Midge -interpretada por una vibrante Rachel Brosnahan, la prostituta de House of Cards-, un ama de casa judía que se casó con el hombre ideal, Joel, tienen dos hijos y llevan una vida privilegiada en el Nueva York de 1958. Los dos comparten el gusto por el stand up: Midge impulsa a Joel a subirse a un escenario. Le escribe las idea para los guiones de sus monólogos, lo alienta, y cuando fracasa lo reconforta. Atiende a sus hijos, cuida su casa, cocina y se pone el despertador para arreglarse y estar espléndida antes de que el resto se levante. Representa, sin duda, el aspiracional de las revistas de mujeres de la década del 50´. Lo liberador, pienso después de mirar hipnotizada sus vestidos, es que ella solo tenia que hacer lo que le mandaban. Seamos sinceras, aún hoy muchas hacemos dieta, nos maquillamos, hacemos todas las clases de cardio, yoga, pilates, insistimos sin quererlo con esa idea de la belleza hegemónica, pero al mismo tiempo, repudiamos ese molde rígido, luchamos por la igualdad de derechos, no queremos más ser objetivadas, ni valoradas por nuestra apariencia, lo esencial, decimos, es ser quiene realmente queremos ser. Qué difícil. En cambio, todo era más simple para Midge, o eso parecía. Una noche loca, su marido la engaña con una mujer más joven y la abandona. Ese es el pero que hace arrancar la metamorfosis: de ama de casa ideal, Midge se va convirtiendo, noche a noche, en una comediante deslumbrante de stand up. Al verse expulsada del paraíso imaginado para las mujeres, descubre que realmente hay un destino mejor. Un poco por casualidad, un poco por ese talento natural que tiene para el humor, empieza a ser comediante, habla de la vida doméstica, de su pareja, de sus padres y hasta de la sexualidad de las mujeres de esa época. Es desfachatada y muy inteligente. El público, igual que nosotros, cae rendido a sus encantos.
+
+
+
+
+Voy ahora a un escenario similar, pocos años más adelante, Estados Unidos en la década del 70. La historia de Mrs. America empieza con Phyllis Schlafly, un ama de casa de Illinois que es operadora política en las sombras, muy astuta, registra el desconcierto de las mujeres que la rodean frente al temor al cambio social. La primera temporada sigue las acciones que se hicieron para conseguir la ratificación de la Enmienda de Igualdad de Derechos -ERA- en los años 70. Cada capítulo toma el punto de vista de las mujeres más relevantes de los dos bandos, su intimidad y las tensiones internas. A la par, se ve el nacimiento de esa oposición ultra conservadora que parece perdurar hasta nuestros días con una vigencia espeluznante. Es cierto, la propuesta me resultaba interesante incluso antes de verla, solo que nunca imaginé que iba terminar la primera temporada llorando frente a la convención de feministas que se abren paso para conseguir muchas de las cosas que hoy damos por sentadas.
+
+
+
+
+Muy rápido odio a Schlafly, un personaje que Cate Blanchett vuelve cautivante en su contradicción. La que me perturba es que esta mujer realmente existió, la serie está basada en hechos reales. Schlafly encuentra en la lucha feminista su mayor enemigo, y se opone con una determinación macabra. Así y todo hubiera sido un error mostrarla como una mala total, ella es poderosa y reprimida; amorosa y abandónica; astuta hasta la nausea. Sus oponentes, las mujeres que lideran el movimiento feminista representan el bien, cada una habla de un tipo de libertad. Gloria Steiner, por ejemplo simboliza el ideal feminista: glamorosa y revolucionaria, bella e inteligente, soltera por elección y feliz, sorora, idealista, pero nunca ingenua. Sí, de tan perfecta se vuelve un poco inverosímil, como una superhéroe que batalla por lo que hoy se considera la corrección política. Entre ambos bandos, la trama se tensa con la lucha por los derechos individuales y el freno que pretendía ponerle la ultraderecha conservadora. Si el transcurso de la historia real no hubiera puesto a la derecha de Trump en el poder, daría algo de risa lo brutal del contraste. Ahora angustia.
+
+
+
+
+[![](https://img.youtube.com/vi/IFDrs1iuGmQ/0.jpg)](https://www.youtube.com/watch?v=IFDrs1iuGmQ)
+
+
+
+
+Voy a confesarlo: ya había visto en Mad Men este tipo de determinación en las mujeres de mediados de siglo XX, solo que el protagonista seguía siendo el seductor Don Drapper. Aún así, las tres mujeres centrales de la serie se llevaban lo más interesante del relato. Betty, la esposa reina de lo doméstico, y las dos compañeras de oficina, la pelirroja Joan que se vale de la belleza para hacerse un lugar entre los hombres, y Peggy que solo tiene talento e inteligencia y con eso entra al mundo masculino, digamos que para esa época estaba bastante desarmada. A través de la transformación de las tres la serie pone en escena el cambio paulatino y profundo que sufrió el rol de la mujer desde la década del 50 hasta los 70.
+
+
+
+
+Vuelvo a Schlafly, es lejos mucho más compleja, y no termino de comprenderla. Eso me gusta aún más. Vive como una mujer feminista, independiente, no se deja dominar por su marido, un poco es ella la fuerte de la pareja, toma las riendas de su vida y hace lo que más desea, construir poder. Al mismo tiempo, y por muy contradictorio que parezca, enarbola la bandera de los derechos, que ella llama, los privilegios de las mujeres: no ir a la guerra, dedicarse a la vida doméstica, no tener que salir a trabajar, ser mantenidas por sus maridos. Suena a comedia, solo que a medida que avanza el relato la serie ahonda en la tragedia de la desigualdad de género, no solo respecto de las mujeres, las razas, también con la sexualidad. Y va un poco más allá: pone en primer plano las trampas del poder.
+
+
+
+
+Si soy optimista, las feministas que luchan por la sanción de la enmienda muestran que la vileza no es la única manera de pararse en un mundo de hombres, recurren a estrategias propias, tratan de crear otro diálogo, encuentran, si soy optimista, una posibilidad más honesta. Dejan de lado los recursos históricamente asignados al género, la artimaña, el engaño, la belleza. Construyen una puerta propia para acceder al poder de decisión sobre los cuerpos y las identidades.
+
+
+
+
+Es evidente que el relato de Mrs. America los derechos feministas y la posición de la mujer son el núcleo del relato, pero en Maisel también lo son, aunque de un modo más lateral. Midge sigue siento una mujer no politizada explícitamente, conservadora que no se hace cargo de los privilegios que tiene. Su recorrido no abre paso a los derechos por la igualdad de género, ella solo procura hacerse un espacio personal a fuerza de las armas que usualmente se identificaron con lo femenino. El encanto y la belleza, por momentos, resultan molestos. Me gustaría verla reclamar lo que le corresponde, despeinarse, en lugar de correr desesperada porque tiene que preparar la cena familiar o cambiarse de ropa para ver a sus padres. Ni una queja se escucha de su parte, que sin embargo, es segregada como mujer, varias veces, porque los escenarios nocturnos y el humor eran cosas de hombres. Quizás su agente, la más ruda Susie, viene a compensar el duo. Soltera y frontal, va siempre vestida con pantalones, lleva el pelo corto y maneja el dinero. Le cuesta hablar de sentimientos, pero no plantarse y pelear por su espacio. Pienso que ella encarna todo lo que a las mujeres tuvieron negado durante décadas por ser “masculino”. En ese sentido, la dupla se vuelve un espejo que integra lo que la época dejaba en las sombras bajo el estereotipo de lo femenino.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/42574/67c709f4-07b6-4c3b-bc90-1ce96694abb4.jpeg)
+
+
+
+
+Midge también es una mujer conservadora que no se hace cargo de sus privilegios
+
+
+
+
+Hay una excepción, son los capítulos en los que se cruza con Shy Baldwin, un cantante de raza negra que muestra directamente el racismo, y al mismo tiempo, la homofobia de una sociedad que lo excluye. El ídolo de la canción, famoso y venerado, sigue siendo un cuerpo precarizado. El desconocimiento y la falta de cintura política de Midge quedan expuestos, ella pierde la mejor propuesta laboral de su vida. Ahí sí, su candidez, y en algún punto indiferencia frente a lo que sucede fuera de su mundito, la golpean con fuerza.
+
+
+
+
+Pensándolo de nuevo, a esta altura Midge y Phyllis podrían tener mucho más en común de lo que aparentan. En claves distintas, las dos mujeres se valen del lenguaje para abrirse paso en dos mundos hechos para hombres, la comedia y la política. Una desde el humor, la otra desde la retórica política. Así se apropian de los discursos, los giros y las estrategias de esos lenguajes para abrir a fuerza de palabras un lugar para construirse de nuevo.
+
+
+

@@ -1,0 +1,81 @@
+# El país de las últimas cosas
+
+**Hace 25 años Charly grabó el Unplugged de MTV en Miami. Mágico y climático, fue un show de una inusitada luminosidad en aquellos tiempos de la furia.**
+
+11 de marzo de 2021 - ANIVERSARIO
+
+_por WALTER LEZCANO_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4207-el-pais-de-las-ultimas-cosas
+
+
+
+El Charly García que se ve y se escucha en el Unplugged nace un tiempo antes con dos hechos precisos que tienen, como todo en la vida de Charly García, un perfil público y otro privado. Y ese fue un límite, la distancia entre lo público y lo privado, que siempre intentó derribar. Ya lo dijo en una nota: “Vida privada me suena a privación de vida. Me encanta vivir mi vida pública. ¿La intimidad? Cuando estoy cagando, en el baño.” Vamos a los hechos.
+
+
+
+
+Por un lado, lo público. El 17 de diciembre de 1993, luego de dar un recital en el Estadio Ferrocarril Oeste, García finalizó una etapa de su carrera. Fue el último estertor de su periodo, digamos, clásico. Como le declaró al periodista Sergio Marchi para el diario Clarín: “Es una despedida en sociedad de estas canciones que me representan. Para mí es un alivio, un halago y un orgullo.” Es así como, luego de unos pocos recitales más, desarma su backing band Los Enfermeros, arma una nueva agrupación y se concentra en su famosa y promocionada ópera rock La hija de la lágrima. Es el modo que encontró García de responderle a quienes querían darle la jubilación, calzarle el traje de clásico con giras aburridas cada tres años y repetición eterna de las misma canciones, luego de haber conquistado el repertorio cancionero más impresionante del rock argentino.
+
+
+
+
+Por otro lado, lo privado. El 5 de mayo 1994, Charly García se tiñó el pelo de rubio para homenajear a Kurt Cobain, que se había suicidado de un escopetazo el 5 de abril, y se fue al hall de teatro San Martin para adelantar algunos temas de La hija de la lágrima. Se trató de una suerte de happening de 40 minutos. Cuenta Fernando Samalea en su libro Qué es un long play (Sudamericana): “Fue una presentación antológica, para un millar de personas apretujadas y eufóricas, que dejó empañado cuanto vidrio o ventanal existiese en la locación. Un encantador desborde humano que tomó a chiste la pequeña valla, colocada a fin de separar al público de las tarimas a modo de escenario. García entró en calma, desde el fondo, tocando su guitarra amplificada por el diminuto Marshall agarrado al cinturón. Estrenamos algunos temas del nuevo disco, intercalados con requeridos clásicos. ¡Hasta “Botas locas” de Sui Generis! Cuando el vallado no dio para más, García dijo solemnemente por el micrófono: “Nos tenemos que ir porque abajo están decidiendo si Hamlet era calavera o doctor…”. Al día siguiente fue tapa del diario Clarín y se destacaba mucho su color de pelo. Y de esta manera, el pueblo argentino supo que empezaba una nueva –e inesperada- etapa en la carrera de Charly García.
+
+
+
+
+Roque Di Pietro, autor del exhaustivo y revelador Esta noche toca Charly (Gourmet Musical), es categórico: “Charly casi no sale vivo de La hija de la lágrima porque una vez que se publica tuvo su tercera internación que fue la peor y más dura que tuvo hasta ese momento.” Presentado durante 10 noches tensas e imprevisibles en el teatro Ópera, La hija de la lágrima le permitió a Charly desprenderse del formato “canción radial” (aunque tuvo dos hits en los rankings: La sal no sala y Chipi chipi) para entregarse a un territorio de libertad conceptual (tal como se puede escuchar en La biblia de Vox Dei, The Lamb Lies Down on Broadway de Genesis o Tommy de The Who) donde su energía estaba puesta en demostrar que aún podía romper sus propios límites estéticos. Y además poder reutilizar sus conocimientos de música clásica en la creación de una obra que trascienda la acumulación y se expanda hacia un nivel de entrega y autorreferencia total. Si antes Charly usaba la tercera persona (“Canción de Alicia en el país”, por ejemplo) como estrategia para filtrar, ahora se ubica en el corazón de sus canciones y se vuelve un protagonista absoluto (“Víctima”, por ejemplo) de esos temas.
+
+
+
+
+Samalea cuenta en su libro que Charly por entonces cada tanto en los lugares donde ensayaban usaba la expresión “Say No More” pero más como un latiguillo o frase comodín que recordaba al Paul McCartney de la película Help! que a la instauración de un nuevo estado de situación. Aunque también era la época en la que Prince había cambiado de nombre por un símbolo (también aparecía con la cara “marcada”) para luchar contra Warner, su discográfica. Es decir, Say No More como entidad todavía estaba verde y necesitaba un tiempo de maduración pero representaba algún tipo de evolución que se veía en otros lugares. Es en este sentido en el que se puede leer e interpretar el comportamiento peligroso y caótico de García de ese año donde todos los días pasaba algo distinto: desde festejar su cumpleaños en canal 13 hasta zapar hasta cualquier hora en The Roxy con Alejandro Medina y Fito Páez. Es en esta instancia de búsqueda y exploración de una idea que todavía no posee su forma definitiva que Charly graba junto a su nueva banda llamada Cassandra Lounge el disco de covers Estaba en llamas cuando me acosté: “There’s a place” de The Beatles, “Positively 4th street” de Bob Dylan, “Sympathy for the Devil” de The Rolling Stones, entre otros. Y son esas canciones que Charly amaba y escuchaba en su adolescencia y primera adultez. ¿Fue lo más lejos que pudo en su memoria como estrategia de análisis, compresión y recuperación de cierta esencia? En cualquier cosa hay algo cierto: se preparaba el terreno, mental y espiritual, para que exista algo así como un disco de Greatest Hits en la carrera del hombre que solo miraba hacia adelante.
+
+
+
+
+Charly estaba sin representante. Así que fue Fabián Zorrito Von Quintiero, que era la persona que tenía relación con la mesa chica de MTV (específicamente con Alex Pels, que a su vez era fan de Charly), quien llevó adelante las negociaciones para producir el primer Unlugged de un músico de Latinoamérica. Para cualquier artista hubiera sido un sueño consagratorio. Sin embargo, cuando Charly escuchó la propuesta y, sobre todo, el concepto (lo que vio le pareció muy de fogón) del programa su respuesta fue: “Eso ya lo hice con Sui Generis.” Finalmente decidió participar. Y empezaron las ideas y vueltas sobre el respeto hacia los lineamientos de lo acústico en MTV: no se enchufa nada, dijeron. Charly se resistió a esa idea, quería llevar aunque sea un teclado. Mientras sucedía esto se fue Fernando Lupano, el bajista de Cassandra Lounge, de la banda y el Zorrito iba a cubrir esas partes. En un momento el entramado se puso muy espeso y no llegaban a ponerse de acuerdo. Hasta que Von Quintiero (por intermedio de un amigo del Soul Café, su bar de entonces) consiguió un dúo de cuerdas, cello y viola a cargo de Erika y Ulises Di Salvo, y Charly decidió hacerlo. Lo que contó el Zorrito fue que cuando escucharon Yendo de la cama al living, la primera canción que ensayaron del repertorio, con el trío de cuerdas acoplado terminaron de convencerse que podían lograr algo importante en cuanto al sonido y usar el formato a su favor. A pesar de la seguridad de hacerlo, los ensayos se desarrollaron de manera compleja porque debían adaptar todo el material a un sistema acústico. Cuando todo estuvo a punto viajaron a Miami.
+
+
+
+
+Cuenta Fernando Samalea en su libro sobre los días previos a la grabación: “García, no muy interesado en permanecer en su habitación, prefirió mudarla al interior de una limusina. Se empecinó en no bajarse jamás y le dio uso prácticamente veinticuatro horas diarias. Tuvieron que asignarle tres choferes que cubrieron turnos de ocho horas cada uno. Allí se sentía como pez en el agua, provisto de equipo de música, minibar, cuadernos y un teclado amplificado. Circulaba interminablemente las calles soleadas de South Beach, sin rumbo determinado más que el constante andar.” La banda no quería pasar sus días en Miami arriba de una limusina blanca así que empezaron a escapar de Charly porque les resultaba muy fácil subir pero no sabían cuándo iban a poder bajarse realmente. Con un adelanto por parte de Sony de 40 mil dólares, García se estaba delirando todo el presupuesto antes de entrar a grabar.
+
+
+
+
+El 4 de mayo Charly, acompañado de la banda, llega con un libro (El tao de los líderes), una barbie y un teléfono en la mano al Post Edge Studio de MTV para la prueba de sonido. Adentro ya estaba Joey Blaney que estuvo controlando todos los equipos, cables y micrófonos para estar al tanto de que sonara bien. Como se hacía con público, se les indicó que no hicieran ruido porque los micrófonos tomaban todo. Charly fue más extremo: “Estamos grabando un disco. No griten “ídolo” porque me cagan la grabación.”
+
+
+
+
+[![](https://img.youtube.com/vi/x3uGVI8Jo7A/0.jpg)](https://www.youtube.com/watch?v=x3uGVI8Jo7A)
+
+
+
+
+Fueron 10 horas de tenso rodaje porque Charly no tuvo ninguna intención de hacérsela fácil a nadie. Desde olvidos de letras, hasta pedido de modificación de luces o utilizar un teclado a pilas que no se permitía por el formato, pasando por detener todo para ir al baño y demorarse más de media hora, entre otras situaciones.
+
+
+
+
+Una vez que la grabación finalizó, todos los músicos se volvieron al hotel Clevelander de Ocean Drive donde estaban parando. Estaban muy agotados por lo que acababan de vivir. Había sido una situación ardua y se había llegado a buen puerto. Pero Charly se instaló en el lobby del hotel y quería seguir e invitó a todos a que lo acompañaran a dar vueltas en la limusina. Algunos fueron, otros no salieron de la habitación. Samalea y el Zorrito escaparon por la ventana para ir a comerse una hamburguesa y volver a dormir.
+
+
+
+
+Mezclado en New York por el mismo Blaney, Hello! es uno de los álbumes en vivo de Charly, junto con el Adiós Sui Generis y 60 X 60, que menos intervenciones en postproducción tiene. Cuenta Roque Di Pietro: “El tema que tuvo más editings del disco es ´Rezo por vos´. Se hicieron dos tomas completas, una como segundo tema del setlist y otra al final del show. Lo que quedó en el audio es una mezcla de las dos. En ambas hace referencia a Spinetta: en la toma 1 mientras suena el riff Charly dice “Dedicado a Luis Alberto Spinetta” (que es lo que quedó en el programa y en el disco). En la toma 2 no dice eso al comienzo pero sí “Hola Luis”, luego del segundo "por esta soledad”. La toma en video en tanto es mayormente la toma dos (te das cuenta -entre otras cosas- por el pulóver que usa, notablemente más arrugado que en el tema 1) aunque tiene inserts medio desprolijos que no respetan la continuidad y por momentos se oye la voz de Charly pero no lo vemos cantando. Además hizo dos tomas del medley de Serú Girán y en ambas se equivocó la letra de Viernes 3 AM. Pero todo lo que se oye en el disco fue interpretado por García y la banda en el set de televisión.”
+
+
+
+
+El corpus de canciones de Hello! dejó afuera el repertorio de Sui Generis (ninguneado por el propio Charly hasta fines de los 90, que fue cuando volvió a tocarlo) y de La máquina de hacer pájaros (que resultaría imposible de ejecutar en vivo en ese momento y con Charly en estado de Constant Concept). De todas maneras es un recorrido que va de Serú Girán hasta La hija de la lágrima que, sobre todo, muestra la aventura de cómo un artista de formación musical académica con oído absoluto (un dato que descubrió Osvaldo Soriano) utiliza e interviene el rock y el pop nacional para elevar el nivel de la canción popular como género y ponerlo en un sitio de belleza inigualable.
+
+
+
+
+El programa tuvo buen rating y el disco (que fue muy exitoso y tuvo sus presentaciones en vivo) dejaron algunas cosas en claro: Charly estaba haciendo una tregua momentánea con su pasado. Fue como llamó Soda Stereo a una de sus giras: Una burbuja en el tiempo. Es por eso que los momentos donde más claramente se lo ve feliz es cuando toca su piano Baldwin, al que había vuelto luego de muchísimo tiempo de estar con teclados adelante. Y después alterna con la guitarra un estado de ansiedad perceptible. Por otro lado, también es posible verlo con la furia contenida porque ese Charly que estaba en pantalla no reflejaba totalmente al Charly de los recitales caóticos, erráticos e interminables que estaba dando en ese momento. Es así como Hello! –una bestia anfibia de varias cabezas- mira hacia atrás, observa algunas cosas del presente y luego se vuelve el momento de calma y reposo antes de la tormenta, de la furia, de la materialización del monstruo llamado Say No More.
+
+
+

@@ -1,0 +1,1 @@
+../../contenido-49541-joyas-y-binoculares.md

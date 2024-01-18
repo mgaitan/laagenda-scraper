@@ -1,0 +1,71 @@
+# Buscando a Vassa
+
+**Así se titula esta obra de Felicitas Kamien, una metaficción en la que el conflicto principal está dentro de otro mayor: quién será la protagonista.**
+
+19 de marzo de 2021 - TEATRO
+
+_por LETICIA FRENKEL_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/5019-buscando-a-vassa
+
+
+
+El conflicto dramático que desarrolla esta obra es el mismo que tuvo su directora durante varios meses: decidir qué actriz interpretará a Vassa Zheleznova, la protagonista de la obra. Cuando Felicitas Kamien fue convocada por Eva Halac para dirigir en el Teatro Regio este clásico de Máximo Gorki, la entusiasmó el desafío que implicaba para ella –dramaturga y directora de dos obras que la rompieron dentro del circuito off porteño– este salto a las “grandes ligas”. Pero enseguida la adrenalina y la euforia la paralizaron y entró en un laberinto que no la dejaba dormir por la noche. Consultó con colegas, hizo castings, hizo ta te ti, pero no se terminaba de decidir por ninguna actriz. Unos meses más tarde, el guión ya estaba terminado (en colaboración con Walter Jakob y Agustín Mendilaharzu), el resto del elenco resuelto, hasta tenía el vestuario y la escenografía definidos, pero todavía no sabía lo más importante: quién sería Vassa.
+
+
+
+
+Mientras ocurre todo esto, en la otra parte del planeta un tipo se come una sopa de murciélagos no muy cocidos (¿esto es así?, ¿o nos quedamos con ese viejo mito de origen?) y empieza el mayor conflicto del siglo XXI. En tiempos de pandemia, el teatro baja el telón y se convierte en una disciplina que por momentos parece una especie en extinción. Teatro y pandemia son categorías antagónicas; “teatro pandémico”…casi suena a oxímoron. Ante este panorama tan lúgubre, la euforia de Kamien se convierte en un estado incierto, de parálisis y hasta depresión. El tiempo pasa y los protocolos vigentes siguen sin permitir que los actores y actrices puedan compartir un escenario en vivo, ni siquiera para ensayar.
+
+
+
+
+Cuando el apagón se vuelve insostenible, al Complejo Teatral de Buenos Aires se le prende una lamparita: ¿por qué no hacemos un ciclo que combine un director de escena y un realizador audiovisual? A fines de septiembre de 2020 Jorge Telerman presentó en el hall del San Martín “Modos híbridos”, una propuesta compuesta por dieciocho producciones de teatro, música, títeres y ballet contemporáneo. Así, las obras teatrales que estaban proyectadas para la temporada 2020 se transformaron en un objeto audiovisual con la duración de un mediometraje, que se pueden ver en la página “Vivamos cultura” del Gobierno de la Ciudad. Entre otros, fueron convocados grandes talentos como Mariano Tenconi Blanco junto a la compañía Teatro Futuro, quien presentó el primer híbrido: “El barco”; luego vinieron “El regreso del disco de oro del Voyager 1” de la mano de Mariana Chaud; Vivi Tellas con “Muy bodas de sangre, un biodrama trágico” y Eva Halac con “Esto no está pasando”, una obra basada en Las manos de Sartre.
+
+
+
+
+A Felicitas Kamien, que seguía dándole vueltas a la protagonista, se le ocurre que para Modos Híbridos va a trabajar justamente sobre su propio conflicto: como una especie de casting encubierto, la obra trata de tres candidatas a Vassa Zheleznova –encarnadas por Stella Gallazi, Marta Haller y Maiamar Abrodos– que ensayan una y otra vez la misma escena en la sala Martín Coronado. Lo que vemos como espectadores, entonces, son tres registros actorales diferentes sobre el mismo personaje de Máximo Gorki, ensayando la escena más dramática de la obra. De esta manera, se produce un efecto de cajas chinas, porque el conflicto principal de la obra del dramaturgo ruso está dentro de un conflicto mayor que es la indecisión de Kamien acerca de quién ocupará el rol de la protagonista.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/45667/501f4f28-fa5f-4de8-bbe3-fbe5ed00e300.jpeg)
+
+
+
+
+La actriz Maiamar Abrodos y la directora Felicitas Kamien
+
+
+
+
+Vassa Zheleznova es una mujer avasallante que se hace cargo de los negocios familiares y de sus hijos inútiles cuando el padre es acusado por graves delitos. Ella los quiere proteger pero también los controla, los manipula. De a poco, su poder se debilita y el entramado familiar se desmorona. En la escena que recortó Kamien para este ciclo –la del clímax– su hija Ana (Anabella Bacigalupo) en complicidad con el resto del círculo familiar (Julián Cabrera, Victoria Cipriota, Javier Pedersoli) le roba la plata que tenía guardada en el living de su casa y la madre reacciona amenazando a sus hijos con matarse con un cuchillo. El tono en el que se desenvuelve la escena es, entonces, hiper melodramático.
+
+
+
+
+Familia, dinero, herencia, alcohol, robo, llanto, gritos, desmayos… Una típica escena de drama familiar burgués o de “drama moderno”, como se conoce a esta corriente artística que viene de finales del siglo XIX, de la mano de Ibsen y Strindberg, y de la que Máximo Gorki formó parte. En efecto, la obra fue escrita por primera vez en el año 1910 y luego la reescribió completamente en 1935, ya bajo el influjo del realismo socialista (movimiento que toma las bases del drama moderno pero para darlo vuelta). Con su omnipresencia, su carácter fuerte y orgulloso, que se impone sobre el deseo de los hijos, Vassa recuerda a otra madre emblemática del teatro de esa época: Anna Fierling, la “madre coraje” de Bertolt Brecht, esa mujer que busca sobrevivir como sea junto a sus hijos, comerciando con su carromato durante la Guerra de los Treinta años.
+
+
+
+
+Pero más allá de la potencia de la escena de Gorki –un dramón familiar que permite que las tres protagonistas desplieguen sus dotes actorales (descolla Maiamar Abrodos con su cuerpo voluminoso envuelto en un vestido de terciopelo rojo como un telón antiguo, sus labios carmesí y sus tacones blancos)–, lo más interesante es la propuesta metaficcional de Kamien: a lo largo de los 25 minutos, lo que vemos una y otra vez es cómo se va cocinando la obra, el constante vaivén entre el adentro y el afuera, la escena y el backstage, la realidad y la ficción. El espacio donde transcurre la escena es un living burgués armado con sillones de época, lámparas, escritorio y unas bibliotecas, pero también podemos ver los tachos de luz, los cables, las paredes descascaradas. Lo mismo ocurre con el vestuario: mientras Maiamar viste un tapado antiguo, “muy teatral”, uno de los hijos lleva un pilotito moderno que no se entiende si es parte del vestuario o ropa del mismo actor. Por último, es muy potente el contraste entre las actrices en escena y los pequeños momentos en los que las vemos caminando “de civil” hacia el teatro San Martín o preparándose para la escena (peluca, fijador en el pelo, vestuario).
+
+
+
+
+En este movimiento pendular entre el adentro y el afuera, lo mejor es lo que ocurre con la propia directora: vamos reconstruyendo el discurrir de los días y la sucesión de ensayos por su ropa que va cambiando, la escuchamos gritar con el barbijo puesto: “tiempo”, “seguí”, “no te vayas de acá, la angustia en el pecho”, o aparecer con un foco de luz para mejorar la escena. Y acá gana en mérito la dirección audiovisual de Pigu Gómez, que registra impecablemente estos momentos, como cuando pone la cámara muy cerca de la madre mientras Kamien les dice a los hijos que se vayan a discutir lejos, al fondo de la escena. Lo mismo sucede con el sonido: la organización en capas permite que, aun en el caos de los gritos, escuchemos en primer plano la voz de la madre, luego la de los hijos y más atrás la de Kamien dando indicaciones.
+
+
+
+
+Hace unos años, la obra Brecht de Walter Jakob y Agustín Mendilaharzu proponía otro juego metaficcional muy logrado, que se daba entre un grupo de actores y actrices que representaban en una parte del escenario una versión far west de El círculo de tiza caucasiano y, en la otra parte, se veían “las bambalinas”, en donde los actores salían de escena y discutían acaloradamente por problemas sindicales. Acá, las rarezas del contexto pandémico aportan un touch que Kamien aprovecha muy bien y que nos permite como espectadores acceder a una propuesta tan distinta, que acaso sin pandemia nunca hubiera ocurrido. En ese sentido, esta es una obra profundamente contemporánea, en términos formales y de contenido: una obra en donde aparece la propia directora, actrices y actores actuando sin público, con una cámara encima y barbijos y alcohol en gel en escena.
+
+
+
+
+Buscando a Vassa está disponible online en la página de Vivamos Cultura o haciendo clic aquí.
+
+
+

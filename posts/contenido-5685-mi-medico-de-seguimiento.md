@@ -1,0 +1,71 @@
+# Mi médico de seguimiento
+
+**Me sugirió que dibujara lo que era para mí el virus, o que buscara imágenes que lo representaran, algo donde poder resumir todo eso que sentía.**
+
+31 de mayo de 2021 - 
+
+_por la Fabbri_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/5685-mi-medico-de-seguimiento
+
+
+
+Nestor llamó por primera vez el segundo día del Covid. Hasta ese momento había recibido mi resultado positivo y no había logrado dar con ninguna palabra autorizada. Tuve Covid en el primer pico de esta segunda ola, esos días en que nadie se explicaba bien por qué los casos repuntaban tanto. Tuve Covid en uno de los peores momentos para tenerlo y no tenía mucha idea de que ese era uno de los peores momentos. Lo supe después. Qué bien que hace eso: no tener idea. Que algo escape del control. La fiebre me quitó el hambre y el tamaño del miedo no fue tan claro ese primer día porque solamente quería tener los ojos cerrados. Una médica con la que pude dar, después horas de intentos de videollamada con el sistema que me ofrecía mi cobertura médica, nos aconsejó a mi pareja y a mí que nos mantuviéramos aislados bajo el mismo techo. Que la enferma, en este caso yo, me encerrara en un cuarto a mirar televisión mientras el sano me traía las comidas a la puerta y me escribía mensajes de texto para preguntarme cómo estaba o si me había enterado de aquel choque en Panamericana. Mi primer día de Covid no me enteré de nada. Tenía la cabeza abrumada como dentro de una bombucha de agua y el virus tomaba formas bajo los superpoderes de la fiebre: tenía cara, miraba fijo, alrededor de los ojos tenía una bruma negra.
+
+
+
+
+A M., mi pareja, le empezaron los síntomas al día siguiente, entonces fuimos un coro de toses en un departamento de dos ambientes. Y ese mediodía de lunes llamó Néstor. Se presentó. Dijo que él sería mi médico de seguimiento y que podía contarle, paso por paso, cómo se venían manifestando los síntomas. Le hice caso. Algo de cumplir órdenes, en ese estado de piyama y terror, fue un consuelo. Néstor oyó atento y usó metáforas. Intentó traer calma con estadísticas y con una voz muy parecida a la de un Leonard Cohen sudaka o un Kevin Johansen del cuerpo médico. Me pregunté si ese hombre había cantado en alguna banda en su adolescencia, alguna vez, pero por supuesto no dije nada. Preguntarme esas cosas me dio la nota de que podía poner la cabeza en otra saga que me inventaba yo misma. Me di cuenta de que no me había perdido del todo, que todavía mi cabeza divagaba bien y eso podía ser una buena noticia. Néstor nos sugirió, a mi pareja y a mí, que nos tomáramos el oxígeno en sangre y le hicimos caso. Una amiga nos prestó un oxímetro y fue una pieza fundamental. Tomamos nota de esos numeritos en el cabezal del aparato. Variaban bastante pero siempre estaban dentro de los parámetros normales.
+
+
+
+
+Néstor llamó al día siguiente al mediodía. Dijo hola Camila, ¿cómo te sentís? Eso dijo. Y entonces, para todo este capítulo de la enfermedad más temida que tanto venía temiendo hacía un año, yo tenía un nombre. El médico hablaba tranquilo. Seguía armando metáforas con autos 0km que habían andado poco y con virus que desconocíamos, que el daño podía repararse, que no tenía por qué ser extremo. Hablaba de la situación en los hospitales públicos y en los privados. Me contaba de sus pacientes internados en terapia intensiva o intermedia. Me pedía disculpas porque estaba bajando del auto para ir a buscar a su hijo a la escuela y en esa caminata seguía intentando traerle calma a mi cabeza que se había convertido en un nido de monstruos irreconocibles.
+
+
+
+
+El quinto día de mi Covid apareció un síntoma desconocido y Néstor llamó en la hora adecuada. Hablamos largo y tendido. Quiso distraerme. Me habló de aquella paciente que tomaba medicación para sentirse menos sola, la usó como espejo para mi tristeza, y me sugirió que dibujara lo que era para mí el virus. Le agradecí, pero le dije que yo no sabía dibujar. Néstor me sugirió que, entonces, buscara imágenes que representaran el virus, algo donde poder resumir todo eso que sentía, ponerle un cuerpo y trazarlo en un principio y en un final. Ponerle bordes y dejarlo quieto en una hoja. Lloré en el teléfono con un desconocido que oficiaba de médico terapista en una de las mejores clínicas de la ciudad, pero también escuché su consejo como si me estuviera regalando una fortuna, una herencia familiar que jamás recibiría pero podría aparecer en cuotas en pequeños gestos de desconocidos. Le hice caso. Busqué la cara del Covid en un dibujo que había hecho mi pareja pero que a toda costa quería tirar a la basura porque decía que estaba mal hecho. Aseguraba que eso de entender los buenos y los malos trazos no era universal, que solo unos pocos podían. Me dio risa su modo de acotar las cosas. Para mí, ese dibujo que había hecho en algún momento de su vida y que ahora quería desechar, era el Covid.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/51499/6cc8ae99-f9bf-403c-85fe-ea79162f94f0.jpg)
+
+
+
+
+El sexto día Néstor llamó y me recetó un mucolítico para que yo volviera a tener la voz que tenía antes. Le conté que escribía y que probablemente todo este derrotero iría a parar a algún lado. Entonces Néstor me contó que él había sido un locutor amateur y ahí entendí el por qué del vozarrón que funcionaba como un depósito inmenso. Su voz parecía un lugar donde uno podía correr durante horas sin sentir ningún peligro. Dijo que eso de locutar no le había sido suficiente y entonces había decidido encerrarse con todas esas máquinas que intentaban mantener a esos cuerpos con vida. Seguí pensando en esa decisión y entonces me di cuenta de que me sentía mejor, que estaba creando un personaje en ese desconocido que me llamaba a diario y que eso era un signo muy mío, que eso era sinónimo de entusiasmo.
+
+
+
+
+Mi pareja y yo seguimos tomándonos el oxígeno en sangre hasta que Néstor me dio el alta. Fue una tarde patria, después de los locros, las escaparelas y los vinos pateros. Néstor llamó en un intercambio fugaz y dijo que lo peor ya había pasado. Que podía seguir con el puf para los bronquios, con el mucolítico y que empezara a caminar muy de a poco porque mi cuerpo había sufrido una batalla singular. Me preguntó también si le había encontrado una forma a mi virus y respondí que sí. Le mandé la foto del dibujo por Whatsapp. Me dijo que le parecía bastante atinado, que probablemente me la robaría o la tomaría prestada para otros pacientes. Estuvimos de acuerdo en ese intercambio.
+
+
+
+
+Los días siguientes, mi pareja y yo salimos a caminar despacio por la calle. Las luces naturales nos encandilaron lo suficiente. La gente se veía activa, con los pulmones limpios, con eso de correr y gritar ahí tan al alcance.
+
+
+
+
+Esos días fue extraño no recibir el llamado de Néstor. Ahora nadie me preguntaba cómo me sentía, qué tenía ganas de hacer y qué no, cómo seguiría mi jornada y tampoco me aseguraba que estaría para mí ante cualquier signo ajeno que apareciera. Les hablé a todos mis amigos y familiares sobre ese médico al que no le conocí la cara. Le rendí un homenaje silencioso. Pero algo sí me quedé, y eso era el dibujo. Esa forma extraña de hacer que el miedo se acortara: quitándole la insignia mundial, volviéndolo una caricatura íntima.
+
+
+
+
+\_\_\_
+
+
+
+
+CAMILA FABBRI
+
+
+
+
+Es dramaturga, actriz y escritora. Su primer libro de cuentos, Los accidentes, se publicó en 2015 bajo el sello Notanpuan y luego lo reeditó Emecé. Su segundo libro es “El día que apagaron la luz”, una novela de no ficción. En Twitter es @fabbri\_camila
+
+
+

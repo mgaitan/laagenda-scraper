@@ -1,0 +1,1 @@
+../../contenido-3132-fundido-a-blanco.md

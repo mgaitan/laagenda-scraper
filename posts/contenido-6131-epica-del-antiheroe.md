@@ -1,0 +1,66 @@
+# Épica del antihéroe
+
+**por SERGIO PUJOL**
+
+08 de julio de 2021 - Miradas
+
+_por _
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/6131-epica-del-antiheroe
+
+
+
+Ranking personal en cuatro ruedas. Primero fue Fangio, tan vívido en los relatos de mi abuelo italiano. De muy joven, recién llegado de Celano, su pueblo natal, Loreto había trabajado en una gomería y recordaba en primera persona la gesta del quíntuple campeón. En realidad, el tano no era muy tuerca - sí lo fue mi padre-, pero supongo que entre una modesta gomería de la ciudad de La Plata y los grandes circuitos europeos en los que deslumbró El Chueco había una conexión orgánica, de goma ardiente, tornillos sacados y recolocados en tiempo récord y almanaques voluptuosos. Por lo demás, salvo Mercedes, aquellas marcas que piloteó Fangio en competencias internacionales restituían el orgullo en el pecho itálico de aquel hombre que intentaba olvidar el escarnio de la Segunda Guerra Mundial.
+
+
+
+
+Luego vino Carlos Pairetti y su Trueno Naranja. El auto, creación del talentoso Horacio Steven, parecía salido de “Titanes en el Ring”. Pairetti también, un poco. Valeroso, loco (creo recordar que así lo llamaron los italianos cuando probó suerte en la Fórmula 3 Europea: “Il matto”), buen piloto en categorías de fronteras adentro. Un héroe modesto, quizá, pero entrañable: casi logra clasificar para Indianápolis. Lo tuve cerca: me senté una vez en el Trueno Naranja, no recuerdo bien en qué exhibición, cuando la pobre máquina ya no podía moverse por sus propios medios. Y finalmente Carlos Reutemann, mi última pasión automovilística, la más intensa. Ahora que el Lole ha muerto reaparecen algunos de sus admiradores. Nunca fuimos muchos. Puedo entender, en comparación con los héroes nacionales del deporte, que Lole no haya respondido al modelo homérico. No sólo por sus esquivos triunfos y su nunca obtenido - pero sí rozado- campeonato en alguna de las tantas temporadas que corrió: Reutemann era distante y parco, se notaba que le costaba la figuración. Prefería la soledad de la cabina de mando en ese momento de máxima concentración, el momento sublime de la largada (reflejo, puntería, cálculo), cuando la pista se vuelve un maelstrom de fierro y sonido y parece que todos chocarán contra todos, hasta que una línea de coches se despeja, marca el camino de curva, contracurva y recta, una y otra vez, y por un par de horas el autódromo deviene hipódromo futurista.
+
+
+
+
+Sí señores, fui fan de Carlos Reutemann cuando corría en Fórmula 1. Francamente, el automovilismo fue la única religión deportiva que profesé, más allá de alegrarme con ciertos goles y con las proezas de Guillermo Vilas. Discutí sin desfallecer con los triunfalistas que afirmaban que nadie recuerda a quienes salen segundo. Falso de toda falsedad: el automovilismo de alta competición recordará a Reutemann. Impresionaba su contención estratégica, el modo refinado con el que asediada al competidor que tenía adelante, su cara de piedra al ubicarse en la cabina de una máquina que, si algo salía demasiado bien o demasiado mal, podía llevarlo a la gloria o a la muerte. Un as sin corona. Sin un plus de suerte, quizá. Para una sociedad exitista que sube o baja el pulgar con demasiada facilidad, Lole fue una incomodidad.
+
+
+
+
+[![](https://img.youtube.com/vi/59oWoDCzacw/0.jpg)](https://www.youtube.com/watch?v=59oWoDCzacw)
+
+
+
+
+Debutó en el Gran Premio de Argentina de 1972, carrera que ganó el fantástico Jackie Stewart y Lole – pocos lo conocían fuera del país – había arrasado en la pole position (era un gran tester, dicho esto sin sarcasmo) y luego tuvo un digno desempeño. El 30 de marzo de 1974 ganó en Kyalami, Sudáfrica; aquella tarde volvió a sonar el Himno Nacional Argentino en una competencia de Fórmula Uno por primera vez desde el último triunfo de Fangio en Nürburging en el 57. Piloteó para las mejores escuderías de su tiempo: Brabham, Ferrari, Lotus y Williams. Fue tercero en tres campeonatos: 1975, 1978 y 1980. Gozó de 12 triunfos (Fangio de 24, con cinco títulos), dando cátedra de manejo en circuitos complicados, como Mónaco, Nürburgring o Long Beach (A propósito, que buena manera de aprender geografía que tuvimos los adolescentes de entonces).
+
+
+
+
+Fue coetáneo – y en algunos casos compañero - de genios del volante como Niki Lauda, Emerson Fittipaldi, Denny Hulme y varios más. Fue disciplinado y buen compañero en las escuderías para las que compitió. Sólo una vez desobedeció las órdenes de boxes del equipo Williams y no dejó que el australiano Alan Jones le arrebatara el Gran Premio de Brasil. Inolvidable. Carrera bajo la lluvia. Tras 50 vueltas, Lole le lleva 5 segundos a Jones, pero debe respetar los planes de la empresa. El cartel dice “Jones/Reutemann”: hay que invertir el orden antes de llegar a la meta. Pero de pronto la distancia empieza a estirarse cada vez más y el argentino volverá a ser ovacionado en Rio, como aquella vez que había ganado una carrera que no daba puntos. (Pocas veces en mi vida festejé tanto un acto de rebeldía no política). Ese fue Reutemann al volante. Como no he seguido el desarrollo de la fórmula Uno desde que en 1981 Lole obtuvo el Subcampeonato – a sólo un punto de Nelson Piquet -, no tengo elementos de prueba para afirmar que aquellos pilotos eran mejores que los que llegaron después – sospecho que no: Schumacher fue un demonio, eso lo sé -, pero sí puedo decir que Reutemann fue un grande en su tiempo.
+
+
+
+
+Seguir las carreras en los años 70 suponía una serie de pasos ceremoniales imprescindibles. Todo empezaba los días previos, cuando se hacían las pruebas y buscábamos noticias de cómo venía la mano (sobre todo, cómo venía la largada, desde qué puesto tendría que remontar Lole en pendiente de Sísifo) para el gran día. Esta información nos venía de la radio. Así como las voces de José María Muñoz o Víctor Hugo son parte indeclinable del historial del fútbol, las de Carlos Alberto Legnani o Juan Carlos Loiseau lo han sido del mundo de las carreras de auto. El esperado domingo empezaba muy temprano si había televisación. Y si no la había, también. Al atardecer había que comprar la 5° de La Razón (o la 6°, mejor) para guardar la página con los resultados de la carrera y empezar a hacer especulaciones hasta la carrera siguiente, mientras un coro de mezquinos famas criticaban por absurdos y locos sueltos a los tipos que arriesgan la vida manejando un auto a muy alta velocidad. Por supuesto, todo tuerca que se preciara de tal debía pisar el autódromo “Oscar y Juan Gálvez”. Era el rito de pasaje imprescindible.
+
+
+
+
+Allí estuve aquella mañana de enero de 1974 en la que Lole se quedó sin nafta faltando apenas una vuelta para el triunfo. Fui con mi padre y mi amigo del alma Claudio Cogo. Llegamos mientras los coches probaban sus motores (Ese sonido rugoso de los rebajes in crescendo a medida que nos acercábamos a la pista me produjo una impresión de calidad similar a la que me deparó, digamos, el lado B de Abbey Road la primera vez que lo escuché). Vimos la carrera con media radio en la oreja, para saber aquello que estaba fuera de nuestro campo visual (En esa época no existía la burda pretensión de querer verlo todo). Quizá por eso aquellas imágenes son para mí inolvidables. Selectas, en algún punto. Todo vuelve mientras escribo. Ahí lo veo a Perón a metros del palco; me cuenta mi padre, que no era peronista, que fue en el gobierno del general que empezó a correrse Fórmula Uno en la Argentina (¿Cómo? ¿No era que estábamos cerrados al mundo?). A su lado están Isabelita y López Rega. Lole corre y corre en su Brabham BT44 como Mercurio, como Savitar, como Hermes. Luego lo vemos quedarse ahí, tan cerca y tan lejos al mismo tiempo. Lole sube al palco y es abrazado por Perón, que lo felicita y le regala lo único que encuentra en los bolsillos de su saco: una lapicera. Isabelita lo toma del brazo. Entonces Lole sonríe como su hubiera ganado. ¿Qué pasa por la cabeza de este hombre? ¿Qué siente en este momento? Nadie lo sabe ni lo sabrá jamás. Regresamos a La Plata en absoluto silencio. Estamos molidos. Ver una carrera de autos es casi tan cansador como correrla. Una verdadera excursión, esta vez con final amargo. No me atrevo a preguntarle al ingeniero Pujol si tenemos nafta suficiente para llegar a casa. Sólo a mitad de camino mi padre, que es de tan pocas palabras como Lole, exclama, para sí, casi pudoroso: “Qué lo parió…”
+
+
+
+
+\_\_\_
+
+
+
+
+SERGIO PUJOL
+
+
+
+
+Sergio Pujol es historiador y escritor. Su libro más reciente es El año de Artaud. Rock y política en 1973 (Planeta, 2019)
+
+
+

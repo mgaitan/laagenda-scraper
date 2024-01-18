@@ -1,0 +1,91 @@
+# La prueba de la pérdida
+
+**En Los Llanos (Federico Falco), el rechazo de la persona amada es insoportable y el dolor que provoca escapa al lenguaje. El miedo a ese rechazo encierra.**
+
+29 de diciembre de 2020 -  MESA DE LUZ
+
+_por OSVALDO AGUIRRE _
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/3544-la-prueba-de-la-perdida
+
+
+
+Los Llanos, Federico Falco (Anagrama) 2020
+
+
+
+
+Juan L. Ortiz cuenta en una entrevista que decidió vivir en la provincia para pasar lo que Antonio Machado llamó “prueba de soledad en el paisaje”. Si en la ciudad es importante someter lo que se escribe a la opinión de los colegas, dice, “la contrastación solamente con las cosas que no responden, quizá sea determinante o más profunda en otro sentido”. Un árbol, una piedra, un sembrado no pueden decir si es correcto lo que uno hace o escribe; pero hay que estar sin compañía y escuchar “esa resonancia que no sé si imaginativamente las cosas tienen en el mismo mundo que las rodea”.
+
+
+
+
+Los llanos parece el relato de una prueba en el sentido de Ortiz desde que el protagonista “deja la letras y deja la ciudad”, como dice también el poeta entrerriano. Con otras determinaciones: se trata de una mudanza al campo como consecuencia de una ruptura amorosa y en medio de una crisis en la que resulta imposible escribir. Hay una situación de duelo, una pérdida que vacía de sentido al mundo.
+
+
+
+
+Podría decirse que Los llanos es una novela porque salió finalista en el Premio Herralde que se convoca en ese género. Pero más bien una novela extraña, por su impronta autobiográfica, por su recusación de la idea convencional de “contar una historia” y por la forma de narración, que sigue no tanto el tiempo del calendario (pese a que sus partes están nombradas con meses del año) sino los ciclos de la naturaleza, como que el recomienzo que se busca sucede en septiembre. Y es también un libro que introduce una ruptura en relación a la obra previa de Falco, aunque puedan señalarse continuidades en la escritura y en los núcleos temáticos, como la vida en los pueblos de provincia y la tensión entre los personajes y las comunidades en las que se encuentran.
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/36143/50d6b666-5240-44b0-9f72-13d07ea4c499.jpg)
+
+
+
+
+La mudanza es también una especie de regreso a un ambiente conocido: Falco cuenta que en la infancia pasaba los fines de semana con sus abuelos, que vivían en el campo. Apenas trasponían los límites del pueblo natal, en la provincia de Córdoba, lo deslumbraba el espectáculo de la llanura; y en el camino, si se aburría, la abuela le contaba historias graciosas de familiares y gente conocida.
+
+
+
+
+El paisaje que tiene ahora ante la vista es parecido, un paisaje uniforme y vacío. Para nada bucólico, un poco inquietante y exigente. En la llanura no hay nada para mirar más que el horizonte, la tierra y el cielo. Pero en el recuerdo andar a campo traviesa era “una forma de estar y ser en uno mismo”, “un espacio donde me podía encontrar a mí mismo”. Lo contrario del aire viciado del pueblo, un ámbito cerrado donde el comentario y los relatos de los vecinos congelaban a las personas en un retrato: el deseo de escapar del pueblo fue, apenas llegada la juventud, la necesidad de romper con una versión de sí mismo que para el protagonista resulta ajena y opresora.
+
+
+
+
+Las citas de textos poéticos que atraviesan Los llanos dan cuenta de una interrogación sostenida sobre el paisaje y sobre lo que puede hacer el lenguaje en su representación. La mudanza es también un trasplante, en el sentido de que el protagonista pasa de quedarse sin casa a buscar un refugio duradero. El espacio del llano no es precisamente hospitalario, más bien connota la intemperie, pero hay un arraigo posible y es el que el protagonista encuentra en la forma en que nombra al paisaje, en que eso desconocido se vuelve propio por las palabras con que lo describe y con las que traza un camino, en principio el que lo lleva del campo a Zapiola, el pueblo donde se provee de lo necesario para la subsistencia.
+
+
+
+
+El paisaje propio está entonces en las palabras que lo construyen a través de la memoria y de la escritura: las palabras en piamontés que usaban los abuelos, las expresiones íntimas para reconocer un lugar, las anotaciones encontradas en una vieja libreta, los comentarios a propósito de fotografías conservadas dentro de una caja, en el estante más alto de un placar.
+
+
+
+
+Elaborar un duelo es una frase hecha; se entiende que alude a un tiempo de duración variable en el que uno termina por habituarse a la ausencia de una persona querida, a un proceso en el que la voluntad puede poco y se requiere de la resignación, o del olvido. Falco aborda la experiencia de otra manera: el problema que se plantea es cómo contar y explicarse una pérdida amorosa para la cual no hay una narrativa, que persiste como un escollo insuperable porque parece inaccesible a las palabras.
+
+
+
+
+Una separación tiene un efecto retroactivo que carga de incertidumbres y de preguntas lo que transcurrió bajo una apariencia apacible. En Los llanos, la ruptura fue inesperada, un corte repentino que dejó al narrador descolocado y sin respuestas; Ciro, su pareja, tomó la decisión y el diálogo se vuelve imposible no porque él se mantenga en silencio sino, al contrario, porque sigue su vida con normalidad y le dice que haga lo mismo, que busque la manera de entretenerse.
+
+
+
+
+En medio del campo, el protagonista de Los llanos cultiva una huerta. No lo toma como un entretenimiento porque ese trabajo lo remonta al que hacía los fines de semana con sus abuelos. Y además, con sus alternativas y contratiempos, lo hace pensar en la escritura, por oposición pero también por semejanza: en uno y otro caso, el control que se tiene sobre lo que hace y sobre sus resultados es bastante relativo.
+
+
+
+
+Falco cuenta que no puede escribir. Los textos en proceso, los apuntes, los cuadernos, son restos de otra vida. No encuentra el tono, no da con la voz del narrador. La imposibilidad es tan grande que vuelve sobre sus comienzos, cuando estudiaba en la facultad y todavía no era un escritor. Entonces como ahora no se sentía preparado: “necesito rearmarme”, dice, en el sentido de recomponer lo que se desmoronó y al mismo tiempo de cargarse de nuevos recursos. “La gran energía que requiere la escritura es la de ordenar, la de contar el cuento, la de darle un orden y una estructura, encontrarle un sentido”, dice. Pero ese mundo armónico y la sensación de dominio que otorga, sugiere a continuación, pueden ser un espejismo y una trampa para el propio escritor, preso del temor al rechazo de los lectores.
+
+
+
+
+En ese punto transcurre quizás la prueba de la soledad. Las cosas del llano, observa Falco, no significan algo necesariamente; no tienen una causa ni una finalidad; no se ordenan en una historia. Las cosas del llano son, y punto. Y a partir de ese momento puede volver a sentarse a su escritorio, abrir un cuaderno, no para retomar lo interrumpido sino para escribir de una manera nueva: “Poner una palabra detrás de otra solo como una manera de estar. Contarse una historia para tratar de estar en paz”.
+
+
+
+
+Pero esta prueba de la soledad es sobre todo una prueba de la pérdida. El rechazo de la persona amada es insoportable y el dolor que provoca, señala Falco, escapa al lenguaje. El miedo a ese rechazo, agrega en el mismo pasaje de la novela, uno de los muchos pasajes deslumbrantes que contiene, paraliza y encierra, del mismo que al escribir se puede quedar capturado por el fantasma de contar bien el cuento y no resultar aburrido. “Ese es siempre el único miedo: al rechazo. De mi padre, de mi familia, de mi pueblo”, dice, y “por miedo al rechazo no poder ser libre”. En ese punto donde el duelo y la escritura se resuelven a la vez, el protagonista de Los llanos retoma la línea interrumpida en el relato de la propia vida.
+
+
+
+
+Emily Dickinson escribió que “las mejores ganancias deben pasar por la prueba de la pérdida”. Y de ahí viene este libro extraordinario.
+
+
+

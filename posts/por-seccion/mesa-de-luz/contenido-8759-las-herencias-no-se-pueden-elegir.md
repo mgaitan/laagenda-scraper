@@ -1,0 +1,1 @@
+../../contenido-8759-las-herencias-no-se-pueden-elegir.md

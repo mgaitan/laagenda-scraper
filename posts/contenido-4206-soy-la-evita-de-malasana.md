@@ -1,0 +1,196 @@
+# Soy la Evita de Malasaña
+
+**Andrew Cuomo habla de su papá en la crisis del 29 y sé que este país, en tantos sentidos admirable, está hundido, tiene sus brazos rotos como los míos.**
+
+11 de marzo de 2021 - DIARIO DE LA PANDEMIA
+
+_por RAFAEL GUMUCIO, DENISE TEMPONE, MANUEL SORIANO, MARTÍN ZARIELLO, PABLO PERANTUONO Y TAMARA TENENBAUM_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4206-soy-la-evita-de-malasana
+
+
+
+Las negociaciones que todos emprendemos con nuestros cuerpos se han complicado a la misma velocidad e ineficiencia que la que hemos emprendido mi mujer y yo con el seguro de viaje que no quiere cubrir la operación, que costaría, según lo babilónicos cálculos de la salud estadounidense, más de 90 mil dólares.He vuelto. Tengo una mano más o menos decente y otra que me operarán mañana. Un dolor perpetuo lleva acompañándome desde hace dos semanas. Tuve que pagar una sola vez 600 dólares por una radiografía. Me da la impresión de que algo de esto tiene que ver con la resignada y desastrosa respuesta a la infección que estados unidos intenta. Una medicina que ha perdido sentido de la realidad de los costos y se ha vuelto por eso mismo extremadamente burocrática (creo que nunca he repetido mi nombre y fecha de nacimiento más veces en mi vida), no debe ayudar en la mitigación del virus. Debo confesar que ya no pienso en el virus. Mi concentración está en como volver a escribir al ritmo que escribía (la escritura es para mi un problema esencial de ritmo) y lavarme el trasero solo y conseguir la independencia digestiva. Todo hombre es una isla, pero yo ya no lo soy. Pendo y dependo de tantas cosas pequeña y enormes a la vez. Vivo en otro idioma, en hospitales tan aterrados como yo que me miden la temperatura a cada paso. Quiero llorar todos los días. Lloro. ¿Por qué la bicicleta? ¿Por que esa tarde de sol? Tan lejos. Tan lejos. Y mientras espero los rayos a 600 dólares cada uno, Andrew Cuomo habla de su papá en la crisis del 29 y sé que este país en tantos sentidos admirable, está hundido, sus brazos rotos como los míos esperando un tratamiento que no puede pagar. La primavera no llega nunca. Escucho viejos programas de Radio France. No leo casi nada. Todos me dicen que es una novela demasiado buena. Demasiado buena para mí. Mañana el doctor Moore, un sureño que habla algunas palabras de español pero el resto del tiempo habla en monocorde acento de Memphis, me opera la mano izquierda. No sabia cuánto la usaba, la necesitaba. Esto aprendí de este horror cuanto necesitaba de tantos, de todos, incluido ese extraño extranjero que soy.
+
+
+
+
+Rafael Gumucio (East Hampton, NY)
+
+
+
+
+\*
+
+
+
+
+Hola Rafael, un abrazo, te estábamos esperando.
+
+
+
+
+Yo iba a arrancar con un chiste (“¿Si estoy tomando mucho? Me dicen asistencia perfecta: vino el lunes, vino el martes, vino el miércoles…”), pero este diario, engalanado de grandes firmas y de reflexiones profundas, que ya tiene promesa de libro y, por ende, es probable que se convierta en un documento histórico de esta realidad que adquirió estatura de hito, no merece ser vulgarizado ni mancillado por un comentario tan superficial. Sí voy a decir que en estas poco más de seis semanas de purgatorio mi cerebro y mi espíritu, que difícilmente se asocian para la aventura, persiguieron y compartieron un solo objetivo: a las 7 de la tarde de cada día, a la hora en que las sombras se apoderan de la cocina y de la cuadra, cuando los pájaros retornan a sus árboles y la civilización recoge las redes de su pesca diaria, con la misma patriótica convicción con la que el vecino de enfrente sube el volumen del noticiero de TN, me dispongo a destapar un Cabernet. Cuando lo hago, cuando consigo extirpar el corcho y escucho, al instante, ese breve pero glorioso sonido ligeramente parecido al oboe, algo me indica que ya alcancé una pequeña victoria. Pocas veces me sucede que una ceremonia repetitiva, casi mecánica, que guarda poco espacio para la sorpresa (lo contrario del humor, que necesita de lo inesperado), me genera tanta satisfacción. Cuando los taninos, finalmente, comienzan a circular por el organismo, su avance va despertando micro reacciones a su paso, liberando, en su trayectoria descendente, una cabalgata de sensaciones heterogéneas, casi todas vinculadas a la tranquilidad, la fe en la naturaleza o la sensualidad. No es cierto, descubro cada atardecer, que el deseo no pueda disciplinarse. En todo caso, hoy, a falta de otros estímulos que pudieran dotar de sentido o de fascinación la existencia, ese pequeño rito mundano -“bárbaro” según Alessandro Baricco- me permite reafirmar la belleza del universo, la necesidad, en este tiempo de incertidumbre, de aferrarnos a una experiencia conocida que, a la vez, nos mitiga el dolor, nos libra de la estupidez humana o nos distrae por un rato de la muerte. La pequeña poesía de la vida de la que habla Rita Segato.
+
+
+
+
+Para terminar, un pensamiento disparado por ver películas viejas. Del listado de cosas por las que vale la pena estar vivo que enumera Woody Allen en Manhattan, todas, absolutamente todas, se pueden disfrutar en cuarentena, incluido el rostro de Tracy (Mariel Hemingway). Manos a la obra.
+
+
+
+
+PD: Vi La Flor, la película de 14 horas de Mariano Llinás. Me viene a la memoria un episodio de la diplomacia. Con motivo de la visita de Richard Nixon a China en 1972, le preguntaron al líder chino Zhou Enlai qué opinaba de la Revolución Francesa. Tras un enigmático silencio, la respuesta de Zhou fue: “Es demasiado pronto para opinar”.
+
+
+
+
+Pablo Perantuono, (Castelar, Buenos Aires)
+
+
+
+
+\*
+
+
+
+
+Creo que hubo algún tipo de acuerdo implícito por el cual, justo a la hora que dice Pablo, todas las personas que conozco, yo incluido, empezamos a abrir botellas de vinos, tal vez con la esperanza de lo imprevisible en medio de la monotonía. Imagino una sinfonía de corchos destapados por personas solas, desde distintos lugares (departamentos, balcones, patios) como imagen icónica de una publicidad post pandemia cuyo lema podría ser: “Vieja Rambla Bristol, el vino que te acompaña cuando más lo necesitás”.
+
+
+
+
+¿Saldremos mejor después de la pandemia?, fue la pregunta del momento que, creo, ya casi nadie se hace para eludir la respuesta decepcionante. No sé si mejores, quizás alcohólicos. Ahora bien, tengo la sensación de que el vino, a diferencia del whisky, es una bebida para tomar en compañía, no se adapta tan bien a la soledad. Así que en mi caso, es decir, alguien a quien la cuarentena, mientras ríe a carcajadas, sorprende viviendo solo, tomar vino es una actividad que puede terminar en un crescendo de nostalgia, tal vez necesario, ahora que lo pienso, lo admito, teniendo en cuenta mi tendencia a maquillar de cinismo cualquier situación. Cuando empezó la cuarentena tomaba cerveza, lo que significa que el confinamiento está durando lo suficiente como para pasar de la remera al suéter. Yendo de la cama al living, y yendo de la remera al suéter, ¿sientes el encierro?
+
+
+
+
+Ayer vi un poco el programa de Claudio María Domínguez, lo que indica que mi cuarentena ingresó en un terreno algo incierto. Lo dejé porque comentaba La naranja mecánica, película que, según contó, vio en 1971 a los once años, colándose en un cine de Uruguay. Según Domínguez los drugos terminan recibiendo “kármikamente” lo que generaron pero el sistema que los “cura” también está enfermo. Después una espectadora le preguntó cómo hacer para que su marido dejara de ser malhumorado. Domínguez le recomendó atarlo a una silla, como a Malcolm McDowell en la rehabilitación, y obligarlo a ver su programa.
+
+
+
+
+Martín Zariello (Mar del Plata)
+
+
+
+
+\*
+
+
+
+
+Mis vecinos me gritan Evita por la calle. Yo les tiro besos y les digo “Adiós compañeros”. Todo comenzó cuando, desde el Instagram de Malasaña, los vecinos convocaron espectáculos y actividades que se pudieran hacer desde el balcón (porque claro, por la calle no se puede andar) durante las fiestas del barrio, que empezaban el 30 de abril y duraban hasta hoy, 3 de mayo. Yo les dije que podía vestirme de Evita, salir al balcón y cantar Don´t Cry for me Argentina. Les gustó la idea y me asignaron un horario y un día: el viernes 1 de mayo, el día del trabajador. Psicomagia. Así que el viernes salí con mi vestido entallado, un sombrero con tul y un rodete. No solo canté Don´t cry for me Argentina sino también llamé a los trabajadores del barrio (“aunque ahora nadie tenga trabajo”, agregué), a luchar por sus derechos. En un ataque de sindicalismo, defendí los ERTE (los seguros de desempleo que está cobrando media España) y grité “Erte es seguridad social”. Me ovacionaron. Y ahora ya quedó, soy Evita de Malasaña.
+
+
+
+
+El sábado fue un día eufórico. El primer día permitido para salir a pasear una hora coincidió con el Día de Madrid. Los aplausos a favor de la sanidad pública fueron a las 20, la hora permitida para comenzar el paseo, que puede hacerse hasta las 23. 20.05 la calle era un hormiguero. Todo el mundo se paseaba de aquí para allá. Mis amigas esperaban para irse al parque a correr y yo no podía entenderlo. ¿Cómo no quieren sentir el pulso de la ciudad? Mezclarse entre la gente, escuchar sus comentarios, sentir esa alegría. Yo sólo quería salir a hacer Instastories (mis pequeños vómitos periodísticos), capturar la atmósfera y ver a mis amigos. En teoría no se podía estar con amigos pero, hola, estoy conociendo la cara pícara de España. La cara de “¿realmente tu esperas que io no vea a mis amigos después de 50 días sin eios?”. Ví esa misma cara cuando decidieron llevarse puestos ciertos precintos de sectores del parque que estaban cerrados, especialmente los precintos que vedaban el paso a miradores del atardecer en la zona oeste de la ciudad. Esta gente tiene hambre de amistad, de cielos rosas y de calle. No eran vivos transgrediendo adolescentemente, eran adultos escuchado su instinto. Siempre me alegro cuando veo este tipo de transgresiones. Siento el alivio de comprobar que no es tan fácil dejar al mundo sin puestas de sol, sin céspedes fresquitos, sin paseitos con amigos. Me hubiera deprimido profundamente ver un ejército de autómatas especulando con distancias y actuando indiferente ante este cacho de cielos primaverales. Los balcones estallaban de música y gente saludando, con pelucas, travestidos, arrojando claveles, la flor de Madrid. Es un alivio haber visto a Madrid ponerse serie cuando tenía que estar seria, pero bueno, ia es suficiente, cariño. “Que ver a la gente te da la vida”, dijo alguien por la calle.
+
+
+
+
+Yo quería caminar y caminar pero todos los amigos que me cruzaban me decían “pero vamos para tu casa que quiero ver tu calle” y al final me la pasé girando por los mismos pasajes que tomo para ir al supermercado. Sucede que mi calle, la Calle del Tesoro, se volvió bastante popular durante el confinamiento por un jueguito que era una joda y quedó: el de revolearnos guirnaldas y banderines entre vecinos para enganchar de balcón a balcón. Ahora todo el barrio tiene un aire a cocoliche maravilloso que luce aún más mágico cuando se van agregando guirnaldas inesperadas, hechas con tangas, con retazos de sabanas viejas o lucecitas. Este juego y todo lo que pasó con él hizo que los vecinos nos empezaramos a conocer más profundamente. Ahora la calle tiene su propia Instagram: @tesoros\_de\_la\_calle\_tesoro, en el que centralizamos las ocurrencias de Tesoro Norte, Centro y Sur (porque solo tiene una extensión de tres manzanas).
+
+
+
+
+Si hay algo que aprendí de Madrid es que las cosas no tienen que ser grandes para ser enormes. Tres, cuatro calles y un puñado de vecinos pueden crear un mundo. Y cuando eso sucede en cada cuadra (y me consta que aquí sucede en muchas), el resultado es un ciudad menos agresiva que todas las otras que conozco. Madrid sigue siendo calma, alegre y segura. ¿Volveremos en 15 días al confinamiento como resultado de esta nueva libertad? ¿Se despertarán otra vez los contagios y las muertes? En la calle todos están convencidos de que no. Y nadie le tiene miedo a nadie. El viejo Madrid está ahí afuera vivito y coleando como un amigo que se dió un flor de porrazo pero zafó.
+
+
+
+
+Finalmente pude tocar a los bulldogs de enfrente, con los que hablo durante horas, cada día, desde el balcón. Ralph y Bruce me reconocieron la voz y me saltaron. También me dejaron apretarles los mofletes. “Para ellos ya eres familia” dijo Jaume, su dueño. No sé si es verdad pero me gusta creer que sí.
+
+
+
+
+Le mando un abrazo a Rafael. Fuerza.
+
+
+
+
+Denise Tempone (Madrid)
+
+
+
+
+\*
+
+
+
+
+Por las noches le leo a mi hija y ella me lee a mí. No es tan ejemplar como parece. Tiene ocho años y dice que no se puede dormir sin un murmullo de fondo. Ella lee primero, estamos terminando el primero de Harry Potter. Me acuesto en el piso con un peluche de almohada. Me gusta escuchar su voz y comprobar que sabe el sonido de cada palabra. Después de un par de páginas me dice que me toca a mí.
+
+
+
+
+Tenés que dejar de decir “covid” cada vez que alguien tose, le digo. Ayer hicimos un asado en el fondo y vino mi vecina con sus perros a colgar la ropa. La señora tosió y mi hija dijo “covid”. Y hace lo mismo cuando me escucha toser a mí, o a mi novia, o a la gente por la calle (vivimos en una planta baja), o cuando habla con las abuelas por video-llamada. Dice que tiene el poder de detectar el covid, y que entonces es su deber usarlo. Dice que ella no tiene covid, la vecina y sus perros sí, y yo solo un poco. En serio, tenés que dejar de decir covid, le digo en un tono de reto que ni yo me creo.
+
+
+
+
+Cuando me toca a mí, le leo lo que sea que esté leyendo en ese momento. Ahora es “Ciencias ocultas”, de Mike Wilson. Se la presento como la novela más aburrida del mundo, y entonces ella gira y cierra los ojos y se pone en actitud de dormir. Leo a Wilson en voz alta. No le había podido entrar a este libro hasta que lo empecé a leer de esta manera. No me interesan sus intrigas pero cada cosa que describe tiene una precisión asombrosa, y yo puedo reproducir esa maravilla con mi voz en el medio de la noche. Mi hija ya se durmió pero sigo leyendo un buen rato.
+
+
+
+
+¿Qué le quedará a mi hija de todo esto que le leo entresueños? Me pregunto si no le estoy depositando información directo en el subconsciente, una serie de mensajes que ella desconoce y que guiará su vida desde las tinieblas. Quizá exagero. Por las dudas omito o apago el sonido de algunas palabras: mierda, funeral, bisiesto, divorcio, siamés, semen. A esta hora no quiero complicaciones.
+
+
+
+
+¿Qué recordará mi hija del año del covid? ¿Recordará, cuando tenga mi edad, que decía “covid” ante cada tosido, y que ella no lo tenía y yo solo un poco? ¿O será un recuerdo más como un sueño, impreciso, difuso?
+
+
+
+
+Hace un tiempo le pregunté si se acordaba algo del cuento que le había leído la noche anterior. Era uno de Amy Hempel. Solo me acuerdo que había un perro, me dijo.
+
+
+
+
+Manuel Soriano (Montevideo)
+
+
+
+
+\*
+
+
+
+
+El video de Denise haciendo de Evita en Instagram me alegró la semana pasada. Ya se lo dije a ella, pero lo escribo acá: la fe en la belleza me conmueve y la necesito.
+
+
+
+
+Estoy leyendo muchas cosas, escribiendo lo que puedo y recordando muchas cosas también. Recién terminé un libro que se llama “The End of the Novel of Love”, de mi santa patrona Vivian Gornick. Termina con un ensayo impresionante, el que le da al libro ese nombre glorioso, en el que Gornick básicamente explica que hay algo de la literatura que se rompió porque hay algo del mundo que se rompió. Hasta hace 50 años, dice Gornick en los 90, el amor romántico servía para hablar de epifanías que nos cambiaban la vida: de eso hablaron Tolstoi, Hemingway y casi todos los grandes. Pero ahora nos psicoanalizamos, nos divorciamos, somos libres de hacer cualquier cosa y nos hemos enamorado todos mil veces: sabemos demasiado sobre el amor de pareja como para que funcione como metáfora del misterio de la vida. Incluso si no sabemos cómo hacer funcionar una pareja sabemos demasiado, y entonces esa metáfora es más nostalgia que descubrimiento. Creo que tiene razón, más razón de la que nadie tuvo jamás. Por eso creo que la fe en la belleza hoy es más importante para mí que la fe en el amor. Y es difícil la fe en la belleza porque la belleza es rara, es más rara que el amor. Anoche vimos con mi novio una película de Malick, To the Wonder, que parecía un comercial de perfumes de dos horas. Una chica preciosa corría por un campo en un camisón de seda, y lloraba y decía que quería ser “una esposa” (literal), y no pasaba nada, porque la belleza no es eso. La belleza es algo raro.
+
+
+
+
+Entre las cosas que estuve recordando está el viaje que hice a Malvinas a fin de año. Un poco porque quiero escribir algo con eso, y entonces cada tanto vuelvo sobre esos recuerdos, pero también hay algo de la pandemia que me retrotrae a eso. Yo no soy fan de viajar: la paso bien, a veces, si lo hago, pero viajar rara vez me trae nuevas experiencias en el sentido que yo entiendo por nuevas experiencias. Salvo cuando estuve en Malvinas. Eso sí fue radicalmente desconocido, radicalmente nuevo. Una experiencia irremplazable de esas que ya no existen. Me hace sentir afortunada. No sé cómo articular la relación con la pandemia: o sea por supuesto tiene algo que ver con la imposibilidad actual de salir, pero hay algo más. La suerte de haber experimentado el mundo antes de que se convierta en otro.
+
+
+
+
+Tamara Tenenbaum (Villa Crespo)
+
+
+
+
+\*
+
+
+
+
+Acabo de leer que se murió Tom Lupo, leyenda del periodismo, generoso cultor de la poesía, una de las mejores voces de la radio. Lo traté varias veces. Recuerdo una frase suya que -me contó- le dijo al Indio Solari, con quien tuvo un vínculo estrecho antes de que el cantante se convirtiese en un mito inabordable. “Carlos, la amistad consiste en aceptar ser, en simultáneo, maestro y discípulo del otro”. No se vieron más. Siento que las grandes rocas se extinguen. Buen viaje, maestro.
+
+
+
+
+P.P. (Castelar, Buenos Aires)
+
+
+

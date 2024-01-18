@@ -1,0 +1,1 @@
+../../contenido-48267-capitanes-de-la-industria.md

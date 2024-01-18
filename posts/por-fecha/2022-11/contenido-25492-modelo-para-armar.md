@@ -1,0 +1,1 @@
+../../contenido-25492-modelo-para-armar.md

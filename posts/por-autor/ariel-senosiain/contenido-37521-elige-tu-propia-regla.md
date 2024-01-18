@@ -1,0 +1,1 @@
+../../contenido-37521-elige-tu-propia-regla.md

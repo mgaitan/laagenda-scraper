@@ -1,0 +1,266 @@
+# Empezar el día
+
+**“No se quitaron los zapatos para entrar. Lars vaciló un momento al ver que el barro dejaba huellas oscuras y pegajosas en las tablas del suelo”.**
+
+09 de marzo de 2021 - SÁBADOS DE SÚPER FICCIÓN
+
+_por CAMILLA LÄCKBERG_
+
+Link original: https://laagenda.buenosaires.gob.ar/contenido/4095-empezar-el-dia
+
+
+
+Cuando su marido entró en el cuarto de estar, Ingrid Steen disimuló el objeto que tenía en la mano y lo escondió entre los almohadones del sofá. Tommy pasó de largo.
+
+
+
+
+Tras dedicarle una sonrisa fugaz y mecánica, prosiguió en dirección a la cocina. Ingrid oyó que abría la heladera y buscaba dentro, cantando entre dientes The River, de Bruce Springsteen.
+
+
+
+
+Dejó el objeto donde estaba, se levantó del sofá y se acercó a la ventana. Los faroles de la calle batallaban con la oscuridad nórdica. Los árboles y arbustos parecían desnudos y retorcidos. En la casa de enfrente temblaba la luz de un televisor.
+
+
+
+
+A sus espaldas, Tommy carraspeó y ella se volvió.
+
+
+
+
+—¿Qué tal te ha ido hoy?
+
+
+
+
+Ingrid lo miró sin responder. Su marido sostenía en una mano una albóndiga fría a medio comer y, en la otra, un vaso de leche. Le quedaba poco pelo; nunca había tenido mucho, pero a los treinta y tantos tuvo el buen gusto de raparse. La parte baja de la camisa estaba arrugada, la había usado dentro del pantalón desde la mañana.
+
+
+
+
+—Bien.
+
+
+
+
+Tommy sonrió.
+
+
+
+
+—Me alegro.
+
+
+
+
+Ingrid se lo quedó mirando mientras se alejaba. «Tommy», nombre de obrero. «Bruce Springsteen», héroe de la clase obrera. Sin embargo, en cuanto lo nombraron director de Aftonpressen —el periódico más importante de Suecia—, se habían mudado a Bromma, un barrio habitado por la clase media acomodada y, en particular, por la élite mediática sueca.
+
+
+
+
+En el estudio volvió a oírse el tecleo de la computadora. Ingrid regresó al sofá y empezó a buscar a tientas entre los almohadones. Primero dio con un juguete antiguo de su hija Lovisa y lo sacó a la luz. Observó un momento el pequeño dinosaurio verde de ojos fijos y desproporcionados antes de depositarlo en la mesa de centro. Se inclinó otra vez sobre
+
+
+
+
+el sofá, encontró el aparato y salió al vestíbulo.
+
+
+
+
+El ruido de dedos que tecleaban, impartían órdenes y cambiaban titulares se intensificó.
+
+
+
+
+Ingrid descolgó el abrigo de Tommy del perchero. El kit de costura rectangular le presionaba
+
+
+
+
+la nalga derecha en el bolsillo trasero del jean. Ya en el piso de arriba, abrió la puerta del baño. Dejó el kit de costura sobre el lavatorio, cerró la puerta con pestillo y bajó la tapa del inodoro. Rápidamente, descosió una parte del forro del abrigo, introdujo en el hueco el aparato y comprobó que funcionaba. Con el dedo índice lo empujó, lo acomodó en el interior del forro y volvió a coser la tela satinada con un par de puntos.
+
+
+
+
+VICTORIA
+
+
+
+
+![](https://cdn.flowlikemusic.com/files/images/38197/f623b145-869b-42c9-bedc-b7c78c099d5f.jpg)
+
+
+
+
+Tres años antes, Victoria se apellidaba Volkova, vivía en la populosa ciudad rusa de Ekaterimburgo y sabía vagamente que existía Suecia porque lo había estudiado en clase de historia. Ahora se llamaba Victoria Brunberg y residía en la pequeña localidad de Sillbo, a unos diez kilómetros de Heby, en el centro del país. Hablaba sueco con un fuerte acento y no tenía trabajo ni amigos. Dejó escapar un suspiro mientras vertía el té humeante en una taza del festival Sweden Rock.
+
+
+
+
+Por el resquicio de la ventana se colaba el ruido del viento. Al otro lado de los vidrios se extendían el campo, el bosque y un cielo gris. Se hizo pantalla con la mano sobre los ojos para no tener que ver nada de aquello cuando llevara el té a la mesa de la cocina. Volvió a suspirar y apoyó los pies sobre la mesa. Todo en ese lugar, en ese país, era aborrecible. Rodeó con las manos la taza caliente y cerró los ojos.
+
+
+
+
+—Yuri —susurró.
+
+
+
+
+«La princesa de la mafia.» Así la llamaban en broma sus amigos de Ekaterimburgo. Y a ella le gustaba. Le encantaban los diamantes, las drogas, las cenas, la ropa y el piso de lujo donde vivían.
+
+
+
+
+Pero el mismo día de su cumpleaños, cuando cumplió los veinte, todo se esfumó. Fue el día que mataron a Yuri. Desde entonces, después de tanto tiempo, su cuerpo se habría descompuesto. Estaría irreconocible. La espalda peluda, las manos grandes, la mandíbula cuadrada, nada de eso existiría ya.
+
+
+
+
+Lo habían matado a tiros el día del cumpleaños de Victoria. Su sangre le salpicó el abrigo
+
+
+
+
+blanco de piel, que había dejado en el sofá del club nocturno. También a ella habían querido
+
+
+
+
+matarla, pero el asesino falló el tercer disparo, antes de ser abatido por los guardaespaldas de Yuri.
+
+
+
+
+Victoria se había refugiado en casa de su madre, que estaba a una hora en auto del centro de la ciudad.
+
+
+
+
+Fue su madre quien le sugirió la web de hombres suecos que buscaban chicas rusas.
+
+
+
+
+—Los suecos son buena gente. Son amables y no saben imponerse —le había dicho.
+
+
+
+
+Victoria le hizo caso, como casi siempre. Subió un par de fotos a la web, recibió cientos de
+
+
+
+
+respuestas en un par de días y finalmente se decidió por Malte. Le habían gustado sus fotos, su aspecto de bebé grande de mirada amable. Tenía más o menos la misma edad que ella; estaba un poco gordo y parecía tímido. Malte le envió dinero para el billete de avión y, dos semanas después, Victoria franqueó por primera vez el umbral de la casa amarilla de Sillbo.
+
+
+
+
+Afuera, en el patio de entrada, se oyó el ruido de la moto de Malte. De día trabajaba en la gasolinera Shell a la salida de Heby. Victoria bajó los pies de la mesa y fue a mirar por la ventana. La mole del cuerpo de Malte empequeñecía la motocicleta, como un Godzilla montado en un poni. Detrás iba la furgoneta blanca, que atravesó el portón abierto y se estacionó junto a la moto. Lars abrió la puerta del lado del acompañante, sacó una caja de cervezas y se dispuso a cargarla en dirección a la casa. Era viernes, beberían hasta caer inconscientes. Pero antes Malte le arrancó una lata, la abrió y se puso a beber con avidez. La grasa le formaba pliegues en el cuello. Al cabo de un segundo, los dos hombres salieron del campo visual de Victoria y enseguida se oyó la llave que giraba en la cerradura.
+
+
+
+
+No se quitaron los zapatos para entrar. Lars vaciló un momento al ver que el barro dejaba
+
+
+
+
+huellas oscuras y pegajosas en las tablas del suelo.
+
+
+
+
+—Déjalo, no te preocupes. La parienta se alegrará de tener algo que hacer. Se pasa el día entero metida en casa sin hacer nada —dijo Malte sin mirarla.
+
+
+
+
+Lars pareció dudar, intercambió con Victoria una mirada fugaz, masculló un saludo y dejó sobre la mesa la caja de cervezas. Malte se dirigió a los fogones.
+
+
+
+
+—Vamos a ver qué desgracia cocinaste hoy
+
+
+
+
+—dijo levantando la tapa de una olla.
+
+
+
+
+El vapor lo hizo retroceder y parpadear. Agitó varias veces la mano y miró dentro de la olla con los ojos entrecerrados. Al lado de Victoria, Lars abrió una lata de cerveza.
+
+
+
+
+—Papas. Bien, muy bien. —Malte miró a su alrededor y levantó los brazos—. ¿Nada más?
+
+
+
+
+¿Solamente papas?
+
+
+
+
+—No sabía a qué hora vendrías. Ahora me pondré a hacer las salchichas —replicó Victoria.
+
+
+
+
+Malte resopló, mirando a su amigo y no a ella, y repitió lo que acababa de decir su mujer, con voz aguda y exagerado acento ruso. Lars se atragantó de risa y la cerveza le corrió por el cuello.
+
+
+
+
+—Todo lo que tiene de guapa lo tiene de tonta—añadió Malte.
+
+
+
+
+A Lars todavía le goteaba la cerveza por el cuello.
+
+
+
+
+El olor a comida le impregnaba la ropa. Malte le había prometido que repararía el extractor de aire de la cocina, pero no lo había hecho. Metió los platos sucios en el lavavajillas. Los hombres estaban hundidos en el sofá. En la mesa de centro había varias latas vacías. Pronto se quedarían dormidos y entonces ella podría empezar el día. Empezarlo de verdad. Miró con disimulo el sofá, para ver dónde tenía Malte el teléfono celular, y se tranquilizó cuando pudo localizarlo entre dos latas de cerveza.
+
+
+
+
+—Tendría que haberme traído una tailandesa, igual que la tuya. Cocinan mejor, cogen mejor…—dijo Malte, antes de eructar.
+
+
+
+
+—¿Por qué no la mandas de vuelta? —preguntó Lars con una risita.
+
+
+
+
+—Eso digo yo. ¿Por qué no? Me pregunto cuál será la política de devolución de parientas defectuosas —respondió Malte entre espasmos de risa.
+
+
+
+
+—No creo que te devuelvan el dinero. Como mucho, un cupón de regalo —soltó Lars.
+
+
+
+
+—Sí, la mercancía ya está más que usada.
+
+
+
+
+Volvieron a estallar en carcajadas, mientras el lavavajillas empezaba a llenarse de agua.
+
+
+
