@@ -32,9 +32,10 @@ Para actualizar los articulos del sitio antiguo en Tumblr:
 scrapy runspider laagenda_tumblr.py
 ```
 
-De sitio nuevo 
+Para el sitio nuevo
+
 ```
-scrapy runspider laagenda_tumblr.py
+scrapy runspider laagenda.py
 ```
 
 ## Cómo crear un ebook a partir de un conjunto de archivos. 
