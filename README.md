@@ -1,4 +1,4 @@
-# Scraper y archivo de resplado de La Agenda Revista - Buenos Aires
+# Scraper y archivo de respaldo de La Agenda Revista - Buenos Aires
 
 > Quienes hacemos La Agenda procuramos (...) una mentalidad abierta no sólo en cuanto a la pluralidad de sus voces sino también con respecto a los formatos y los géneros que usamos. Intentamos hablar sobre cómo vivimos y sobre cómo queremos vivir, contar y contarnos historias de personas que nos parecen admirables o increíbles, leernos fragmentos de libros imperdibles y ocasionalmente detectar algo por lo que valga la pena indignarse. Siempre con libertad, rigor, desenfado y el mayor de los respetos por el lector.
 
